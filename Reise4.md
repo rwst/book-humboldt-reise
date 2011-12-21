@@ -6859,286 +6859,291 @@ Amerika, die von Guyana und Buenos Ayres sind niedrig
 und ohne Schutz; einem unternehmenden Feinde fällt es nicht
 schwer, ins Innere des Landes bis zum Ostabbang der Cordilleren
 von Neu-Grenada und Chili vorzudringen. Die Richtung
-des Rio de la Plata,^ der durch den Uruguay, Parana
-nnd Paraguay gebildet wird, nöthigt das angreifende Heer,
-wenn es ostwärts vorbringen will, über die Steppen (Pam-
-pas) bis Cordova oder Mendoza zu ziehen; aber nördlich vom
-Aequator, in spanisch Guyana bietet der Lauf des Orinoro««
-und seiner beiden großen Nebenfcüsse Apure und Mem in
+des Rio de la Plata,^[Von Süd nach Nord auf 22 Breitegrade.] der
+durch den Uruguay, Parana
+und Paraguay gebildet wird, nöthigt das angreifende Heer,
+wenn es ostwärts vordringen will, über die Steppen (Pampas)
+bis Cordova oder Mendoza zu ziehen; aber nördlich vom
+Aequator, in spanisch Guyana bietet der Lauf des Orinoco^[Von
+West nach Ost auf 13 Längengrade.] und
+seiner beiden großen Nebenflüsse Apure und Meta in
 der Richtung eines Parallelkreises eine Wasserstraße, auf der
 sich Munition und Lebensmittel leicht fortbringen lassen. Wer
-Herr von Angoftura ist, dringt nach Gefallen nordwärts in
-die Steppen von Cnmana, Barcelona und Caracas, nord-
-westwärts in die Provinz Varinas, westwärts in die Pro-
-vinzen am Casanare bis an den Fuß der Gebirge von
-« Von Süd nach Nord auf 22 Breitegrade.
-« Von West nach Ost auf 13 Lüngengrade.
-
--
-2l.9
+Herr von Angostura ist, dringt nach Gefallen nordwärts in
+die Steppen von Cumana, Barcelona und Caracas, nordwestwärts
+in die Provinz Varinas, westwärts in die Provinzen
+am Casanare bis an den Fuß der Gebirge von
 Pamplona, Tunja und Santa Fe de Bogota vor. Zwischen
-der Provinz spanisch Guyana und dem reichen, stark bevöl-
-kerten, gut angebauten Uferstrich liegen nur die Niederungen-
-am Orinoco, Apure und"Meta. Die festen Plätze (Cumana,
+der Provinz spanisch Guyana und dem reichen, stark bevölkerten,
+gut angebauten Uferstrich liegen nur die Niederungen
+am Orinoco, Apure und Meta. Die festen Plätze (Cumana,
 la Guayra und Porto-Cabello) schützen diese Länder kaum
-vor einer LandungQn der Nordküste. An diesen Angaben
+vor einer Landung an der Nordküste. An diesen Angaben
 über die Bodenbildung und die gegenwärtige Vertheilung der
 festen Punkte mag es genügen. Man ersieht daraus wohl
 hinlänglich, daß zur politischen Sicherung der vereinigten
-Provinzen Caracas und Neu-Grenada eine Deckung der Ori-
-nocomündungen unumgänglich ist, und daß spanisch Guyana,
+Provinzen Caracas und Neu-Grenada eine Deckung der 
+Orinocomündungen unumgänglich ist, und daß spanisch Guyana,
 obgleich kaum urbar gemacht und so dünn bevölkert, im
 Kampfe zwischen den Colonien und dem Mutterlande eine
 große Bedeutung erlangt. Diese militärische Bedeutung des
 Landes erkannte der berühmte Ralegh schon vor zweihundert
 Jahren. Im Bericht über seine erste Expedition kommt er
 öfters daraus zurück, wie leicht es der Königin Elisabeth wäre,
-»auf dem Orinoco und den ·.zahllosen Flüssen, die sich in
-denselben ergießen,« einen großen Theil »der spanischen Co-
-lonien zu erobern. Wir haben oben angeführt, daß Girolamo
-Benzoni im Jahr 1545 die Revolutionen auf St. Domingo,
+»auf dem Orinoco und den zahllosen Flüssen, die sich in
+denselben ergießen,« einen großen Theil der spanischen Colonien
+zu erobern. Wir haben oben angeführt, daß Girolamo
+Benzoni im Jahr 1545 die Revolutionen auf St.&nbsp;Domingo,
 »das in Kurzem Eigenthum der Schwarzen werden müsse,«
-vorher-sagte. Hier sinden wir in einem Werke, das 1596
+vorhersagte. Hier finden wir in einem Werke, das 1596
 erschien, einen Feldzugsplan, der sich durch Ereignisse der
 jüngsten Zeit als ganz richtig erwiesen hat.
+
 In den ersten Jahren nach der Gründung stand die
 Stadt Angostura in keinem unmittelbaren Verkehr mit dem
-Mutterland. Die Einwohner beschränkten sich daraus, dürres
+Mutterland. Die Einwohner beschränkten sich darauf, dürres
 Fleisch und Tabak auf die Antillen und über den Rio Cuyuni
-is: die hp1niudische Provinz am Essequet-F zu schmugge1u. Man
-
--220
-erhielt unmittelbar« aus Spanien weder Wein, noch, Oel,
-noch Mehl, die drei gesuchtesten Ginfuhrartikel. Ja: Jahr
--1771 schickten einige Handelsleute die erste Goelette nach
-Cadix, und seitdem wurde der direkte Tauschhandel -mit den
+in die holländische Provinz am Essequebo zu schmuggeln. Man
+erhielt unmittelbar aus Spanien weder Wein, noch Oel,
+noch Mehl, die drei gesuchtesten Einfuhrartikel. Im Jahr
+1771 schickten einige Handelsleute die erste Goelette nach
+Cadix, und seitdem wurde der direkte Tauschhandel mit den
 andalusischen und catalonischen Hafen sehr lebhaft. Seit 1785
-nahm die Bevölkerung von Angostura,O nachdem sie lange
-sehr zurückgeblieben war, stark zu; indessen war sie bei mei-
-nem Aufenthalt in Guyana noch weit hinter der Bevölkerung
-der nächsten englischen Stadt Stabrock zurück. Die Mün-
-dungen des Orinoco haben etwas vor allen Hafen von Terra
+nahm die Bevölkerung von Angostura,^[Im Jahr 1768 hatte Angostura
+nur 500 Einwohner. Eine im
+Jahr 1780 vorgenommene Zählung
+ergab 1513 (nämlich 455 Weiße, 449
+Neger, 363 Mulatten und Zambos,
+246 Indianer). Im Jahr 1789 war
+die Bevölkerung auf 4590 und 1800
+auf 6600 Seelen gestiegen. Der
+Hauptort der englischen Colonie
+Demerary, die Stadt Stabrock, liegt nur
+50 Meilen südostwärts von der Mündung
+des Orinoco. Sie hat, nach
+Bolingbrok, gegen 10,000 Einwohner.] nachdem sie lange
+sehr zurückgeblieben war, stark zu; indessen war sie bei meinem
+Aufenthalt in Guyana noch weit hinter der Bevölkerung
+der nächsten englischen Stadt Stabrock zurück. Die Mündungen
+des Orinoco haben etwas vor allen Hafen von Terra
 Firma voraus: man verkehrt aus denselben am raschesten mit
 der spanischen Halbinsel. Man fährt zuweilen von Cadix
 zur Punta Barima in 18 bis 20, und nach Europa zurück
-in 30 bis Z5 Tagen. Da diese Mündungen unter dem
-Winde aller Inseln liegen, so können die Schiffe von Ange-
-stura einen vortheilhafteren Verkehr mit den Colonien auf
-den Antillen unterhalten- als Guayra und Porto Cabello.
+in 30 bis 35 Tagen. Da diese Mündungen unter dem
+Winde aller Inseln liegen, so können die Schiffe von Angostura
+einen vortheilhafteren Verkehr mit den Colonien auf
+den Antillen unterhalten als Guayra und Porto Cabello.
 Die Handelsleute in Caracas sehen daher auch immer mit
-eisersüchtigen Blicken auf die Fortschritte der Industrie in
-spanisch Guyana, und da Caracas bisher der höchste Regi-
-rungssitz war, so wurde der Hafen von Angostura noch we-
-niger begünstigt als die Hafen von"Cumana und Nueva Bar-
-celona. Der innere Verkehr ist am lebhaftesten mit der Provinz
+eifersüchtigen Blicken auf die Fortschritte der Industrie in
+spanisch Guyana, und da Caracas bisher der höchste Regierungssitz
+war, so wurde der Hafen von Angostura noch weniger
+begünstigt als die Häfen von Cumana und Nueva Barcelona.
+Der innere Verkehr ist am lebhaftesten mit der Provinz
 Varinas. Aus derselben kommen nach Angostura Maulthiere,
-« Jm Jahr 1768 hatte Angostura nur 500 Einwohner. Eine im
-Jahr 1780 vorgenommene Zühlung ergab 1513 (nämlich 455·Weiße, 449
-Neger, Z63 Mulatten und Zambos, 246 Indianer). Ja! Jahr 1789 war
-die Bevölkerung auf 4590 und 1800 auf 6600 Seelen gestiegen. Der
--öanptort der englischen Eolonie Den1erary, die Stadt Stahrock, liegt nur
-50 Meilen südosiwürts von der Mündung des Orinoco. Sie hat, nach
-Bolinghrok, gegen 10,000 Einwohner.
-
-2Z1
-Cacao, Indigo, Baumwolle und Zucker", und sie« erhält dafür
-;,Gene1·os,« das heißt europäische Manufakturprodukte. Ich
-sah lange Fahrzeuge ·(Lcnehas) abgehen, deren Ladung auf
+Cacao, Indigo, Baumwolle und Zucker, und sie erhält dafür
+»<i>Generos</i>,« das heißt europäische Manufakturprodukte. Ich
+sah lange Fahrzeuge (<i>Lanchas</i>) abgehen, deren Ladung auf
 acht bis zehntausend Piaster geschätzt wurde. Diese Fahrzeuge
-fahren zuerst den Orinoco bis Cabruta, dann den A"pure bis
-San Vicente, endlich den Rio Santo Domingo·bis Torunos
+fahren zuerst den Orinoco bis Cabruta, dann den Apure bis
+San Vicente, endlich den Rio Santo Domingo bis Torunos
 hinauf, welches der Stapelplatz von Varinas Nuevas ist.
-Die kleine Stadt San Fernando de-Apure, die ich oben be-
-schrieben,« dient als Niederlage bei diesem Flußhandel, der
-durch die Einführung der Dampfschifffahrt noch weit bedeu-
-tende: werden kann. «
-Das linke Ufer des Orinoco und» alle M«ündungen des
-Stroms, mit Ausnahme der Boca de Navios,- gehören zu
-der Provinz Cumana. Dieser Umftand«hat schon lange An-
-laß zum Projekt gegeben, Angostura gegenüber (da wo
-gegenwärtig die Batterie San Rafael -steht) eine neue
-Stadt zu gründen, um vom Gebiet der Provinz Cumana
-selbst, und ohne über den Orinoco seyen zu müssen, die Maul-
-thiere und das dürre Fleisch der Llanos ausführen zu können.
-Kleinlichte Eifersüchteleien, wie sie immer zwischen zwei be-
-na·chbarten Regierungen im Schwange sind, werden diesem
-Plane Vorschub leisten; aber beim gegenwärtigen Zustand des
-Ackerbaus im Lande ist zu wünschen, daß er noch lange ver-
-tagt bleibt. Warum sollte man an den Ufern des Orinoco
-zwei concurrirende Städte bauen, die kaum 400 Toisen aus-
-einander lägen?
-Ich habe"im Bisherigen das Land beschrieben, das wir
-ans einer 500 Meilen langen Flußfahrt durchzogen; es bleibt
-« S. Bd. III. Seite Z.
+Die kleine Stadt San Fernando de Apure, die ich oben beschrieben,^[S. Bd. III. Seite 3.] dient
+als Niederlage bei diesem Flußhandel, der
+durch die Einführung der Dampfschifffahrt noch weit bedeutender
+werden kann.
 
-jetzt nur noch das kleine 3,5s Längengrade betragende Stils
-zwischen der gegenfvärtigen Hauptstadt und  Mündung des
+Das linke Ufer des Orinoco und alle Mündungen des
+Stroms, mit Ausnahme der Boca de Navios, gehören zu
+der Provinz Cumana. Dieser Umstand hat schon lange Anlaß
+zum Projekt gegeben, Angostura gegenüber (da wo
+gegenwärtig die Batterie San Rafael steht) eine neue
+Stadt zu gründen, um vom Gebiet der Provinz Cumana
+selbst, und ohne über den Orinoco sehen zu müssen, die Maulthiere
+und das dürre Fleisch der Llanos ausführen zu können.
+Kleinlichte Eifersüchteleien, wie sie immer zwischen zwei 
+benachbarten Regierungen im Schwange sind, werden diesem
+Plane Vorschub leisten; aber beim gegenwärtigen Zustand des
+Ackerbaus im Lande ist zu wünschen, daß er noch lange vertagt
+bleibt. Warum sollte man an den Ufern des Orinoco
+zwei concurrirende Städte bauen, die kaum 400 Toisen auseinander
+lägen?
+
+Ich habe im Bisherigen das Land beschrieben, das wir
+auf einer 500 Meilen langen Flußfahrt durchzogen; es bleibt
+jetzt nur noch das kleine 3,52 Längengrade betragende Stück
+zwischen der gegenwärtigen Hauptstadt und  Mündung des
 Orinoco übrig. Eine genaue Kenntniß des Delta und des
-Laufs des Mo Caronh ist für die Hydrogras-hie und den
-europäischen Handel von gleichem Belang. Um den Fluchen-
-raum und die Bildung eines von Flußarmen durchsthnittenen
+Laufs des Rio Carony ist für die Hydrographie und den
+europäischen Handel von gleichem Belang. Um den Flächenraum
+und die Bildung eines von Flußarmen durchschnittenen
 und periodischen Ueberschwemmungen unterworfenen Landes
-beurtheilen zu können, hatte ich die astronomische Lage -der
+beurtheilen zu können, hatte ich die astronomische Lage der
 Punkte, wo die Spitze und die äußersten Arme des Delta
 liegen, zu ermitteln. Churruca, der mit Don Juacquin
-Fidalgo den Auftrag hatte, die Nordküsten von Terta Firma
-und die AntilIen aufzunehmen, hat Länge und Breite der
+Fidalgo den Auftrag hatte, die Nordküsten von Terra Firma
+und die Antillen aufzunehmen, hat Länge und Breite der
 Boca de Manamo, der Punta Baxa und von Vieja Guayana
-bestimmt. Aus Espinosas Denkschristen kennen wir die wahre
+bestimmt. Aus Espinosas Denkschriften kennen wir die wahre
 Lage der Punta Barima, und ich glaube daher, wenn ich
-nach den Punkten Puerto E-spaf1·a auf der Insel Trinidad
+nach den Punkten Puerto España auf der Insel Trinidad
 und dem Schloß San Antonio bei Cumana (Punkten, welche
-durch meine eigenen Beobachtungen und durch Qltmanns
-scharfsinnige Untersuchungen gegeben sind) eine Reduction vor-
-nehme und dadurch die absoluten Längen näher bestimme,
-hinlänglich genaue Angaben machen zu können. Es ist wün-
-schenswerth, daß einmal auf einer ununterbrochenen Fahrt
+durch meine eigenen Beobachtungen und durch Oltmanns
+scharfsinnige Untersuchungen gegeben sind) eine Reduction vornehme
+und dadurch die absoluten Längen näher bestimme,
+hinlänglich genaue Angaben machen zu können. Es ist 
+wünschenswerth, daß einmal auf einer ununterbrochenen Fahrt
 auf chronometrischem Wege die Meridianunterschiede zwischen
-Puerto Espafia und den kleinen Mündungen des Orinoeo,
+Puerto España und den kleinen Mündungen des Orinoco,
 zwischen San Rafael (der Spitze des Delta) und Santo
 Thome de Angostura bestimmt werden.
-Die ganze Ostküste von Südamerika vom Cap San Roque,
-und besonders vomHafen von Maranham bis zum Gebirg4sstock von
-Paria ist so niedrig, daß, nach meiner Ansicht, dasDelta des
-Orinoco und seine Bodenbildung nicht wohl den Anschwemmungen
 
-223
+Die ganze Ostküste von Südamerika vom Cap San Roque,
+und besonders vom Hafen von Maranham bis zum Gebirgsstock von
+Paria ist so niedrig, daß, nach meiner Ansicht, das Delta des
+Orinoco und seine Bodenbildung nicht wohl den Anschwemmungen
 Eines Stromes zugeschrieben werden kann. Ich will nach
-der Aussage der Alten nicht in Abrede ziehen, daß das Nil-
-delta einst ein Busen des Mittelmeers war, der allmählig
-durch Anschwemmung- ausgefüllt wurde; Es begreift sich
-leicht, daß üch an der Mündung aller großen Ströme da,
+der Aussage der Alten nicht in Abrede ziehen, daß das Nildelta
+einst ein Busen des Mittelmeers war, der allmählig
+durch Anschwemmung ausgefüllt wurde. Es begreift sich
+leicht, daß sich an der Mündung aller großen Ströme da,
 wo die Geschwindigkeit der Strömung rasch abnimmt, eine
 Bank, ein Eiland bildet, daß sich Material absetzt, das
-nicht weiter geschwemmt werden kann. Es ist ebenso b-
-greiflich, daß der Fluß, da er um diese Bank herum muß,
+nicht weiter geschwemmt werden kann. Es ist ebenso begreiflich,
+daß der Fluß, da er um diese Bank herum muß,
 sich in zwei Arme spaltet, und daß die Anschwemmungen, da
 sie an der Spitze des Delta einen Stützpunkt finden, sich
 immer weiter ausbreiten, während die Flußarme aus einander
 weichen. Der Vorgang bei der ersten Gabelung wiederholt
 sich bei jedem einzelnen Stromstück, so daß die Natur durch
-denselben Proceß ein Labyrinth kleiner gegabelter Canäle her-
-vorbringen kann, die sich im Laufe der Jahrhunderte, je nach
-der Starke und der Richtung der Hochgewässer, ausfüllen
+denselben Proceß ein Labyrinth kleiner gegabelter Canäle 
+hervorbringen kann, die sich im Laufe der Jahrhunderte, je nach
+der Stärke und der Richtung der Hochgewässer, ausfüllen
 oder vertiefen. Auf diese Weise hat sich unzweifelhaft der
-Hauptstamm des Orinoeo 25 Meilen westwärts von der Vom
-de Ravios in zwei Arme, den von .8aeupana und den von
-J1nataea, getheilt. Das Netz kleinerer Zweige dagegen, die
-gegen Nord vom Flusse abgehen und deren Mündungen bo-
-na ei-fees (die kleinen Münd1mgen) heißen, scheint mir eine
-Erscheiming, die ganz mit der Bildung der Deltas von
-9kebenflüss en übereinkommt.1 Wenn mehrere hundert
-Meilen von der .ttüste ein Fluß (z. B. der Apure oder Im
-pura) sich mittelst einer Menge von Zweigen mit einem an-
-der-n Fluß verbindet, so sind diese mannigfachen Gabelungen
-« S. über diese Deltas von Nebenslüssen gegenüber den oceanischen
-Dein« Bd. llI. C. IV. 47. 163.
-
-. M -
+Hauptstamm des Orinoco 25 Meilen westwärts von der Boca
+de Ravios in zwei Arme, den von Zacupana und den von
+Imataca, getheilt. Das Netz kleinerer Zweige dagegen, die
+gegen Nord vom Flusse abgehen und deren Mündungen <i>bocas
+chicas</i> (die kleinen Mündungen) heißen, scheint mir eine
+Erscheinung, die ganz mit der Bildung der <b>Deltas von
+Nebenflüssen</b> übereinkommt.^[S. über diese Deltas
+von Nebenflüssen gegenüber den oceanischen
+Deltas Bd. III. 6. IV. 47. 163.] Wenn mehrere hundert
+Meilen von der Küste ein Fluß (z.&nbsp;B. der Apure oder Jupura)
+sich mittelst einer Menge von Zweigen mit einem andern
+Fluß verbindet, so sind diese mannigfachen Gabelungen
 nur Rinnen in einem völlig ebenen Boden. Ebenso verhält
-es sich mit den oceanischen Deltas überall, wo« bei all-
-gemeinen -1Ieberfinthungen in Zeiten, bevor Or-inoeo und
-Amazonenstrom bestanden, die Kisten mit erdigen Nieder-
-schlägen bedeckt wurden. Ich bezweifle, daß alle veeanisthen
-Deltas einst Meerbusen, oder, wie einige neuere »Geographen
-sich ausdrücken, negative Deltas waren. Wem einmal
+es sich mit den <b>oceanischen</b> Deltas überall, wo bei
+allgemeinen Ueberfluthungen in Zeiten, bevor Orinoco und
+Amazonenstrom bestanden, die Küsten mit erdigen Niederschlägen 
+bedeckt wurden. Ich bezweifle, daß alle oceanischen
+Deltas einst Meerbusen, oder, wie einige neuere Geographen
+sich ausdrücken, <b>negative Deltas</b> waren. Wem einmal
 die Mündungen des Ganges, des Indus, des Senegal, der
 Donau, des Amazonenstroms, des Orinoco und des Mississippi
 geologisch genauer untersucht sind, wird sich zeigen, daß nicht
 alle denselben Ursprung haben; man wird dann zwischen
-Küsten unterscheiden, die in Folge der sich häusenden·Anschjvem-
-mungen rasch in die See hinaus vorrücken, und Küsten, die
+Küsten unterscheiden, die in Folge der sich häufenden 
+Anschwemmungen rasch in die See hinaus vorrücken, und Küsten, die
 sich innerhalb des allgemeinen Umrisses der Continente halten;
-man wird unterscheiden zwischen einem, von einem gegabel-
-ten Strom gebildeten Landstrich, und den von ein paar
-Seitenarmen durchzogenen Niederungen, die zu einem ausg-
-schwemmten Lande gehören, das mehrere tausend Quadrat-
-meilen Flächenraum hat.
+man wird unterscheiden zwischen einem, von einem <b>gegabelten</b>
+Strom gebildeten Landstrich, und den von ein paar
+Seitenarmen durchzogenen Niederungen, die zu einem aufgeschwemmten
+Lande gehören, das mehrere tausend Quadratmeilen
+Flächenraum hat.
+
 Das Delta des Orinoco zwischen der Insel Cangrejos
-und der Boca de Manamo (der Landstrich, wo«die Guaraons
+und der Boca de Manamo (der Landstrich, wo die Guaraons
 wohnen) läßt sich mit der Insel Marajo oder Joanes an
 der Mündung des Amazonenstroms vergleichen. Dort liegt
-das aufgeschwemmte Land nördlieh, hier südlich vom Haupt-
-stamm"des Stroms. Aber die Insel Joanes schließt sich
-nach ihrer Form der allgemeinen Bodenbildung in der Pro-
-vinz Maranhao gerade so an, wie die Küste bei den Bot-as
-ohicas des Orinoco den Küsten am Rio Essequebo und am
-Meerbusen von Paria. Nichts weist daraus hin, daß einmal
+das aufgeschwemmte Land nördlich, hier südlich vom Hauptstamm
+des Stroms. Aber die Insel Joanes schließt sich
+nach ihrer Form der allgemeinen Bodenbildung in der Provinz
+Maranhao gerade so an, wie die Küste bei den <i>Bocas
+chicas</i> des Orinoco den Küsten am Rio Essequebo und am
+Meerbusen von Paria. Nichts weist darauf hin, daß einmal
 letzterer Meerbusen südwärts von der Boca de Manamo bis
-
-22.3
-Vieja Guayana ins Land hinein gereicht, oder daß der Ama-
-zonenstrotn die ganze Bucht zwischen Billa Visiosa und Gran
-Para mit seinen Gewüssern gefüllt hat. Nicht Alles, was an
-den Flüssen liegt, ist ihr Werk. Meist haben sie sich in aus-
-geschwemmtem Land ein Bett gegraben, aber diese Anschwem-
-mutigen sind von höherem geologischem Alter, hängen mit
-den großen Ummälzungen zusammen, die unser Planet er-
-litten. Es ist zu ermitteln, ob zwischen den gegabelten Zwei-
-gen eines Flusses der Schlick nicht aus einer Schicht von Ge-
-schieden liegt, wie man sie sehr weit vom fließenden Wasser
-sindet. Die Arme des Orinoco weichen aus 47 Seemeilen
-auseinander; es ist dieß die Breite des oeeanischen Deltas
-zwischen Punta Barima und der am weitesten nach West ge-
-legenen Z(-es» ei-see. Dieser ·3«mdstkich ist bis jetzt nicht
+Vieja Guayana ins Land hinein gereicht, oder daß der 
+Amazonenstrom die ganze Bucht zwischen Villa Vistosa und Gran
+Para mit seinen Gewässern gefüllt hat. Nicht Alles, was an
+den Flüssen liegt, ist ihr Werk. Meist haben sie sich in 
+aufgeschwemmtem Land ein Bett gegraben, aber diese Anschwemmungen
+sind von höherem geologischem Alter, hängen mit
+den großen Umwälzungen zusammen, die unser Planet erlitten.
+Es ist zu ermitteln, ob zwischen den gegabelten Zweigen
+eines Flusses der Schlick nicht auf einer Schicht von Geschieben
+liegt, wie man sie sehr weit vom fließenden Wasser
+findet. Die Arme des Orinoco weichen auf 47 Seemeilen
+auseinander; es ist dieß die Breite des oceanischen Deltas
+zwischen Punta Barima und der am weitesten nach West gelegenen
+<i>Boca chica</i>. Dieser Landstrich ist bis jetzt nicht
 genau aufgenommen, und so kennt man auch nicht die Zahl
-der Mündungen. Nach der gemeinen Annahme hat der Ori-
-noco ihrer sieben, und dies; erinnert an die im Alterthum so
-berufenen septem ostia Nili. Aber das egyptische Delikt
-war nicht immer ans diese Zahl beschränkt, und an den über-
-schweInmten Küsten von Guyana kann man wenigstens elf
-ganz ansehnliche Mündungen zählen. Nach der Born de Na-
-vio-I, welche die Schisser an der Punta Barima erkennen,
-sitld vom größten Werth für die Schifsfahrt die Bot-as Ma-
-riusas, Macareo, Pedernales und Manamo grande. Der
-Strich des Delikts westwärts von der Born Maeareo wird
-von den Gewässern des Meerbusens von Paria oder Gott'»
-tki-zt-e bespült. Dieses Becken wird durch die Lsttüste der
-Provinz Eumana und die Westcüste der Insel Trinidad g-
-bildet; es sieht mit dem Meer der Antillen durch die viel-
-berufenen Bot-as«de D-ags-s (Mündungen des Trutbert)
-H--p·1n.s·i-«. n-. 1.3
-
-Bd ·
-Verbindung , welche die .ltüsienpiloten seit Chrif·toph Eolumbus
+der Mündungen. Nach der gemeinen Annahme hat der Orinoco
+ihrer sieben, und dieß erinnert an die im Alterthum so
+berufenen <i>septem ostia Nili</i>. Aber das egyptische Delikt
+war nicht immer auf diese Zahl beschränkt, und an den 
+überschwemmten Küsten von Guyana kann man wenigstens elf
+ganz ansehnliche Mündungen zählen. Nach der Boca de Navios,
+welche die Schiffer an der Punta Barima erkennen,
+sind vom größten Werth für die Schifffahrt die Bocas Mariusas,
+Macareo, Pedernales und Manamo grande. Der
+Strich des Deltas westwärts von der Boca Macareo wird
+von den Gewässern des Meerbusens von Paria oder <i>Golfo
+triste</i> bespült. Dieses Becken wird durch die Ostküste der
+Provinz Cumana und die Westküste der Insel Trinidad gebildet;
+es steht mit dem Meer der Antillen durch die vielberufenen
+<i>Bocas de Dragos</i> (Mündungen des Drachen) in
+Verbindung, welche die Küstenpiloten seit Christoph Columbus
 Zeit ziemlich uneigentlich als die Mündungen des Orinoco
 betrachten.
-Will ein Schiff von der hohen See her in die Haupt-
-mündung des Orinoco, die Vom de Navios einlaufen, so
-muß es die Punta Barima in Sieht bekommen. Das reihte-
+
+Will ein Schiff von der hohen See her in die Hauptmündung
+des Orinoco, die Boca de Navios einlaufen, so
+muß es die Punta Barima in Sicht bekommen. Das rechte,
 südliche Ufer ist das höhere; es kommt auch nicht weit davon
-landeinwärts, zwischen dem Cafco Barima, dem Aquire und
-dem Cuyuni, das E-ranitgestein auf dem morasügen Boden zu
+landeinwärts, zwischen dem Caño Barima, dem Aquire und
+dem Cuyuni, das Granitgestein auf dem morastigen Boden zu
 Tage. Das linke oder nördliche Stromufer, welches über
-das Delta bis zur Vom de Marinsas und der Punta Baxa
+das Delta bis zur Boca de Mariusas und der Punta Baxa
 läuft, ist ganz niedrig; man erkennt es von weitem nur an
 den Gruppen von Mauritiapalmen, welche die Landschaft
-zieren. Der Baum ist der S-agobaum dieses Landstrichs;I
-man gewinnt daraus das Mehl zum Yurumabrod, und
-die Mauritia ist keineswegs eine ,,Küstenpalme,« wie cha-
-maerops l1umilis, wie der gemeine Cocosbaum und Com-
-mersons I-odoicea., sondern geht, als ,,Sumpspalme,« bis zu
-· Das nabrhafte Sahmehl oder taki--e m6da1lais-e der Sagol·äume
-findet sich vorzugsweise bei einer Gruppe von Palmen, die Lunis) Tala-
-meen nennt; es kommt indessen auch in den Stütnmen von C)-ou revo-
-1ut«s, l-’lw-vix tin-inil·em, Co!-y1-its umbkseulit’et-S und cui-y0t.s us-ea-
-vor und wird im indischen 2lrchipel von diesen Bäumen gesammelt und in
-den Handel gebracht. Der üchte afiatische Sagobaum (ssgns R-mphü.«
-oder di-:tk()x»vlon St-gu, Roxbakgh) gibt mehr NahrttItgsstofs als alle
-andern nuybaren Gewüchie. Von einem einzigen- Stamm gewinnt man
-im fünfzehnten Jahr zuweilen 600 Pfund Sage oder Mehl, (denn das
-Wort sog« bedeutet im amboinisehen Dialett Mehl). Erawfurd, der si·h
-fo lange auf dem indischen Archive! aufgehalten hat, berechnet, daß auf
-einem englischen Tiere (4029 Quadratmeter) 435 Sagobäume wachsen können,
-die über 8000 Pfund Mehl jührlich geben. Dieser Ertrag ist dreimal so
-hoch als beim Getreide, und doppelt so hoch als bei der itartossel in Frank-
-reich. Die Bananen geben auf derselben Bodenflüche noch mehr Nahrungs-
-stoff als der Sagobaum.
-
-227
-den O«uellen des Orinoco hinauf« Während der Ueber-
-schwemmungen nehmen sich« diese Mauritiabüsche wie ein Wald
-aus, der aus dem Wasser-taucht. DerSchisfer, wenn er bei
+zieren. Der Baum ist der Sagobaum dieses Landstrichs;^[Das
+nahrhafte Satzmehl oder <i>farine
+médullaire</i> der Sagobäume
+findet sich vorzugsweise bei einer
+Gruppe von Palmen, die Kunth <b>Calameen</b>
+nennt; es kommt indessen auch in
+den Stämmen von <i>Cycas revoluta</i>,
+<i>Pheni farinifera</i>, <i>Corypha
+umbraculifera</i> und <i>Caryoa urens</i>
+vor und wird im indischen Archipel von
+diesen Bäumen gesammelt und in
+den Handel gebracht. Der ächte asiatische
+Sagobaum (<i>Sagus Rumphii</i>,
+oder <i>Metroxylon Sagu</i>, Roxburgh)
+gibt mehr Nahrungsstoff als alle
+andern nutzbaren Gewächse. Von einem
+einzigen Stamm gewinnt man
+im fünfzehnten Jahr zuweilen 600&nbsp;Pfund
+Sago oder Mehl, (denn das
+Wort <i>Sagu</i> bedeutet im amboinischen
+Dialekt Mehl). Crawfurd, der sich
+so lange auf dem indischen Archipel
+aufgehalten hat, berechnet, daß auf
+einem englischen Acre (4029&nbsp;Quadratmeter)
+435&nbsp;Sagobäume wachsen können,
+die über 8000&nbsp;Pfund Mehl jährlich
+geben. Dieser Ertrag ist dreimal so
+hoch als beim Getreide, und doppelt
+so hoch als bei der Kartoffel in Frankreich.
+Die Bananen geben auf derselben Bodenfläche
+noch mehr Nahrungsstoff als der Sagobaum.]
+man gewinnt daraus das Mehl zum <b>Yurumabrod</b>, und
+die Mauritia ist keineswegs eine »Küstenpalme«, wie <i>Chamaerops
+humilis</i>, wie der gemeine Cocosbaum und Commersons
+<i>Lodoicea</i>, sondern geht, als »Sumpfpalme«, bis zu
+den Quellen des Orinoco hinauf.^[S. S. 70.] Während der 
+Ueberschwemmungen nehmen sich diese Mauritiabüsche wie ein Wald
+aus, der aus dem Wasser taucht. Der Schiffer, wenn er bei
 Nacht durch die Canäle des Orinocodeltas fährt, sieht mit
 Ueberraschung die Wipfel der Palmen von großen Feuern
 beleuchtet. Dieß sind die an den Baumästen aufgehängten
@@ -7151,41 +7156,44 @@ schlammigten Boden, auf dem sie in der trockenen Jahreszeit
 umherziehen und auf dem nur sie sicher gehen können, ihrer
 Abgeschiedenheit auf dem Delta des Orinoco, ihrem Leben
 auf den Bäumen, wohin religiöse Schwärmerei schwerlich je
-amerikanische Styliten2 treibt.
-Ich habe schon anderswo bemerkt, daß die Mauritia-
-Palme, der ,,Lebensbaum« der Missionäre, den Guaraons
+amerikanische <b>Styliten</b>^[Simeon Sisanites,
+ein Syrier, war der Stifter dieser Sekte. Er
+brachte in mystischer Beschaulichkeit
+37&nbsp;Jahre auf fünf Säulen zu, von
+denen die letzte 36&nbsp;Ellen hoch war.
+Die <b>Säulenheiligen</b>, <i>sancti columnares</i>,
+wollten auch in Deutschland, im
+Trierschen, ihre luftigen Klöster
+einführen, aber die Bischöfe widersetzten
+sich einem so tollen, halsbrecherischen
+Unternehmen.] treibt.
+Ich habe schon anderswo bemerkt, daß die Mauritiapalme,
+der »Lebensbaum« der Missionäre, den Guaraons
 nicht nur beim Hochwasser des Orinoco eine sichere Behausung
 bietet, sondern ihnen in seinen schuppigten Früchten, in seinem
 mehligten Mark, in seinem zuckerreichen Saft, endlich in den
 Fasern seiner Blattstiele, Nahrungsmittel, Wein und Schnüre
-zu Stricken und Hängematten gibt. Gleiche Gebrauche wie
-bei den Indianern auf dem Delta des Orinoeo herrschten
-« S. Bd. IV. Seite 70.
-« Sinnen Sisanites, ein SVrier, war der Stifter dieser Seite. Er
-brachte in mystischer Beschaulichkeit 37 Jahre auf fünf Säulen zu, von
-denen die letzte 36 Ellen hoch war. Die Süulenheiligen, san«-ti so-
-1nams-es, wollten auch in Deutschland, im Triei-schen, ihre lustigen Klöst-«
-einführen, aber die Bisch5fe wider-schien sich einem so tollen, hal0brethesi
-Unternehmen.
-
-früher im Meerbusen von Darien (Uraba) und auf denmeisten
-zeitweise unter Wasser stehenden Landstrtchen zwischen -dein
-Guarapiche und der Mündung des Amazonenstro1nS. Gs
-ist sehr merkwürdig, auf der« niedrigsten Stufe« menschlicher
+zu Stricken und Hängematten gibt. Gleiche Gebräuche wie
+bei den Indianern auf dem Delta des Orinoco herrschten
+früher im Meerbusen von Darien (Uraba) und auf den meisten
+zeitweise unter Wasser stehenden Landstrichen zwischen dem
+Guarapiche und der Mündung des Amazonenstroms. Es
+ist sehr merkwürdig, auf der niedrigsten Stufe menschlicher
 Cultur das Leben einer ganzen Völkerschaft an eine einzige
-Palmenart gelettet zu sehen, Insekten gleich, die sich nur von
-Einer Blüthe, vom selben Theil eines Gewächse-B nähren.
-Es ist nicht zu verwundern, daß die Breite der Haupt-
-mündung des Orinoco (Boc-e. de N-.vios) so verschieden ge·
-schätzt wird. Die große Insel Cangrejos ist nur durch einen
-schmalen Canal von dem unter Wasser stehenden Boden ge-
-trennt, der zwischen den BocaS Nuina und Mariusas liegt,
+Palmenart gekettet zu sehen, Insekten gleich, die sich nur von
+Einer Blüthe, vom selben Theil eines Gewächses nähren.
+
+Es ist nicht zu verwundern, daß die Breite der Hauptmündung
+des Orinoco (<i>Boca de Navios</i>) so verschieden geschätzt
+wird. Die große Insel Cangrejos ist nur durch einen
+schmalen Canal von dem unter Wasser stehenden Boden getrennt,
+der zwischen den Bocas Nuina und Mariusas liegt,
 so daß 20 oder 14 Seemeilen (zu 950 Toisen) herauskommen,
 je nachdem man (in einer der Strömung entgegengesetzten
-Richtung) von der Punta Barima zum nächsten gegenüber-
-liegenden Ufer, oder von derselben Punta zum östlichen Theil
+Richtung) von der Punta Barima zum nächsten gegenüberliegenden
+Ufer, oder von derselben Punta zum östlichen Theil
 der Insel Cangrejos mißt. Ueber die Wasserstraße läuft eine
-Sandbank, eine Barre, in 17 Fuß Tiefe; man gibt derselben
+Sandbank, eine Barre, in 17&nbsp;Fuß Tiefe; man gibt derselben
 eine Breite von 2500 bis 2800 Toisen. Wie beim Amazonen-
 strom, beim Nil und allen Flüssen, die sich in mehrere Arme
 theilen, ist auch beim Orinoco die Mündung nicht so groß,

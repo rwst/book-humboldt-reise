@@ -2896,7 +2896,7 @@ Nebel geben diesen Gewächsen Unterhalt.
 
 Anderson, der Naturforscher bei Capitän Cooks dritter Reise,
 gibt den europäischen Aerzten den Rath, ihre Kranken nach
-Teneriffa zu schicken, keineswegs auf der Rücksicht, welche
+Teneriffa zu schicken, keineswegs aus der Rücksicht, welche
 manche Heilkünstler die entlegendsten Bäder
 wählen läßt, sondern wegen der ungemeinen Milde und
 Gleichmäßigkeit des Klimas der Canarien. Der Boden der Inseln
@@ -2971,156 +2971,16 @@ als das Höhenmaaß der untern Grenze des ewigen Schnees. Ich
 stelle die Ergebnisse meiner betreffenden Beobachtungen in
 folgender Uebersicht zusammen.
 
+------------------------------------------------------------------------
+Breiten- Geringste Höhe,       Untere Grenze des  Differenz  Mittlere
+grad     in der Schnee fällt.  ewigen Schnees                Temperatur
+-------- --------------------- ------------------ ---------- -----------
+0°       3980 m                4790 m             810 m      27° C
 
+20°      3020 m                4600 m             1580 m     24°5 C
 
-        
-
-                
-
-                
-Geringste Höhe,
-in der Schnee fällt.
-
-                
-Untere Grenze des
-ewigen Schnees.
-
-                
-Unterschied der beiden
-vorstehenden Columnen.
-
-                
-Mittlere Temperatur.
-
-        
-
-        
-
-                
-Nörtliche Breite
-
-                
-Toisen.
-
-                
-Meter.
-
-                
-Toisen.
-
-                
-Meter.
-
-                
-Toisen.
-
-                
-Meter.
-
-                
-100theil. Scale.
-
-                
-Reaumur.
-
-        
-
-        
-
-                
-0°
-
-                
-2040
-
-                
-3976
-
-                
-2460
-
-                
-4794
-
-                
-420
-
-                
-818
-
-                
-27°
-
-                
-21°6
-
-        
-
-        
-
-                
-20°
-
-                
-1550
-
-                
-3020
-
-                
-2360
-
-                
-4598
-
-                
-810
-
-                
-1578
-
-                
-24°5
-
-                
-19°6
-
-        
-
-        
-
-                
-40°
-
-                
-0
-
-                
-0
-
-                
-1540
-
-                
-3001
-
-                
-1540
-
-                
-3001
-
-                
-17°
-
-                
-13°6
-
-        
-
-
-
-
+40°      0 m                   3000 m             3000 m     17° C
+------------------------------------------------------------------------
 
 Diese Tafel gibt nur das Durchschnittsverhältniß, das heißt die
 Erscheinungen, wie sie sich im ganzen Jahre zeigen. Besondere
@@ -5687,74 +5547,14 @@ Wurzeln haben.
 
 Wir führen folgende Beispiele an:
 
-
-
-        
-
-                
-
-                
-Guanchisch
-
-                
-Berberisch
-
-        
-
-        
-
-                
-Himmel,
-
-                
-**Tigo**,
-
-                
-**Tigot.**
-        
-
-        
-
-                
-Milch,
-
-                
-**Aho**,
-
-                
-**Acho.**
-        
-
-                
-Gerste,
-
-                
-**Temasen**
-                
-**Tomzeen.**
-        
-
-                
-Korb,
-
-                
-**Carianas**
-                
-**Carian.**
-        
-
-                
-Wasser,
-
-                
-**Aenum**
-                
-**Anan.**
-        
-
-        
-
-
+            Guanchisch    Berberisch
+----------- ------------  ------------
+Himmel,     **Tigo**,     **Tigot.**
+Milch,      **Aho**,      **Acho.**
+Gerste,     **Temasen**   **Tomzeen.**
+Korb,       **Carianas**  **Carian.**
+Wasser,     **Aenum**     **Anan.**
+---------------------------------------
 
 Ich glaube nicht, daß diese Sprachähnlichkeit ein Beweis für
 gemeinsamen Ursprung ist; aber sie deutet darauf hin, daß die
@@ -5832,148 +5632,16 @@ hat kaum 160,000 Einwohner, und der
 **Isleños** sind
 vielleicht in der neuen Welt mehr als in ihrer alten Heimath.
 
-
-
-        
-
-                
-
-                
-hatte auf Q. Seemeilen
-
-                
-i. J.
-
-                
-Einwohner
-
-                
-auf die Q.M.
-
-        
-
-                
-Teneriffa
-
-                
-73
-
-                
-1790
-
-                
-70,000,
-
-                
-958
-
-        
-
-                
-Fortaventura
-
-                
-63
-
-                
-1790
-
-                
-9,000,
-
-                
-142
-
-        
-
-                
-Die große Canaria
-
-                
-60
-
-                
-1790
-
-                
-50,000,
-
-                
-833
-
-        
-
-                
-Palma
-
-                
-27
-
-                
-1790
-
-                
-22,600,
-
-                
-837
-
-        
-
-                
-Lancerota
-
-                
-26
-
-                
-1790
-
-                
-10,000,
-
-                
-384
-
-        
-
-                
-Gomera
-
-                
-14
-
-                
-1790
-
-                
-7,400,
-
-                
-528
-
-        
-
-                
-Ferro
-
-                
-7
-
-                
-1790
-
-                
-5,000,
-
-                
-714
-
-        
-
-
-
-
+                  hatte auf Q. Seemeilen  i. J.  Einwohner  auf die Q.M.
+----------------- ----------------------- ------ ---------- -------------
+Teneriffa         73                      1790   70,000,    958
+Fortaventura      63                      1790   9,000,     142
+Die große Canaria 60                      1790   50,000,    833
+Palma             27                      1790   22,600,    837
+Lancerota         26                      1790   10,000,    384
+Gomera            14                      1790   7,400,     528
+Ferro             7                       1790   5,000,     714
+-------------------------------------------------------------------------
 
 An Wein werden auf Teneriffa geerntet 20–24,000 Pipes,
 worunter 5000 Malvasier; jährliche Ausfuhr von Wein 8–9000
@@ -6001,7 +5669,7 @@ mir die Canarien besucht haben, standen ihnen dieselben Quellen
 zu Gebot, und ich entferne ohne Bedenken aus meinem Tagebuch,
 was in Werken, die vor dem meinigen erschienen sind, genau
 verzeichnet steht. Ich beschränke mich hier auf einige
-Bemerkungen, mit denen die Schildung, die ich vom Archipel der
+Bemerkungen, mit denen die Schilderung, die ich vom Archipel der
 Canarien entworfen, geschlossen seyn mag.
 
 
@@ -8580,26 +8248,14 @@ zu machen, als ob sich eine Wirkung langsam den Kordilleren
 entlang geäußert hätte, bald von Nord nach Süd, bald von Süd
 nach Nord. Ich gebe hier vier dieser auffallenden Zeitpunkte:
 
-
-        Mexiko
-        Peru
-
-        (Breite 13° 32´ Nord)
-        (Breite 12° 6´ Süd)
-
-        30. Nov. 1577,
-        17. Juni 1578,
-
-        4. März 1679,
-        17. Juni 1678,
-
-        12. Febr. 1689,
-        10. Okt. 1688,
-
-        27. Sept. 1717,
-        8. Febr. 1716.
-
-
+Mexiko                  Peru
+----------------------- ---------------------
+(Breite 13° 32´ Nord)   (Breite 12° 6´ Süd)
+30. Nov. 1577,          17. Juni 1578,
+4. März 1679,           17. Juni 1678,
+12. Febr. 1689,         10. Okt. 1688,
+27. Sept. 1717,         8. Febr. 1716.
+---------------------------------------------
 
 Ich gestehe, wenn die Erdstöße nicht gleichzeitig sind, oder
 doch kurz nacheinander folgen, so erscheint die angebliche

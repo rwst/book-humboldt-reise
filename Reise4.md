@@ -7194,282 +7194,275 @@ Richtung) von der Punta Barima zum nächsten gegenüberliegenden
 Ufer, oder von derselben Punta zum östlichen Theil
 der Insel Cangrejos mißt. Ueber die Wasserstraße läuft eine
 Sandbank, eine Barre, in 17&nbsp;Fuß Tiefe; man gibt derselben
-eine Breite von 2500 bis 2800 Toisen. Wie beim Amazonen-
-strom, beim Nil und allen Flüssen, die sich in mehrere Arme
+eine Breite von 2500 bis 2800 Toisen. Wie beim Amazonenstrom,
+beim Nil und allen Flüssen, die sich in mehrere Arme
 theilen, ist auch beim Orinoco die Mündung nicht so groß,
-als man nach der Länge seines Laufe-s und nach der Breite,
-die er noch mehrere hundert Meilen weit im Lande hat, ver-
-muthen sollte. Man weiß nach Malaspinas Aufnahme, daß
+als man nach der Länge seines Laufes und nach der Breite,
+die er noch mehrere hundert Meilen weit im Lande hat, vermuthen
+sollte. Man weiß nach Malaspinas Aufnahme, daß
 der Rio de la Plata von Punta del Este bei Maldonado bis
 zum Cabo San Antonio über 124 Seemeilen (41,3 französische
-Lienes) breit ist; fährt man aber nach Bueno-I Ayres hinauf,
-so nimmt die Breite so rasch ab, daß sie 001011ie, del Sacke-
-mento gegenüber nur noch 21 Seemeilen beträgt. Was man
+Lieues) breit ist; fährt man aber nach Buenos Ayres hinauf,
+so nimmt die Breite so rasch ab, daß sie <i>Colonia del
+Sacramento</i> gegenüber nur noch 21 Seemeilen beträgt. Was man
 gemeiniglich die Mündung des Rio de la Plata heißt, ist eben
-
-229
 ein Meerbusen, in den sich der Uruguay und der Parana
 ergießen, zwei Flüsse, die nicht so breit sind wie der Orinoco.
-Um die Größe der Mündung des Amazonenstroms zu über-
-treiben, rechnet man-die Inseln Marajo und Caviana dazu,
-so daß von Punta Tigioca bis zu Cabo del Ndrte die unge-
-heure Breite von P-V, Grad oder 70 sranzlisischen Meilen
+Um die Größe der Mündung des Amazonenstroms zu übertreiben,
+rechnet man die Inseln Marajo und Caviana dazu,
+so daß von Punta Tigioca bis zu Cabo del Norte die ungeheure
+Breite von 3½ Grad oder 70 französischen Meilen
 herauskommt; betrachtet man aber näher das hydraulische
-System —des Canals Tagypuru, des Rio Tocantins, des Anm-
-zonenstroms und des Araguari, die ihre ungeheuren Wasser-
-massen vereinigen, so sieht man, daß diese Schätzung rein
-aus der Luft gegriffen ist. Zwischen Macapa und dem west-
-lichen Ufer der Insel Marajo (11l1o« do .1oanes) ist der
+System des Canals Tagypuru, des Rio Tocantins, des Amazonenstroms
+und des Araguari, die ihre ungeheuren Wassermassen
+vereinigen, so sieht man, daß diese Schätzung rein
+aus der Luft gegriffen ist. Zwischen Macapa und dem westlichen
+Ufer der Insel Marajo (<i>Ilha de Joanes</i>) ist der
 eigentliche Amazonenstrom in zwei Arme getheilt, die zusammen
-nur ·?-S Seemeilen (11 Lieues) breit find. Weiter unten läuft
+nur 32 Seemeilen (11 Lieues) breit sind. Weiter unten läuft
 das Nordufer der Insel Marajo in der Richtung eines Parallels
 fort, während die Küste von portugiesisch Guyana zwischen
-Maeapa und Cabo del Norte von Süd nach Nord streicht.
-So kommt es, daß der Amazonenstrom bei den Inseln Max-iana
-Quid C«:viauc«, da wo die Gewzissek des Stroms und die de-
+Macapa und Cabo del Norte von Süd nach Nord streicht.
+So kommt es, daß der Amazonenstrom bei den Inseln Maxiana
+und Caviana, da wo die Gewässer des Stroms und die des
 atlantischen Oeeans zuerst auf einander stoßen, einen gegen
 40 Seemeilen breiten Meerbusen bildet. Der Orinoco steht
 noch mehr hinsichtlich der Länge des Laufs als der Breite im
 Binnenlande dem Amazonenstrom nach, er ist ein Fluß zweiter
-Ordnung; man darf aber nicht vergessen, daß alle diese Ein-
-theilungen-nach der Länge des Laufs oder der Breite der
-Mündungen sehr willkitrlich sind. Die Flüsse der britannischen
+Ordnung; man darf aber nicht vergessen, daß alle diese 
+Eintheilungen nach der Länge des Laufs oder der Breite der
+Mündungen sehr willkürlich sind. Die Flüsse der britannischen
 Inseln laufen in Meerbusen oder Süßwasserseen aus, in denen
 durch die Ebbe und Fluth des Meeres die Wasser periodisch
 hin und hergetrieben werden; sie weisen uns deutlich darauf
 hin, daß man die Bedeutung eines hydraulischen Systems
-I
-
-230 -
-nicht einzig nach der Breite der Mündungen schätz"en darf.
-Jede Vorstellung von relativer Größe ist schwankend, so
+nicht einzig nach der Breite der Mündungen schätzen darf.
+Jede Vorstellung von <b>relativer Größe</b> ist schwankend, so
 lange man nicht durch Messung der Geschwindigkeit und des
-Flächenraums von Querschnitten die Wassertnassen vergleichen
-kann. Leider sind Ausnahmen der Art an Bedingungen ge
-knüpft, die de·r einzelne Reisende nicht erfüllen kann. So
+Flächenraums von Querschnitten die Wassermassen vergleichen
+kann. Leider sind Ausnahmen der Art an Bedingungen geknüpft,
+die der einzelne Reisende nicht erfüllen kann. So
 muß man das ganze Flußbett sondiren können, und zwar in
 verschiedenen Jahreszeiten. Da scheinbar sehr breite Flüsse
-meist nicht sehr tiefe, von mehreren parallelen. Rinnen durclx
-zogene Becken sind« se"sühken sie euer; weit wenige: Wasser,
+meist nicht sehr tiefe, von mehreren parallelen Rinnen durchzogene
+Becken sind^[S. Seite 47.] so führen sie auch weit weniger Wasser,
 als man auf den ersten Blick glaubt. Zwischen dem Maximum
 und dem Minimum des Wasserstandes während der großen
 Ueberschwemmungen und in der trockenen Jahreszeit kann die
 Wassermasse um das Fünfzehn- bis Zwanzigfache größer oder
-kleiner seyn. , - . "
-Sobald man Punta Barinia umsegelt hat und in das
+kleiner seyn.
+
+Sobald man Punta Barima umsegelt hat und in das
 Bett des Orinoco selbst eingelaufen ist, findet man dieses nur
-3000 Toisen breit. .Höhere«Angaben beruhen auf dem Bersehen,
+3000 Toisen breit. Höhere Angaben beruhen auf dem Versehen,
 daß die Steuerleute den Fluß auf einer Linie messen, die
 nicht senkrecht auf die Richtung der Strömung gezogen ist.
-Die Insel Cangr·ejos zu befestigen, bei der das Wasser vier
+Die Insel Cangrejos zu befestigen, bei der das Wasser vier
 bis fünf Faden tief ist, wäre unnütz; die Fahrzeuge wären hier
 außerhalb Kanonenschußweite. Das Labyrinth von Canälen,
-die zu-den kleinen M1·indungen führen, wechselt Tag für Tag
+die zu den kleinen Mündungen führen, wechselt Tag für Tag
 nach Gestalt und Tiefe. Viele Steuerleute sind der festen
-Ansicht, die Caf1os Cocuina, Pedernales und Macareo, durch
+Ansicht, die Caños Cocuina, Pedernales und Macareo, durch
 welche der Küstenhandel mit der Insel Trinidad getrieben
 wird, seyen in den letzten Jahren tiefer geworden und der
-« S. Bd. IV. Seite 47.
-
-231
-Strom ziehe sich immer mehr von der Born de» Navios weg
+Strom ziehe sich immer mehr von der Boca de Navios weg
 und wende sich mehr nach Nordwest. Vor dem Jahr 1760
-wagten«sich Fahrzeuge mit mehr als 10 bis I2 Fuß Tiefgang
+wagten sich Fahrzeuge mit mehr als 10 bis 12 Fuß Tiefgang
 selten in die kleinen Canäle des Delta. Gegenwärtig scheut man
 die »kleinen Mündungen« des Okinoco fast gar nicht mehr,
 und feindliche Schiffe, welche nie diese Striche befahren haben,
-finden an» den Guaraons willige, geübte Wegweifer. Die
-Civilisirung dieser Völkerschaft, deren Wohnsitze sich zum Ori-
-noco verhalten wie die der Nhengahybas oder Jgaruanas
+finden an den Guaraons willige, geübte Wegweiser. Die
+Civilisirung dieser Völkerschaft, deren Wohnsitze sich zum Orinoco
+verhalten wie die der Nhengahybas oder Igaruanas
 zum Amazonenstrom, ist für jede Regierung, die am Orinoco
 Herr bleiben will, von großem Belang.
-El-be und Fluth sind im April, beim tiefsten Wasser-
-stand, bis über Angostura hinauf zu spüren, also mehr als
+
+Ebbe und Fluth sind im April, beim tiefsten Wasserstand,
+bis über Angostura hinauf zu spüren, also mehr als
 85 Meilen landeinwärts. Beim Einfluß des Carony, 60
 Meilen von der Küste, steigt das Wasser durch Stauung um
-einen Fuß drei Zoll. Diese Schwingungen der .Wasserfläche,
+einen Fuß drei Zoll. Diese Schwingungen der Wasserfläche,
 diese Unterbrechung des Laufs sind nicht mit der aufsteigenden
-Fluth zu verwechseln. Bei der« großen Mündung des Orinoco
-an Cap Barima beträgt die Fluthhöhe 2 bis Z Fuß, dagegen
-weiter gegen Nordwest, im Giotto t1-ists, zwischen der Boca
-Pedernales, dem Rio Guarapiche und der Westküste von Tri-
-nidad, 7 bis 8, sogar 10 Fuß. So viel macht auf einer
+Fluth zu verwechseln. Bei der großen Mündung des Orinoco
+an Cap Barima beträgt die Fluthhöhe 2&nbsp;bis 3&nbsp;Fuß, dagegen
+weiter gegen Nordwest, im <i>Golfo triste</i>, zwischen der Boca
+Pedernales, dem Rio Guarapiche und der Westküste von Trinidad,
+7&nbsp;bis 8, sogar 10&nbsp;Fuß. So viel macht auf einer
 Strecke von 30 bis 40 Meilen der Einfluß des Umrisses der
 Küsten aus, sowie der Umstand, daß die Gewässer durch die
 Bocas de Dragos langsamer abfließen. Wenn man in ganz
-neuen Werken angegeben findet, der Orinoco verursache S. bis
-Z Grad in die hohe See hinaus besondere Strömungen, die
-Farbe des Seewassers verändere sich dadurch und im Giotto
-it-jetzo sey süßes Wasser (Gumillas disk duIoe), so sind das
-lauter Fabeln. Die Strömung geht an dieser ganzen Küste
-
+neuen Werken angegeben findet, der Orinoco verursache 2&nbsp;bis
+3&nbsp;Grad in die hohe See hinaus besondere Strömungen, die
+Farbe des Seewassers verändere sich dadurch und im <i>Golfo
+triste</i> sey süßes Wasser (Gumillas <i>Mar dulce</i>), so sind
+das lauter Fabeln. Die Strömung geht an dieser ganzen Küste
 von Cap Orange an nach Nordwest, und der Einfluß der
 süßen Gewässer des Orinoco auf die Stärke dieser allgemeinen
-Strömung, auf die Durchsichtigkeit und die Farbe des Meer-
-wassers bei reflektirtem Licht ist selten weiter als Z bis 4
-Meilen nordostwärts von der Insel Cangrejos zu spüren
-Das Wasser im Giotto tkiste ist gesalzen, nur weniger als
+Strömung, auf die Durchsichtigkeit und die Farbe des Meerwassers
+bei reflektirtem Licht ist selten weiter als 3&nbsp;bis 4
+Meilen nordostwärts von der Insel Cangrejos zu spüren.
+Das Wasser im <i>Golfo triste</i> ist gesalzen, nur weniger als
 im übrigen Meer der Antillen wegen der kleinen Mündungen
-des Orinocodelta und der Wasfermasfe, welche der Nin Gua-
-rapiche hineinbringt. Aus denselben Gründen gibt es keine
+des Orinocodelta und der Wassermasse, welche der Rio Guarapiche
+hineinbringt. Aus denselben Gründen gibt es keine
 Salzwerke an diesen Küsten, und ich habe in Angostura Schiffe
-aus Cadix ankommen sehen, die Salz, ja, was für die In-
-dustrie in den Colonien bezeichnend ist, Backsteine zum Bau
+aus Cadix ankommen sehen, die Salz, ja, was für die Industrie
+in den Colonien bezeichnend ist, Backsteine zum Bau
 der Hauptkirche geladen hatten.
+
 Den Umstand, daß die unbedeutende Fluth an der Küste
 im Bette des Orinoco und des Amazonenstroms so ungemein
 weit aufwärts zu spüren ist, hat man bis jetzt als einen
 sichern Beweis angesehen, daß beide Ströme auf einer Strecke
 von 85 und 200 Meilen nur um wenige Fuß fallen können.
 Dieser Beweis erscheint aber durchaus nicht als stichhaltig,
-wenn man bedenkt, daß die Stärke der steh fortpflanzenden
-Schwankungen im Niveau von vielen örtlichen Umständen al-
-hängig ·ist, von der Form, den Krümmungen und der Zahl
+wenn man bedenkt, daß die Stärke der sich fortpflanzenden
+Schwankungen im Niveau von vielen örtlichen Umständen abhängig
+ist, von der Form, den Krümmungen und der Zahl
 der in einander mündenden Canäle, vom Widerstand des
 Grundes, auf dem die Fluthwelle herauskommt, vom Abprallen
-des. Wassers an den gegenüberliegenden Ufern und von der
+des Wassers an den gegenüberliegenden Ufern und von der
 Einschnürung des Stroms in einem Engpaß. Ein gewandter
 Ingenieur, Bremontier, hat in neuester Zeit dargethan, daß
 im Bett der Garonne die Fluthwellen wie auf einer geneigten
 Ebene weit über das Niveau der See an der Mündung des
 Flusses hinaufgehen. Im Orinoco kommen die ungleich hohen
-
-233
-Fluthen donPnntaBari-a und vomGo1to reiste in un-
-gleichen Intervallen durch die große W-sserstraße der Born
-de Navios und durch die engen, gewundenen-, zahlreichen
-boaas (-bit-as heraus. Da diese kleinen Canäle am selben
-Punkt, bei San Rafael, vom Hauptsta1nm—·abgehen, so wäre
-es von Interesse, die Berzöger-arg des Einttitts der Fluth
-nnddieFottpslanzungderFluthwellenimBettdesOrinoco
-oberhalb und wasch.-to S«-u N«-san, auf der« See bei Cap
-Barimaundim6o1kotkisu-beiderBocaManaino zube-
-obachten. Die Wasserbaukunst und die Theorie der Bewegung
+Fluthen von Punta Barima und vom <i>Golfo triste</i> in ungleichen
+Intervallen durch die große Wasserstraße der Boca
+de Navios und durch die engen, gewundenen, zahlreichen
+<i>bocas chicas</i> herauf. Da diese kleinen Canäle am selben
+Punkt, bei San Rafael, vom Hauptstamm abgehen, so wäre
+es von Interesse, die Verzögerung des Eintritts der Fluth
+und die Fortpflanzung der Fluthwellen im Bett des Orinoco
+oberhalb und unterhalb San Rafael, auf der See bei Cap
+Barima und im <i>Golfo triste</i> bei der Boca Manamo zu 
+beobachten. Die Wasserbaukunst und die Theorie der Bewegung
 von Flüssigkeiten in engen Canälen müßten beide Nutzen aus
-einer Arbeit ziehen, für welche der Orinoco und der Ama-
-zonenstrom besonders günstige Gelegenheit boten.
-- Bei der Fahrt aus dem Fluß, ob nun die Schiffe durch
-die Boca de Navios einlaufen oder sich durch das Labyrinth
-der bot-as (-bit-as wagen, sind besondere Vorsichtsmaßregeln
-erforderlich, je nachdem das Bett voll oder der Wasserstand
-sehr tief ist. Die Regelmüßigkeit, mit der der Orinoco zu
-bestimmten Zeiten ansrhwillt, war von jeher für die Reisenden
-ein Gegenstand der Verwunderung, wie ja auch das Austreten
-des Nils für die Philosophen des Alter-thums ein schwer zu
-ldsendes Problem war. Der Orinoco und der Nil laufen, der
-Richtung des Ganges, Judas, Rio de la Plata und Euphrat
-entgegen, von Süd nach Nord; aber die Quellen des Orinoco
-liegen um Z bis S Grad näher am Aequator als die des Nil.
-Da uns die zusülligen Wechsel im Lustkreise täglich so stark
-ausfallen, wird uns die Anschauung schwer, daß in großen
-Zeiträumen die Wirkungen dieses Wechsels sich gegenseitig
-ausgleichen -sollen, daß in einer langen Reihe von Jahren
-die Unterschiede im durchschnittlichen Betrag der Temperatur,
+einer Arbeit ziehen, für welche der Orinoco und der Amazonenstrom
+besonders günstige Gelegenheit boten.
 
-234«
+Bei der Fahrt auf dem Fluß, ob nun die Schiffe durch
+die Boca de Navios einlaufen oder sich durch das Labyrinth
+der <i>bocas chicas</i> wagen, sind besondere Vorsichtsmaßregeln
+erforderlich, je nachdem das Bett voll oder der Wasserstand
+sehr tief ist. Die Regelmäßigkeit, mit der der Orinoco zu
+bestimmten Zeiten anschwillt, war von jeher für die Reisenden
+ein Gegenstand der Verwunderung, wie ja auch das Austreten
+des Nils für die Philosophen des Alterthums ein schwer zu
+lösendes Problem war. Der Orinoco und der Nil laufen, der
+Richtung des Ganges, Indus, Rio de la Plata und Euphrat
+entgegen, von Süd nach Nord; aber die Quellen des Orinoco
+liegen um 5&nbsp;bis 6&nbsp;Grad näher am Aequator als die des Nil.
+Da uns die zufälligen Wechsel im Luftkreise täglich so stark
+auffallen, wird uns die Anschauung schwer, daß in großen
+Zeiträumen die Wirkungen dieses Wechsels sich gegenseitig
+ausgleichen sollen, daß in einer langen Reihe von Jahren
+die Unterschiede im durchschnittlichen Betrag der Temperatur,
 der Feuchtigkeit und des Luftdrucks von Monat zu Monat
-ganz unbedeutend sind, und daß die Natur, trotz der häufiger!
-partiellen Störungen, in der Reihenfolge.der meteorologischen
+ganz unbedeutend sind, und daß die Natur, trotz der häufigen
+partiellen Störungen, in der Reihenfolge der meteorologischen
 Erscheinungen einen festen Typus befolgt. Die großen Ströme
-sammeln die Wasser, die auf einer mehrere tausend Quadrat-
-meilen großen Erdsiäche niederfallen, in Einen Behälter. So
-ungleich auch die Regenmenge seht! M.OS«.die im Lauf der
-Jahre in diesem oder jenem Thale fällt, auf den Wasserfiand
+sammeln die Wasser, die auf einer mehrere tausend Quadratmeilen
+großen Erdfläche niederfallen, in Einen Behälter. So
+ungleich auch die Regenmenge seyn mag, die im Lauf der
+Jahre in diesem oder jenem Thale fällt, auf den Wasserstand
 der Ströme von langem Lauf haben dergleichen locale Wechsel
-so gut wie keinen Einfluß. Die Anschwellungen sind der Aus-
-druck des mittleren Feuchtigkeitsftandes im ganzen Becken;
+so gut wie keinen Einfluß. Die Anschwellungen sind der Ausdruck
+des <b>mittleren</b> Feuchtigkeitsstandes im ganzen Becken;
 sie treten Jahr für Jahr in denselben Verhältnissen auf, weil
-ihr Anfang und-ihre Dauer eben auch vom Durchschnitt
+ihr Anfang und ihre Dauer eben auch vom <b>Durchschnitt</b>
 der scheinbar sehr veränderlichen Epochen des Eintritts und
 des Endes der Regenzeit unter den Breiten, durch welche der
 Hauptstrom und seine Nebenflüsse laufen, abhängig sind. Es
-folgt daraus, daß die periodischen Schwankungen im Wasser-
-stand der Ströme, gerade wie die unveränderliche Temperatur
+folgt daraus, daß die periodischen Schwankungen im Wasserstand
+der Ströme, gerade wie die unveränderliche Temperatur
 der Höhlen und der Quellen, sichtbar darauf hinweisen, daß
 Feuchtigkeit und Wärme auf einem Striche von beträchtlichem
 Flächenraum von einem Jahr zum andern regelmäßig vertheilt
-sind. Dieselben machen starken Eindruck auf die Einbildungs-
-kraft des Volks, wie ja Ordnung in allen Dingen überrascht,
-wo die ersten Ursachen schwer zu erfassen find, wie ja die
-Durchschnittstemperaturen aus einer langen Reihe von Mo-
-naten und Jahren den in Verwunderung setzen, « der zum
+sind. Dieselben machen starken Eindruck auf die Einbildungskraft
+des Volks, wie ja Ordnung in allen Dingen überrascht,
+wo die ersten Ursachen schwer zu erfassen sind, wie ja die
+Durchschnittstemperaturen aus einer langen Reihe von Monaten
+und Jahren den in Verwunderung setzen, der zum
 erstenmal eine Abhandlung über klimatische Verhältnisse zu
 Gesicht bekommt. Ströme, die ganz in der heißen Zone liegen,
-zeigen in ihren periodischen Bewegungen die wundervolle Regel-
-Inäßigkeit, die einem Erdstrich eigen ist, wo derselbe Wind
-
-235
-fast immer Lnftschichten von derselben Temperatur her-führt,
+zeigen in ihren periodischen Bewegungen die wundervolle 
+Regelmäßigkeit, die einem Erdstrich eigen ist, wo derselbe Wind
+fast immer Lnftschichten von derselben Temperatur herführt,
 und wo die Declinationsbewegung der Sonne jedes Jahr zur
 selben Zeit mit der elektrischen Spannung, mit dem Aufhören
 der Seewinde und dem Eintritt der Regenzeit eine Störung
-des Gleichgewichts verursacht. « Der Orinoco, der Rio Mag-
-dalena und der Congo oder ,8aire sind die einzigen großen
-Ströme im Aeqninoctialstrich des Erdballs, die in der Nähe
-des Aeqnators entspringen und deren Mündung in weit höhe-
-rer Breite, aber noch innerhalb der Tropen liegt. Der Nil
-und der Rio de la Plain laufen in zwei entgegengesetzten
-Halbkugeln aus der heißen in die gemäßigte Zone.·«
+des Gleichgewichts verursacht.^[S. die oben
+entwickelte Theorie Bd. III. Seite 13.] Der Orinoco,
+der Rio Magdalena und der
+Congo oder Zaire sind die einzigen großen
+Ströme im Aequinoctialstrich des Erdballs, die in der Nähe
+des Aequators entspringen und deren Mündung in weit höherer
+Breite, aber noch innerhalb der Tropen liegt. Der Nil
+und der Rio de la Plata laufen in zwei entgegengesetzten
+Halbkugeln aus der heißen in die gemäßigte Zone.^[In Asien
+laufen der Ganges, der Buramputer und die majestätischen
+indisch-chinesischen Flüsse <b>dem
+Aequator</b> zu. Die ersteren kommen aus
+der gemäßigten Zone in die heiße. Der
+Umstand, daß die Flüsse entgegengesetzte
+Richtungen haben (dem Aequator oder
+den gemäßigten Erdstrichen zu),
+äußert Einfluß auf den Eintritt und
+die Größe der Ueberschwemmungen,
+auf die Art und die Mannigfaltigkeit
+der Produkte längs der Ufer, auf die
+größere oder geringere Lebhaftigkeit
+des Handels, und, darf ich nach dem,
+was wir über die Völker Egyptens,
+Meroes und Indiens wissen, wohl
+sagen, auf den Gang der Cultur die Stromthäler entlang.]
 So lange man den Rio Paragua bei Esmeralda mit
-dem Rio Gnaviare verwechseln und die Quellen des Orinoco
-südwestwärts am Qstabhang der Linden suchte, schrieb man
+dem Rio Guaviare verwechseln und die Quellen des Orinoco
+südwestwärts am Ostabhang der Anden suchte, schrieb man
 das Steigen des Stroms dem periodischen Schmelzen des
 Schnees zu. Dieser Schluß war so unrichtig, als wenn man
-früher den Nil durch das Schneewasser aus Abyssinien aus-
-treten ließ. Die Cordilleren von Neu-Grenada, in deren
-Nähe die westlichen Nebenflüsse des Orinoco, der Gua-
-viare, der Meta und der Apure entspringen, reichen, mit
-einziger Ausnahme der Paramos von Chita und Mucuchies,
+früher den Nil durch das Schneewasser aus Abyssinien austreten
+ließ. Die Cordilleren von Neu-Grenada, in deren
+Nähe die <b>westlichen Nebenflüsse</b> des Orinoco, der Guaviare,
+der Meta und der Apure entspringen, reichen, mit
+einziger Ausnahme der <b>Paramos</b> von Chita und Mucuchies,
 so wenig zu der Grenze des ewigen Schnees hinauf als die
-« S. die oben entwickelte Theorie Bd. III. Seite 13.
-« In Asien laufender Ganges, der Bnramputer und die 1najestütischen
-indisch-chinesisthen Flüsse dem Aeqnator zu. Die ersteren kommen ans
-der gemäßigten Zone in die heiße. Der Umstand, daß die Flüsse entgegen-
-geseyte Richtungen haben (dem Aequator oder den gemüß·igten Erdstrichen zn),
-äußert Einfluß ans den Eintritt und die Größe der Uebers.hwemmungen,
-ans die Art und die Mannigfaltigkeit der Produkte längs der Ufer, ans die
-größere oder geringere Lebhaftigkeit des Handels, und, darf ich nach dem,
-was wir über die Völker Egyptens, Meroes und Indiens wissen, wohl
-sagen, ans den Gang der Cultur die Stromthüler-entlang.
-
--
-M " -
-abyssinischen Alpen« Schneeberge sind im heißen Erdsttich
-weit seltener, als man gewöhnlich glaubt; und die Schne-sz
-schmelze, die in keiner Jahreszeit bedeutend ist, wird zur
+abyssinischen Alpen. Schneeberge sind im heißen Erdstrich
+weit seltener, als man gewöhnlich glaubt; und die Schneeschmelze,
+die in keiner Jahreszeit bedeutend ist, wird zur
 Zeit der Hochwasser des Orinoco keineswegs stärker. Die
-O-uellen dieses Stroms liegen Ostwärts von Esmeralda) in
-den Gebirgen der Parime; deren höchste Gipfel nicht
+Quellen dieses Stroms liegen (ostwärts von Esmeralda) in
+<b>den Gebirgen der Parime</b>, deren höchste Gipfel nicht
 über 1200 bis 1300 Toisen hoch sind, und von Grita bis
-Neiva (von 7«-, bis Z Grad der Breite) hat der östliche Zweig
-der Cordillere viele Paramos von I800 bis 1900 Toisen
-Höhe, aber nur Eine Gruppe von Nevados, das heißt
-Bergen, höher als 2400 Toisen, und zwar die fünf Pichacos
-de Chita. In den schneelosen Paramos von Cnndinamarca
-entspringen die drei großen Nebenslüsse des Orinoco von Westen
-her. Nur. kleinere Nebenflüsse, die in den Meta und Apure
-fallen, nehmen einige aguas de nie-ve auf, wie der Nie
+Neiva (von 7½&nbsp;bis 3&nbsp;Grad der Breite) hat der östliche
+Zweig der Cordillere viele Paramos von 1800 bis 1900 Toisen
+Höhe, aber nur Eine Gruppe von <b>Nevados</b>, das heißt
+Bergen, höher als 2400 Toisen, und zwar die fünf <b>Pichacos
+de Chita</b>. In den schneelosen Paramos von Cundinamarca
+entspringen die drei großen Nebenflüsse des Orinoco von Westen
+her. Nur kleinere Nebenflüsse, die in den Meta und Apure
+fallen, nehmen einige <i>aguas de nieve</i> auf, wie der Rio
 Casanare, der vom Nevado de Chita, und der Rio de Santo
-Domingo, der von der Sierra Nevada de Merida herunter-
-kommt und durch die Provinz Varinas läuft.
-Die Ursache des periodischen Austretens des Orinoco
-wirkt in gleichem Maaße auf alle Flüsse, die im heißen Erd-
-strich entspringen. Nach der Frühlings- Tag- und Nacht-
-gleiche verkündet das Aufhören der Seewinde den Eintritt der
-Regenzeit. Das Steigen der Flüsse, die man als natürliche
-Reg enmes s er betrachten kann, ist der Regenmenge, die in
-den verschiedenen Landstrichen fällt, proportional. Mitten in
-den Wäldern am obern Orinoco und Mo Negro schienen mir
-über 90 bis 100 Zoll Regen im Jahr zu fallen. « Die Ein-
-gebotenen unter dem trüben Himmel von Esmeralda und am
-« S. Bd. I1I. Seite 370. -
+Domingo, der von der Sierra Nevada de Merida herunterkommt
+und durch die Provinz Varinas läuft.
 
-237
--
-Atabapo wissen daher auch ohne die ·geringste Kenntniß von
-der Physik, so gut wie einst Eudoxus und Eratosthenes,1 daß
+Die Ursache des periodischen Austretens des Orinoco
+wirkt in gleichem Maaße auf alle Flüsse, die im heißen Erdstrich
+entspringen. Nach der Frühlings- Tag- und Nachtgleiche
+verkündet das Aufhören der Seewinde den Eintritt der
+Regenzeit. Das Steigen der Flüsse, die man als natürliche
+<b>Regenmesser</b> betrachten kann, ist der Regenmenge, die in
+den verschiedenen Landstrichen fällt, proportional. Mitten in
+den Wäldern am obern Orinoco und Rio Negro schienen mir
+über 90 bis 100 Zoll Regen im Jahr zu fallen.^[S. Bd. III.
+Seite 370.] Die Eingeborenen unter dem
+trüben Himmel von Esmeralda und am
+Atabapo wissen daher auch ohne die geringste Kenntniß von
+der Physik, so gut wie einst Eudoxus und Eratosthenes,^[Strabo,
+Lib. XVII. Diodorus Siculus Lib. I. c. 5.] daß
 das Austreten großer Ströme allein vom tropischen Regen
-herrührt. Der, ordnungsmäßige Verlauf im Steigen und
+herrührt. Der ordnungsmäßige Verlauf im Steigen und
 Fallen des Orinoco ist folgender. Gleich nach der Frühlings-
 Tag- und Nachtgleiche (das Volk nimmt den 25. März an)
 bemerkt man, daß der Fluß zu steigen anfängt, Anfangs nur
@@ -7481,97 +7474,91 @@ langsamer, als er gestiegen. Im Januar und Februar ist
 er auf dem Minimum. In beiden Welten haben die Ströme
 der nördlichen heißen Zone ihre Hochwasser ungefähr zur selben
 Zeit. Ganges, Niger und Gambia erreichen wie der Orinoco
-ihr Maximum im August.2 Der Nil bleibt um zwei Monate
-zurück, sey es in Folge gewisser localer klimatischer Verhält-
-nisse in Abyssinien, sey es wegen der Länge seines Laufs
-vom Lande Berber oder vom 17. Breitengrad bis zur Theilung
-am Delta. Die arabischen Geographen behaupten, in Sen-
-naar und Abyssinien steige der Nil schon im April (ungefähr
+ihr Maximum im August.^[Etwa 40 bis 50 Tage nach dem
+Sommersolstitium.] Der Nil bleibt um zwei Monate
+zurück, sey es in Folge gewisser localer klimatischer Verhältnisse
+in Abyssinien, sey es wegen der Länge seines Laufs
+vom Lande Berber oder vom 17.&nbsp;Breitengrad bis zur Theilung
+am Delta. Die arabischen Geographen behaupten, in Sennaar
+und Abyssinien steige der Nil schon im April (ungefähr
 wie der Orinoco); in Cairo wird aber das Steigen erst gegen
 das Sommersolstitium merklich und der höchste Wasserstand
-tritt Ende September ein. O Aus diesem erhält sich der Fluß
+tritt Ende September ein.^[Etwa 80 bis 90 Tage nach
+dem Sommersolstitium.] Aus diesem erhält sich der Fluß
 bis Mitte October; das Minimum fällt in April und Mai,
 also in eine Zeit, wo in Guyana die Flüsse schon wieder zu
 steigen anfangen. Aus dieser raschen Uebersicht ergibt sich,
-« Strahl-, Lib. XVIl. Diodorus Siculus l-ib. I. a. 5.
-’ Etwa 40 bis 50 Tage nach dem Sommersolsütium.
-« Etwa So bis 90 Tage nach dem Sommersolstitium.
-
-238 .
-.J—j.--. »
-daß, wenn auch die Form der natürlichen Canäle und loeale
+daß, wenn auch die Form der natürlichen Canäle und locale
 klimatische Verhältnisse eine Verzögerung herbeiführen, die
 große Erscheinung des Steigens und Fallens der Flüsse in
 der heißen Zone sich überall gleich bleibt. Auf den beiden
-Thierlreisen, die man gewöhnlich den tartarischen und
-chaldäischen oder egyptischen nennt (auf dein ThierkreiS,
+Thierkreisen, die man gewöhnlich den <b>tartarischen</b> und
+<b>chaldäischen</b> oder egyptischen nennt (auf dem Thierkreis,
 der das Bild der Ratte, und auf dem, der die Bilder der
-Fische und des Wassermanns hat) beziehen sich besondere»Con-
-stellationen auf die periodischen Ueberschwemmungen der Flüsse.
-Wahre Cykeln, Zeiteintheilungen, wurden allmählig zu Thei-
-lungen des Raums; da aber die physikalische Erscheinung der
-Ueberschwemmungen eine so allgemeine ist, so konnte der Thier-
-kreis, der durch die Griechen auf uns gekommen und der
-durch das Vorrücken der Tag- und Nachtgleichen ein geschicht-
-liches Denkmal von hohem Alter wird, weit von Theben und
+Fische und des Wassermanns hat) beziehen sich besondere 
+Constellationen auf die periodischen Ueberschwemmungen der Flüsse.
+Wahre Cykeln, Zeiteintheilungen, wurden allmählig zu Theilungen
+des Raums; da aber die physikalische Erscheinung der
+Ueberschwemmungen eine so allgemeine ist, so konnte der 
+Thierkreis, der durch die Griechen auf uns gekommen und der
+durch das Vorrücken der Tag- und Nachtgleichen ein geschichtliches
+Denkmal von hohem Alter wird, weit von Theben und
 dem heiligen Nilthal entstanden seyn. Auf den Thierkreisen
-der neuen Welt, z. B. auf dem mexicanischen, kommen auch
-Zeichen für Regen und Ueberschwemmung vor, die dem
-Chr: (der Ratte) des chinesischen und tibetanischen Cyelus der Tse
+der neuen Welt, z.&nbsp;B. auf dem mexicanischen, kommen auch
+Zeichen für <b>Regen</b> und <b>Ueberschwemmung</b> vor, die dem
+Chu (der Ratte) des chinesischen und tibetanischen Cyclus der Tse
 und den Fischen und dem Wassermann des zwölftheiligen
-Thierkreises entsprechen. Diese zwei mexicanischen Zeichen find
-das Wasser (at1) und der Cipactli, das Seeungeheuer
-mit einem Horn. Dieses Thier ist zugleich die Fisehgazelle
-der Hindus, der Steinbock unseres Thier-kreises, der Deu-
-calion der Griechen und der Noah ((J0xc0x) der Azteken.
-So finden wir denn die allgemeinen Ergebnisse der ver-
-gleichenden Hydrographie schon aus den astrologisrhen
+Thierkreises entsprechen. Diese zwei mexicanischen Zeichen sind
+das <b>Wasser</b> (<i>atl</i>) und der <b>Cipactli</b>,
+das Seeungeheuer
+mit einem Horn. Dieses Thier ist zugleich die <b>Fischgazelle</b>
+der Hindus, der <b>Steinbock</b> unseres Thierkreises,
+der <b>Deucalion</b>
+der Griechen und der Noah (<i>Coxcox</i>) der Azteken.
+So finden wir denn die allgemeinen Ergebnisse der <b>vergleichenden
+Hydrographie</b> schon aus den astrologischen
 Denkmälern, in den Zeiteintheilungen und den religiösen
 Ueberlieferungen von Völkern, die geographisch und dem Grad
-ihrer Geistesbildung nach am weitesten auseinander. liegen.
-X
+ihrer Geistesbildung nach am weitesten auseinander liegen.
 
-— 239 ,
 Da die Aequatorialregen auf den Niederungen eintreten,
 wenn die Sonne durch das Zenith des Ortes geht, das heißt
 wenn ihre Declination der Zone zwischen dem Aequator und
 einem der Wendekreise gleichnamig wird, so fällt das Wasser
-im Amazonenst-com, während es im Orinoco merklich steigt.
+im Amazonenstrom, während es im Orinoco merklich steigt.
 In einer sehr scharfsinnigen Erörterung über den Ursprung
-des Mo Eongo hat man die Physiker bereits auf die Modi-
-sicationen aufmerksam gemacht, welche das periodische Steigen
+des Rio Congo hat man die Physiker bereits auf die Modificationen
+aufmerksam gemacht, welche das periodische Steigen
 im Laufe eines Flusses erleiden muß, bei dem Quellen und
-Mündung nicht auf derselben Seite der Aequinoctiallinie lie-
-gen. Bei den hydraulischen Systemen des Orinoco und des
-Amazonenstromes verwickeln sich die ·Umstände in noch auf-
-sallenderer Weise. Sie sind durch den Nio Negro und den
+Mündung nicht auf derselben Seite der Aequinoctiallinie liegen.
+Bei den hydraulischen Systemen des Orinoco und des
+Amazonenstromes verwickeln sich die Umstände in noch 
+auffallenderer Weise. Sie sind durch den Rio Negro und den
 Cassiquiare, einen Arm des Orinoco, verbunden, und diese
-Verbindung bildet zwischen zwei»großen Flußbecken eine schifs-
-bare Linie, über welche der Aequator läuft. Der Amazonen-
-strom hält nach Angaben, die mir an den Ufern desselben
+Verbindung bildet zwischen zwei großen Flußbecken eine schiffbare
+Linie, über welche der Aequator läuft. Der Amazonenstrom
+hält nach Angaben, die mir an den Ufern desselben
 gemacht worden, die Epochen des Steigens und Fallens lange
-nicht so regelmäßig·ein, als der Orinoco; indessen« fängt er
+nicht so regelmäßig ein, als der Orinoco; indessen fängt er
 meist im December an zu steigen und erreicht sein Maximum
-im März. Mit dem Mai keins er wieder und im Juki ·uad
+im März. Mit dem Mai fällt er wieder und im Juli und
 August, also zur Zeit, wo der untere Orinoco das Land weit
-und breit überschwemmt, ist sein Wasser-stand im Minimum.
-Da in Folge der allgemeinen Bodenbildung kein südamerika-
-nischer Fluß von Süd nach Nord über den Aequator laufen
-kann, so äußern die 11eberschwemmungen des Orinoco Ein-
-fluß auf den Amazonenst·rom, durch die des letzteren dagegen
+und breit überschwemmt, ist sein Wasser stand im Minimum.
+Da in Folge der allgemeinen Bodenbildung kein südamerikanischer
+Fluß von Süd nach Nord über den Aequator laufen
+kann, so äußern die Ueberschwemmungen des Orinoco Einfluß
+auf den Amazonenstrom, durch die des letzteren dagegen
 erleiden die Oscillationen des Orinoco keine Störung in ihrem
 Gang. Aus diesen Verhältnissen ergibt sich, daß beim
-slmazonenstrom und dem Orinoco die concaven und die
-
-As) «
-convexen Spitzen der Curve, welcheder steigende und fallende
+Amazonenstrom und dem Orinoco die <b>concaven und die
+convexen Spitzen</b> der Curve, welche der steigende und fallende
 Wasserstand beschreibt, einander sehr regelmäßig entsprechen,
-da sie den sechsmonatlichen Unterschied bezeichnen, der-«dui«ch
+da sie den sechsmonatlichen Unterschied bezeichnen, der durch
 die Lage der Ströme in entgegengesetzten Hemisphären bedingt
 wird. Nur dauert es beim Orinoco nicht so lange, bis er
 zu steigen anfängt; er steigt merklich, sobald die Sonne über
 den Aequator gegangen ist; der Amazonenstrom dagegen
-wächst erst zwei Monate nach dem Aequinoctium· Bekanntlich
+wächst erst zwei Monate nach dem Aequinoctium. Bekanntlich
 tritt in den Wäldern nördlich von der Linie der Regen früher
 ein, als in den nicht so stark bewaldeten Niederungen der
 südlichen heißen Zone. Zu dieser örtlichen Ursache kommt
@@ -7580,10 +7567,11 @@ so spät steigt. Der Amazonenstrom erhält einen großen Theil
 seiner Gewässer von der Cordillere der Anden, wo, wie überall
 in den Gebirgen, die Jahreszeiten einen eigenthümlichen, dem
 der Niederungen meist entgegengesetzten Typus haben.
-Das Gesetz des Steigens und FalIens des Orinoco ist
+
+Das Gesetz des Steigens und Fallens des Orinoco ist
 in Bezug auf das räumliche Moment oder die Größe der
-Schwankungen schwerer zu ermitteln als hinsichtlich des Zeit-
-lichen, des Eintretens der Maxima und Minima. Da meine
+Schwankungen schwerer zu ermitteln als hinsichtlich des 
+Zeitlichen, des Eintretens der Maxima und Minima. Da meine
 eigenen Messungen des Wasserstandes sehr unvollständig sind,
 theile ich Schätzungen, die sehr stark von einander abweichen,
 nur unter allem Vorbehalt mit. Die fremden Schiffer nehmen
@@ -7593,138 +7581,130 @@ sehr genaue Notizen gesammelt hat, bleibt bei 13 Faden
 stehen. Der Wasserstand wechselt natürlich nach der Breite des
 Betts und der Zahl der Nebenflüsse, die in den Hauptstamm
 des Stroms hereinkommen. Der Nil steigt in Oberegypten
-um 30 bis 35, bei Cairo um 25, an der Nordseite des
--
-·
-
--U!
-Delta um 4 Fuß. Bei Angostura scheint der Strom im
-Durchschnitt nicht über 24 oder 25 Fuß zu steigen. Es liegt
-hier mitten im Fluß eine« Insel, wo man den Wasserstand
-so ·bequem beobachten könnte, wie am Nilmesser (Megyas) an
+um 30&nbsp;bis 35, bei Cairo um 25, an der Nordseite des
+Delta um 4&nbsp;Fuß. Bei Angostura scheint der Strom im
+Durchschnitt nicht über 24 oder 25&nbsp;Fuß zu steigen. Es liegt
+hier mitten im Fluß eine Insel, wo man den Wasserstand
+so bequem beobachten könnte, wie am Nilmesser (Megyas) an
 der Spitze der Insel Rudah. Ein ausgezeichneter Gelehrter,
-der· sich in neuester Zeit am Orinoeo aufgehalten hat, ,8ea,
+der sich in neuester Zeit am Orinoco aufgehalten hat, Zea,
 wird meine Beobachtungen über einen so wichtigen Punkt
-ergänzen: Das Volk glaubt, alle 25 Jahre steige der Ori-
-noco um drei Fuß höher als sonst; auf diesen Cyclu»s ist
+ergänzen: Das Volk glaubt, alle 25 Jahre steige der Orinoco
+um drei Fuß höher als sonst; auf diesen Cyclus ist
 man aber keineswegs durch genaue Messungen gekommen.
-Aus den Zeugnissen des Alter-thums geht hervor, daß die
-Riveauschjvankungen des Nil nach Höhe und Dauer seit Jahr-
-tausenden sich gleich geblieben sind. Es ist dies; ein sehr be
-achtenswerther Beweis, daß der mittlere Feuchtigkeits- und
+Aus den Zeugnissen des Alterthums geht hervor, daß die
+Niveauschwankungen des Nil nach Höhe und Dauer seit Jahrtausenden
+sich gleich geblieben sind. Es ist dieß ein sehr beachtenswerther
+Beweis, daß der mittlere Feuchtigkeits- und
 Wärmezustand im weiten Nilbecken sich nicht verändert. Wird
-diese Stetigkeit der physikalischen Erscheinungen, dieses Gleich-
-gewicht der Elemente sich auch in der neuen Welt erhalten,
+diese Stetigkeit der physikalischen Erscheinungen, dieses 
+Gleichgewicht der Elemente sich auch in der neuen Welt erhalten,
 wenn einmal die Cultur ein paar hundert Jahre alt ist? Ich
 denke, man kann die Frage bejahen, denn alles, was die
 Gesammtkraft des Menschen vermag, kann auf die allgemeinen
 Ursachen, von denen das Klima Guyanas abhängt, keinen
 Einfluß äußern.
-Nach der Baromet"erhöhe von San Fernando de Apure
+
+Nach der Barometerhöhe von San Fernando de Apure
 finde ich, daß der Fall des Apure und untern Orinoco von
-dieser Stadt bis zur Boca de Navios 3IJ, .8oll auf die See-
-1neile von 930 Toisen beträgt« Man könnte sich wundern,
+dieser Stadt bis zur Boca de Navios 3½&nbsp;Zoll auf die Seemeile
+von 930&nbsp;Toisen beträgt.^[Der Apure für sich
+hat einen Fall von 13 Zoll auf die Seemeile.
+S. Bd. III. Seite 49.] Man könnte sich wundern,
 daß bei einem solchen kaum merklichen Fall die Strömung
 so stark ist; ich erinnere aber bei dieser Gelegenheit daran,
-, « Der 2lpure für sich hat einen Fall von 13 Zoll auf die Seemeile.
-C. Bd. III·-Seite 49. «
--Odrisl)-sitt, Reise. W. IS
-
--
-M.
 daß nach Messungen, die von Hastings angeordnet worden,
-der Ganges auf einer Strecke von 60 Seemeilen (die Krüm-
-mungen eingerechnet) auch nur 4 Zoll aus die Meile fällt
+der Ganges auf einer Strecke von 60&nbsp;Seemeilen (die Krümmungen
+eingerechnet) auch nur 4&nbsp;Zoll auf die Meile fällt
 und daß die mittlere Geschwindigkeit dieses Stroms in der
-tkockem-» Jahreszeit :-I, is: de: Regen»-it e bis. s 
-in der Stunde beträgt. Die Stärke der St·rbimmg" hängt also,
+trockenen Jahreszeit 3, in der Regenzeit 6 bis 8 Seemeilen 
+in der Stunde beträgt. Die Stärke der Strömung hängt also,
 beim Ganges wie beim Orinoco, nicht sowohl vom Gefälle
-des Bettes ab, als von der starken Anhäufung des W-assers
-im obern Stromlauf in Folge der starken Regetmiederschläge
-und der vielen Zuslüsse. Schon seit 250 Jahren sitzen eure-
-päische Ansiedler an den Mündungen des Orinoco,.und in
+des Bettes ab, als von der starken Anhäufung des Wassers
+im obern Stromlauf in Folge der starken Regenniederschläge
+und der vielen Zuflüsse. Schon seit 250 Jahren sitzen europäische
+Ansiedler an den Mündungen des Orinoco, und in
 dieser langen Zeit haben sich, nach einer von Geschlecht zu
-Geschlecht fortgepslanzten Ueberlieserung, die periodischen Os-
-cillationen des Stroms (der Zeitpunkt, wo er zu steigen an-
-fängt und der höchste Wasserstand) sich nie um mehr als
+Geschlecht fortgepflanzten Ueberlieferung, die periodischen 
+Oscillationen des Stroms (der Zeitpunkt, wo er zu steigen anfängt
+und der höchste Wasserstand) sich nie um mehr als
 12 bis 15 Tage verzögert.
+
 Wenn Fahrzeuge mit großem Tiefgang im Januar und
 Februar mit dem Seewind und der Fluth nach Angostura
-hinaufgehen, so laufen sie Gefahr, auf dem Schlamm aufzu-
-fahren. Die Wasserstraße ändert sich häusig nach Breite und
+hinaufgehen, so laufen sie Gefahr, auf dem Schlamm aufzufahren.
+Die Wasserstraße ändert sich häufig nach Breite und
 Richtung; bis jetzt aber bezeichnet noch nirgends eine Bake
 die Anschwemmungen, die sich überall im Fluß bilden, wo
 das Wasser seine ursprüngliche Geschwindigkeit verloren hat.
 Südlich vom Cap Barima besteht sowohl über den Fluß
-dieses Namens als über den Nin Moroca und mehrere Este-
-kes (aesrua1·ia) eine Verbindung mit der englischen Colonie
+dieses Namens als über den Rio Moroca und mehrere <i>Esteres (aestuaria)</i> eine Verbindung mit der englischen Colonie
 am Essequebo. Man kann mit kleinen Fahrzeugen bis zum
 Rio Poumaron, an dem die alten Niederlassungen Zeland und
-Middelburg liegen, ins Land hinein kommen. Diese Verbin-
-dung hatte früher für die Regierung in Caracas nur darum
+Middelburg liegen, ins Land hinein kommen. Diese Verbindung
+hatte früher für die Regierung in Caracas nur darum
+einige Wichtigkeit, weil dadurch dem Schleichhandel Vorschub
+geleistet wurde; seit aber Berbice, Demerary und Essequebo
+einem mächtigeren Nachbar in die Hände gefallen sind, betrachten
+die Hispano-Amerikaner dieselbe aus dem Gesichtspunkt
+der Sicherheit der Grenze. Flüsse, die der Küste parallel
+laufen und nur 5 bis 6 Seemeilen davon entfernt bleiben,
+sind dem Uferstrich zwischen dem Orinoco und dem Amazonenstrom
+eigenthümlich.
 
-I-II
- is-»«-k-
-LtG··· I1k;5ei1slsVsI«!X - D«Ut1’swIIdCIsIIslIo
-esse- sättige- R-tl·skat in die Hände seiest- find. be-
-im-;T die Hü"p-us-T-five: dieselbe ask des Eiss-
-pItktdstSi«bsk-5td«Ct!Ids- FOR, cis is-ktüIe muss!
-lass-nd tIr5lsi56Ss-teilend-wen auftritt dla"b4.I,
-sind  pvische-d-Vri1cowundtQ-III-sonst«
-stcoIc 
-ZehnIIieileuootnEapBatimatdeilt si(bh1sgro(7r
-Bett des Oriuoco zum erstenmal in zwei 2000 S.'·oisen breite
-Arme; dieselben sind unter den indianischen Namen saus-
-pana und J-ataca bekannt. Der erstere, ndrdlichere, sieht
-westwärts von den Inseln Cangrejos und Varro mit den
-does- (-diese Laut-an, Nnina und Mariufas in Verbindung.
-Die Insel Backe veksck,-windet beim HochwTfsck, in .-is» kam
-nicht zu befestigen. Das südliche Ufer des drein J«inataea
-ist von einem Labyrinth kleiner Wasserrinnen z"erschnitten, in
-welche sich der Rio S«mataca und der Rio Aquin ergießen.
-Auf den fruchtbaren Savanen zwischen dem Jmataca und dem
-Cuyuni erhebt sich eine lange Reihe Granithügel, Awslänfcr
-der C-ordillere der Parime, die südlich von Angoftnra den
-Horizont-begrenzt, die vielberufenen Katarakten des Mo Ca-
-rony bildet und dem Orinoco beim Fort Vieja (-·iuayana wie
-ein vorgeschobenes Cap nahe rückt. Die volkreichen Missioncn
-der Caraiben und G«uayanos unter der Obhut der Malen«
-schen Kapuziner liegen den Quellen des Jmataca und des
-·Aquire zu. Am weitesten gegen Ost liegen die Missionen
-Miamu-, Cumamu und Palmar auf einem bergigten Land
-strich, der sich gegen Tupuquen, Santa Maria und Villa de
-Upata hinzieht. Geht man den Nin Aauire hinauf und über
-
-A-I
-die Weiden gegen Süd, so« kommt man zur Mission Bele1n
-de Tumeremo und von da an den Zusammensluß des Cu-
-rumu mit dem Rio Cuyuni, wo früher der spanische Posten
-oder dsgl-aoamento de (Inyuai lag. Ich mache diese ein-
-zelnen topographischen Angaben, weil der Mo Euyuni oder
-Cuduvini auf eine Strecke von 2IX, bis Z Ltlngegraden dem
-Orinoco parallel von Ost nach West läuft, und eine vortreff-
-liche natürliche Grenze zwischen dem Gebiet»von Caracas und
+Zehn Meilen von Cap Barima theilt sich das große
+Bett des Orinoco zum erstenmal in zwei 2000 Toisen breite
+Arme; dieselben sind unter den indianischen Namen Zacupana
+und Imataca bekannt. Der erstere, nördlichere, steht
+westwärts von den Inseln Cangrejos und Burro mit den
+<i>bocas chicas</i> Lauran, Nuina und Mariusas in Verbindung.
+Die Insel Burro verschwindet beim Hochwasser, ist also leider
+nicht zu befestigen. Das südliche Ufer des <i>brazo</i> Imataca
+ist von einem Labyrinth kleiner Wasserrinnen zerschnitten, in
+welche sich der Rio Imataca und der Rio Aquire ergießen.
+Auf den fruchtbaren Savanen zwischen dem Imataca und dem
+Cuyuni erhebt sich eine lange Reihe Granithügel, Ausläufer
+der Cordillere der Parime, die südlich von Angostura den
+Horizont begrenzt, die vielberufenen Katarakten des Rio
+Carony bildet und dem Orinoco beim Fort Vieja Guayana wie
+ein vorgeschobenes Cap nahe rückt. Die volkreichen Missionen
+der Caraiben und Guayanos unter der Obhut der catalonischen
+Kapuziner liegen den Quellen des Imataca und des
+Aquire zu. Am weitesten gegen Ost liegen die Missionen
+Miamu, Cumamu und Palmar auf einem bergigten Landstrich,
+der sich gegen Tupuquen, Santa Maria und Villa de
+Upata hinzieht. Geht man den Rio Aquire hinauf und über
+die Weiden gegen Süd, so kommt man zur Mission Belem
+de Tumeremo und von da an den Zusammenfluß des Curumu
+mit dem Rio Cuyuni, wo früher der spanische Posten
+oder <i>destacamento de Cuyuni</>i lag. Ich mache diese einzelnen
+topographischen Angaben, weil der Rio Cuyuni oder
+Cuduvini auf eine Strecke von 2½ bis 3 Längegraden dem
+Orinoco parallel von Ost nach West läuft, und eine vortreffliche
+natürliche Grenze zwischen dem Gebiet von Caracas und
 englisch Guyana abgibt.
-Die beiden Arme des Orinoco, der Zacupana und Ima-
-taca, bleiben 14 Meilen weit getrennt; weiter oben sindet
-man -die Gewässer des Stroms in Einem sehr breiten Bett
-beisammen. Dieses Stromst«ück ist gegen 8 Meilen lang; an
+
+Die beiden Arme des Orinoco, der Zacupana und Imataca,
+bleiben 14 Meilen weit getrennt; weiter oben findet
+man die Gewässer des Stroms in Einem sehr breiten Bett
+beisammen. Dieses Stromstück ist gegen 8 Meilen lang; an
 seinem westlichen Ende erscheint eine zweite Gabelung, und
-da die Spitze vesDe1t« im uskdIiche:: Am: des gegebenen
-Flusses liegt, so ist dieser Theil des Orinoco für die militä-
-rische Vertheidigung des Landes von großer Bedeutung. Alle
-Canäle, die den hoc-as edit-as zulaufen, entspringen am
+da die Spitze des Deltas im nördlichen Arm des gegebenen
+Flusses liegt, so ist dieser Theil des Orinoco für die militärische
+Vertheidigung des Landes von großer Bedeutung. Alle
+Canäle, die den <i>bocas chicas</i> zulaufen, entspringen am
 selben Punkt aus dem Stamme des Orinoco. Der Arm
-(Cafio Manamo), der beim Dorfe San Rafael abgeht, ver-
-zweigt sich erst nach einem Lauf von Z bis 4 Meilen, und
+(Caño Manamo), der beim Dorfe San Rafael abgeht, verzweigt
+sich erst nach einem Lauf von 3 bis 4 Meilen, und
 ein Werk, das man oberhalb der Insel Chaguanes anlegte,
 würde Angostura gegen einen Feind decken, der durch eine
-der hockte (-di(-as eindringen wollte. Zu meiner Zeit lagen
-die Kanonierschalnppen östlich von San Rafael, am nörd-
-lichen Ufer des Orinoco. Diesen Punkt müssen die Fahrzeuge
+der <i>bocas chicas</i> eindringen wollte. Zu meiner Zeit lagen
+die Kanonierschaluppen östlich von San Rafael, am nördlichen
+Ufer des Orinoco. Diesen Punkt müssen die Fahrzeuge
 in Sicht bekommen, die durch die nördliche Wasserstraße bei
-San Rafael, welche die breiteste, aber seichteste ist, nach An-
-gostura hinaufsegeln.
+San Rafael, welche die breiteste, aber seichteste ist, nach 
+Angostura hinaufsegeln.
+
 Sechs Meilen oberhalb des Punktes, wo der Orinoco
 -
 

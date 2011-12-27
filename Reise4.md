@@ -7706,998 +7706,872 @@ San Rafael, welche die breiteste, aber seichteste ist, nach
 Angostura hinaufsegeln.
 
 Sechs Meilen oberhalb des Punktes, wo der Orinoco
--
-
-III-ix.tI:::-«-to:-k:.7sü---ösgäI: 
-CI--III«-I It·-I·:-Jst III-.s:u:·g-I- I?-ask-.-’-. XI-I
-is THE 3I:it5IIKk«t II;-·-z: I:-.1::e Z: tu-st-
-ssILtl"HIi-ie«i:.·"ixsEanntåtEc:k.:e:äåt-gepr-
--0T-i-!-ik-·-ki-L T-·E.«-:-::is:i;«-.yz-sm,.«-
-ätt di Lake L -IF Ist :--i--c· de L-I-R-i-r· . ·
-aIieiIII,·Jt:I:1IIceI:ssT· · :Ik!cLIsE-2tlu:-II
-ei-«--·-J I-I L-ex-«-I-c«-«-.-I ·« i-its--I:-Einst
-sts; tot Stier II,·-lex E-·.-, IT- is II- O!-iIoco
-Isisdes, bildet I-itlLe sc«-«-IS sit Eise- Ieicht ang-
-sl«eTekt sitt. Dissens, I:-I der II«-es H-set schönen
-Ländern I.-ich: sich-It ji ist seine eI·zi7et3«;,·1e Staatskunst
-andieieItLiIheslsei Viej.1SI-pas« et(-eben. Kein Strom
-1tachdess1nazotetfttI.IItkastnansden8ildekn, duochdie
-et läuft- is pt«II)tIgt5 Stils!-T-Ists(-Eli lief-L DE-is Höhe!
-an.SdengkoßeuJasciliendetLaukineen,derGuttiferen,der
-Rntat-sen und der baumartigen Schotengewåchse bieten nach
-Dichxigk-ix, spqkifcschkk Schwere und mehr oder weniger hat-
-ziget Beschccüenheit alle nur wüitsche-werthen Abftuf1mgssI—
-Was im Lande allein fehlt, das ist ein leichtes, elastischcs
-Mastholz mit parallelen Fasern, wie die Nat-ell»)ölzer der ge-
-mäßigten Landstriche und der hohen Gebirge unter den Tropen
+einen Zweig an die <i>bocas chicas</i> abgibt, liegt das alte Fort
+(<i>los castillos de la Vieja</i> oder <i>Antigua Guayana</i>), das
+im sechzehnten Jahrhundert zuerst angelegt wurde. An diesem
+Punkt liegen viele felsigte Eilande im Strom, der hier gegen
+650 Toisen breit seyn soll. Die Stadt ist fast ganz zerstört,
+aber die Werke stehen noch und verdienen alle Aufmerksamkeit
+von Seiten der Regierung von Terra Firma. In der Batterie
+auf einem Hügel nordwestwärts von der alten Stadt hat man
+eine prachtvolle Aussicht. Bei Hochwasser ist die alte Stadt
+ganz von Wasser umgeben. Lachen, die in den Orinoco
+münden, bilden natürliche Bassins für Schiffe, welche auszubessern
+sind. Hoffentlich, wenn der Frieden diesen schönen
+Ländern wieder geschenkt ist und keine engherzige Staatskunst
+mehr den Fortschritt der Industrie hemmt, werden sich Werften
+an diesen Lachen bei Vieja Guayana erheben. Kein Strom
+nach dem Amazonenstrom kann aus den Wäldern, durch die
+er läuft, so prächtiges Schiffsbauholz liefern. Diese Hölzer
+aus den großen Familien der Laurineen, der Guttiferen, der
+Rutaceen und der baumartigen Schotengewächse bieten nach
+Dichtigkeit, specifischer Schwere und mehr oder weniger harziger
+Beschaffenheit alle nur wünschenswerthen Abstufungen.
+Was im Lande allein fehlt, das ist ein leichtes, elastisches
+Mastholz mit parallelen Fasern, wie die Nadelhölzer der gemäßigten
+Landstriche und der hohen Gebirge unter den Tropen
 es liefern.
-Jst man an den Werken von Vieja Guayana vorbei,
-so wird der Orinoco wieder breiter. Hinsichtlich do-s Animus
-des Landes zeigen beide Ufer einen "anffallenden Cont1«ast.
-Gegen Nord sieht man nur den öden Strich der Provinz
-Cmnana, die unbewohnten Steppen (l«1anos), die sich bis
 
-A-C
+Ist man an den Werken von Vieja Guayana vorbei,
+so wird der Orinoco wieder breiter. Hinsichtlich des Anbaus
+des Landes zeigen beide Ufer einen auffallenden Contrast.
+Gegen Nord sieht man nur den öden Strich der Provinz
+Cumana, die unbewohnten Steppen (<i>Llanos</i>), die sich bis
 jenseits der Quellen des Rio Maine, dem Plateau oder der
-Mesa von Guanipa zu, erstrecken. Südmärts steht man drei
-v.olkreiche Dörfer, die zu den "Missionen am Earony gehören,
-San Miguel de Uriala, San Felix und San .Joaqui"u· Les-
-teres Dorf, am Earony unmittelbar unterhalb des« großen
-Katarakts gelegen, gilt für den StapelplaH der eatalonischen
-Missionen. Fährt man weiter gegen West, so hat der Steuer-
-mann zwischen der Mündung des Earony und Angostur"a die
-Klippen Guarampo, die Untiefe des Mamo und die Pjedc-a
-(ie1 Rossi-io zu vermeiden. Ich habe nach dem umfan»greichen
+Mesa von Guanipa zu, erstrecken. Südwärts sieht man drei
+volkreiche Dörfer, die zu den Missionen am Carony gehören,
+San Miguel de Uriala, San Felix und San Joaquin. Letzteres
+Dorf, am Carony unmittelbar unterhalb des großen
+Katarakts gelegen, gilt für den Stapelplatz der catalonischen
+Missionen. Fährt man weiter gegen West, so hat der Steuermann
+zwischen der Mündung des Carony und Angostura die
+Klippen Guarampo, die Untiefe des Mamo und die <i>Piedra
+del Rosario</i> zu vermeiden. Ich habe nach dem umfangreichen
 Material, das ich mitgebracht, und nach den astronomischen
 Untersuchungen, deren Hauptergebnisse ich oben mitgetheilt,
 eine Karte des Landes zwischen dem Delta des Orinoco, dem
-Earony und dem Euyuni entworfen. Es ist dies; der Theil
+Carony und dem Cuyuni entworfen. Es ist dieß der Theil
 von Guyana, der wegen der Nähe der Küste eines Tags für
-europäische Ansiedler die meifte Anziehungskraft haben wird.
-J-n ihrem gegenwärtigen Zustande steht die ganze Be-
-völkerung dieser großen Provinz, mit Ausnahme einiger spa-
-nischer Kirchfpiele (Pueb1os ·y Villers de Espano1es), unter
-der Regierung zweier Mönchsorden. Schätzt man die Zahl
-der Einwohner von Guyana, die nicht in wilder Unabhängig-
-keit leben, auf 35,000, so leben etwa 24,000 in den Mis-
-fionen und find dem unmittelbaren Einfluß des weltlichen
-Arms so gut wie entzogen. Zur Zeit meiner Reise hatte das
-Gebiet der Franciskaner von der Congregation der Obser-
-vanten 7300 Einwohner, das der 0apucl1inos out-a1o«nos
-17,000; ein auffallendes Miß"verhältniß, wenn man bedenkt,
-wie klein letzteres Gebiet ist gegenüber den ungeheuren Ufer-
-strecken am obern Orinoco, Atabapo, Cassiquiare und Rio
-Negro. Aus diesen Angaben geht hervor, daß gegen zwei
+europäische Ansiedler die meiste Anziehungskraft haben wird.
 
-247
+In ihrem gegenwärtigen Zustande steht die ganze Bevölkerung
+dieser großen Provinz, mit Ausnahme einiger spanischer
+Kirchspiele (<i>Pueblos y villas de Espanoles</i>), unter
+der Regierung zweier Mönchsorden. Schätzt man die Zahl
+der Einwohner von Guyana, die nicht in wilder Unabhängigkeit
+leben, auf 35,000, so leben etwa 24,000 in den Missionen
+und sind dem unmittelbaren Einfluß des weltlichen
+Arms so gut wie entzogen. Zur Zeit meiner Reise hatte das
+Gebiet der Franciskaner von der Congregation der Observanten
+7300 Einwohner, das der <i>Capuchinos catalanes</i>
+17,000; ein auffallendes Mißverhältniß, wenn man bedenkt,
+wie klein letzteres Gebiet ist gegenüber den ungeheuren 
+Uferstrecken am obern Orinoco, Atabapo, Cassiquiare und Rio
+Negro. Aus diesen Angaben geht hervor, daß gegen zwei
 Drittheile der Bevölkerung einer Provinz von 16,800 Meilen
-Flächeninhalt zwischen dem Rio Jmataca und der Stadt Santo
+Flächeninhalt zwischen dem Rio Imataca und der Stadt Santo
 Thome de Angostura auf einem 55 Meilen langen und 30
 Meilen breiten Strich zusammengedrängt sind. Diese beiden
-mönchisehen Regierungen sind den Weißen gleich unzugänglich
-und bilden einen status in sto.tu. Ich habe bisher nach meinen
+mönchischen Regierungen sind den Weißen gleich unzugänglich
+und bilden einen <i>status in statu</i>.
+Ich habe bisher nach meinen
 eigenen Beobachtungen die der Observanten beschrieben, und
 es bleibt mir jetzt noch übrig mitzutheilen, was ich über das
-andere Negiment, das der catalonischen Kapuziner, in Er-
-fahrung gebracht. Verderbliche bürgerliche Zwiste und epide-
-mische Fieber haben in den letzten Jahren den Wohlstand der
-Missionen am Caronh, nachdem er lange im Zunehmen ge-
-wesen, heruntergebracht; aber .trotz dieser Verluste ist der
-Landstrich, den wir besuchen wollen, noch immer national-
-ökonomisch sehr interessant. . -
-Die Misfionen der catalonischen Kapuziner hatten im
-Jahr 1804 zum wenigsten 60,000 Stücke Vieh auf den Sa-
-vanen, die sich vom östlichen Ufer des Carony und Pgragua
-bis zu den Ufern des Jmataca, Curumu und Cuyuni er-
-strecken; sie grenzen gegen Südost an das englische Guyana
-oder die Colonie Gssequebo, gegen Süd, an den öden Ufern
-des Paragüa und Paraguamusi hinauf und über die Cor-
-dillere von Pacaraimo, laufen sie bis zu den portugiesischen
+andere Regiment, das der catalonischen Kapuziner, in Erfahrung
+gebracht. Verderbliche bürgerliche Zwiste und epidemische
+Fieber haben in den letzten Jahren den Wohlstand der
+Missionen am Carony, nachdem er lange im Zunehmen gewesen,
+heruntergebracht; aber trotz dieser Verluste ist der
+Landstrich, den wir besuchen wollen, noch immer nationalökonomisch
+sehr interessant.
+
+Die Missionen der catalonischen Kapuziner hatten im
+Jahr 1804 zum wenigsten 60,000 Stücke Vieh auf den Savanen,
+die sich vom östlichen Ufer des Carony und Paragua
+bis zu den Ufern des Imataca, Curumu und Cuyuni erstrecken;
+sie grenzen gegen Südost an das englische Guyana
+oder die Colonie Essequebo, gegen Süd, an den öden Ufern
+des Paragua und Paraguamusi hinauf und über die Cordillere
+von Pacaraimo, laufen sie bis zu den portugiesischen
 Niederlassungen am Rio Branco. Dieser ganze Landstrich ist
 offen, voll schöner Savanen, ganz anders als das Land,
-über das wir am obern Orinoco gekommen sind. Undurch-
-dringlich werden die Wälder erst dem Süden zu, gegen Nord
+über das wir am obern Orinoco gekommen sind. Undurchdringlich
+werden die Wälder erst dem Süden zu, gegen Nord
 sind Wiesgründe, von bewaldeten Hügeln durchschnitten. Die
-malerischsten Landschaften sind bei den Fällen des Caronh
-»und in der 250 Toisen hohen Bergkette zwischen den Neben-
-
-As «
-flüssen des Or-inoco und denen des Cuyuni. Hier liegen
+malerischsten Landschaften sind bei den Fällen des Carony
+und in der 250 Toisen hohen Bergkette zwischen den Neben-
+flüssen des Orinoco und denen des Cuyuni. Hier liegen
 Villa de Upata, der Hauptort der Missionen, Santa Maria
 und Cupapui. Auf kleinen Hochebenen herrscht ein gesundes,
-gemäßigtes Klima; Cacao, Reis, Baumwolle, .Indigo und
-Zucker wachsen überall in Fülle, wo der unberuhkte, mit
-dicker Grasnarbe bedeckte Boden beackert wird. ·Die- ersten
+gemäßigtes Klima; Cacao, Reis, Baumwolle, Indigo und
+Zucker wachsen überall in Fülle, wo der unberührte, mit
+dicker Grasnarbe bedeckte Boden beackert wird. Die ersten
 christlichen Niederlassungen reichen, glaube ich, nicht über das
-Jahr 1721 hinauf. «Die Elemente der gegenwärtigen Bevöl-
-kerung sind drei indianische Völkerschaften, die Guayanos, die
-Caraiben und die Guaicas. Letztere sind ein Gebirgs3volk
-und lange nicht von so kleinem Wachse, wie die Guaicas,
-die wir in Esmeralda getroffen! Sie sind schwer an die
+Jahr 1721 hinauf. Die Elemente der gegenwärtigen Bevölkerung
+sind drei indianische Völkerschaften, die Guayanos, die
+Caraiben und die Guaicas. Letztere sind ein Gebirgsvolk
+und lange nicht von so kleinem Wuchse, wie die Guaicas,
+die wir in Esmeralda getroffen^[S. Seite 113.]
+Sie sind schwer an die
 Scholle zu fesseln und die drei jüngsten Missionen, in denen
-sie beisammen lebten, Cum, Curucuy und Arechica, find be
-reits wieder eingegangen. Von den Guayanos erhielt im sech-
-zehnten Jahrhundert diese ganze weite Provinz ihren Namen;
-sie sind nicht so intelligent, aber sanstmüthiger, und leichter,
+sie beisammen lebten, Cura, Curucuy und Arechica, find bereits
+wieder eingegangen. Von den Guayanos erhielt im sechzehnten
+Jahrhundert diese ganze weite Provinz ihren Namen;
+sie sind nicht so intelligent, aber sanftmüthiger, und leichter,
 wenn nicht zu civilisiren, doch zu bändigen, als die Caraiben.
-Jhre Sprache scheint zum großen Stamm der caraibischen
-und tamanakischen Sprachen zu gehören. Sie ist mit den-
-selben in den Wurzeln und grammatischen Formen verwandt,
-wie unter sich Sanscrit, Persisch, Griechiseh und Deutsch. Bei
-etwas, das seinem Wesen nach unbestimmt ist, lassen fiel)
+Ihre Sprache scheint zum großen Stamm der caraibischen
+und tamanakischen Sprachen zu gehören. Sie ist mit denselben
+in den Wurzeln und grammatischen Formen verwandt,
+wie unter sich Sanscrit, Persisch, Griechisch und Deutsch. Bei
+etwas, das seinem Wesen nach unbestimmt ist, lassen sich
 nicht leicht feste Formen aufstellen, und man verständigt sich
 sehr schwer über die Unterschiede zwischen Dialekt, abgeleiteter
-Sprache und Stammsprache. Durch die Jesuiten in Paraguav
+Sprache und Stammsprache. Durch die Jesuiten in Paraguay
 kennen wir in der südlichen Halbkugel eine andere Horde
 Guayanos, die in den dichten Wäldern am Parana leben.
-· S. Bd. IV. Seite 113.
-
--
-249
--
 Obgleich sich nicht in Abrede ziehen läßt, daß die Völker, die
 nördlich und südlich vom Amazonenstrom hausen, durch weite
-Wanderzitge in gegenseitige Verbindung getreten sind, so
-möchte ich doch nicht entscheiden, ob jene Guavanos am Pa-
-rana und Uragay mit denen am Caronh mehr gemein haben,
-als einen gleichlautenden Namen, was auf einem Zufall be
-cuhen kann. .
+Wanderzüge in gegenseitige Verbindung getreten sind, so
+möchte ich doch nicht entscheiden, ob jene Guayanos am Parana
+und Uragay mit denen am Carony mehr gemein haben,
+als einen gleichlautenden Namen, was auf einem Zufall beruhen
+kann.
+
 Die bedeutendsten christlichen Niederlassungen liegen jetzt
-zwischen den Bergen bei Santa Maria, der Mission Sau
-Miguel und dem östlichen Ufer des Carony, von San Buena-
-ventura bis Gurt und dem Stapelplatz San Joaquin, auf
+zwischen den Bergen bei Santa Maria, der Mission San
+Miguel und dem östlichen Ufer des Carony, von San Buenaventura
+bis Guri und dem Stapelplatz San Joaquin, auf
 einem Landstrich von nur 460 Quadratmeilen beisammen.
 Gegen Ost und Süd sind die Savanen fast gar nicht bewohnt;
-dort liegen nur weit zerstreut die Missionen Belem, Tumu-
-remo, Tupuquen, Puedpa und Santa Clara. Es wäre zu
+dort liegen nur weit zerstreut die Missionen Belem, Tumuremo,
+Tupuquen, Puedpa und Santa Clara. Es wäre zu
 wünschen, daß der Boden vorzugsweise abwärts von den
-Flüssen» bebaut würde, wo das Terrain höher und die Luft
-gesunder ist. Der Rio Caronh, ein herrlich« klares, an Fischen
+Flüssen bebaut würde, wo das Terrain höher und die Luft
+gesunder ist. Der Rio Carony, ein herrlich klares, an Fischen
 armes Wasser, ist von Villa de Barceloneta an, die etwas
-über dem Einfluß- des Paragua liegt, bis zum Dorfe Guri
+über dem Einfluß des Paragua liegt, bis zum Dorfe Guri
 frei von Klippen. Weiter nordwärts schlängelt er sich zwischen
 zahllosen Eilanden und Felsen durch, und nur die kleinen
-Canoes der Caraiben wagen sich in diese Raudales oder Strom-
-schnellen des Caronh hinein. Zum Glück theilt sich der Fluß
+Canoes der Caraiben wagen sich in diese Raudales oder 
+Stromschnellen des Carony hinein. Zum Glück theilt sich der Fluß
 häufig in mehrere Arme, so daß man denjenigen wählen
 kann, der nach dem Wasserstand am wenigsten Wirbel und
-Klippen über dem Wasser hat. Der große Salto, vielbe-
-rufen wegen der malekischen Reize der Landschast, liegt etwas
-oberhalb des Dorfes Aguacagua oder Caronh, das zu meiner
-Zeit eine Bevölkerung von 700 Indianern hatte. DerWasserfall
-
-250
-soll 15—20 Fuß hoch seyn, aber die Schivelle läuft nicht-
-über das ganze mehr als 300 Fuß breite Flußbett. Wenn«
+Klippen über dem Wasser hat. Der große <b>Salto</b>, vielberufen
+wegen der malerischen Reize der Landschaft, liegt etwas
+oberhalb des Dorfes Aguacagua oder Carony, das zu meiner
+Zeit eine Bevölkerung von 700 Indianern hatte. Der Wasserfall
+soll 15—20 Fuß hoch seyn, aber die Schwelle läuft nicht
+über das ganze mehr als 300 Fuß breite Flußbett. Wenn
 sich einmal die Bevölkerung mehr gegen Ost ausbreitet, so
-kann sie die kleinen Flüsse Jmataca und Aquire benüpen, die
-ziemlich gefahrlos zu befahren find. Die Mönche, die gern
-einsam hausen, um sich der Aufsicht der weltlichen Macht sil-
-entziehen, wollten sich bis jetzt nicht am Orinoco ansiedeln«
-Indessen können die Missionen am Carony nur auf diesem
-Fluß oder auf dem Cuyuni und dem Essequebo ihre Produkte
-ausführen. Der letztere Weg ist noch nicht versucht worden,
-obgleich an einem der bedeutendsten Nebenfcüsse des Cuyuni,
-am Rio Juruario, bereits mehrere christliche Niederlassungen
-liegen. Dieser Nebenfluß zeigt bei Hochgewässer die merkwür-
-dige Erscheinung einer Gabelung; er steht dann über den
-Juraricuima und den Aurapa mit dem Rio Carony in Ver-
-bindung, so daß der Landstrich zwischen dem Orinoco, dek-
-See, dem Cuyuni und dem Carony zu einer wirklichen Insel·
-wird. Furchtbare Stromschnellen erschweren die Schiffsabrt
-auf dem obern Cupuni; man hat daher in der neuesten Zeit
-versucht, einen Weg in die Colonie Essequebo viel weidet
-gegen Südost zu bahnen, wobei man an den Cuyuni weit
-unterhalb der Mündung des Cucumu käme. -
-»Im diesem ganzen südlichen Landstrich ziehen Herbs-
-un·abhäIqiger Tarni!-en
-W NHIIMGp
-
-250 «
-soll 15—20 Fuß hoch sehn, aber die Schwelle läuft nicht«
-über das ganze mehr als 300 Fuß -breite Fluszßbett. Wenn
-sich einmal die Bevölkerung mehr gegen Oft ausbreitet, so
-kann sie die kleinen Flüsse Jmataca und Aquire benüpeu, die
+kann sie die kleinen Flüsse Imataca und Aquire benützen, die
 ziemlich gefahrlos zu befahren sind. Die Mönche, die gern
-einsam hausen, um sich der Aufsicht der welilichen Macht zu
-entziehen, wollten sich bis jetzt nicht am Orinoco- ansiedeln.-
-Indessen können die Missionen"am Caronh »nur auf -diesem
+einsam hausen, um sich der Aufsicht der weltlichen Macht zu
+entziehen, wollten sich bis jetzt nicht am Orinoco ansiedeln.
+Indessen können die Missionen am Carony nur auf diesem
 Fluß oder auf dem Cuyuni und dem Essequebo ihre Produkte
 ausführen. Der letztere Weg ist noch nicht versucht worden,
 obgleich an einem der bedeutendsten Nebenflüsse des Cuyuni,
 am Rio Juruario, bereits mehrere christliche Niederlassungen
-liegen. Dieser Nebenfluß zeigt bei Hochgewässer die merkwür-
-dige Erscheinung einer Gabelung; er steht dann über den
-Juraricuima und den Aurapa mit dem Rio Carony in Ber-
-bindung, so daß der Landstrich zwischen dem Orinoco, der
+liegen. Dieser Nebenfluß zeigt bei Hochgewässer die merkwürdige
+Erscheinung einer Gabelung; er steht dann über den
+Juraricuima und den Aurapa mit dem Rio Carony in Verbindung,
+so daß der Landstrich zwischen dem Orinoco, der
 See, dem Cuyuni und dem Carony zu einer wirklichen Insel
 wird. Furchtbare Stromschnellen erschweren die Schifffahrt
 auf dem obern Cuyuni; man hat daher in der neuesten Zeit
 versucht, einen Weg in die Colonie Essequebo viel weiter
 gegen Südost zu bahnen, wobei man an den Cuyuni weit
 unterhalb der Mündung des Cucumu käme.
-In diesem ganzen südlichen Landstrich ziehen Horden
-unabhängiger Caraiben umher, die schwachen Reste des krie-
-gerischen Volk-sstammes, der sich bis zu den Jahren 1733
-und 1735 den Missionären so furchtbar machte, um welche
-Zeit der ehrwürdige Bischof Gervais de Labrid,4 Canonicus
-des Metropolitancapitels zu Lyon, der Pater Lopez und
-« Von Benedikt x11l. zum Bischof für die vier Welttheile (obisp0
-part: Ins quer-o par-tes del mundo) geweiht.
 
-251 ·
+In diesem ganzen südlichen Landstrich ziehen Horden
+unabhängiger Caraiben umher, die schwachen Reste des kriegerischen
+Volksstammes, der sich bis zu den Jahren 1733
+und 1735 den Missionären so furchtbar machte, um welche
+Zeit der ehrwürdige Bischof Gervais de Labrid,^[Von
+Benedikt XIII. zum Bischof für die vier Welttheile (<i>obispo
+para los quatro partes del mundo</i>) geweiht.] Canonicus
+des Metropolitancapitels zu Lyon, der Pater Lopez und
 mehrere andere Geistliche von den Caraiben erschlagen wurden.
-Dergleichen UnfälIe, die früher ziemlich häufig vorka1nen, sind
-jetzt nicht mehr«zu befahren, weder in den Missionen am
+Dergleichen Unfälle, die früher ziemlich häufig vorkamen, sind
+jetzt nicht mehr zu befahren, weder in den Missionen am
 Carony noch in denen am Orinoco; aber die unabhängigen
 Caraiben sind wegen ihres Verkehrs mit den holländischen
 Colonisten am Essequebo für die Regierung von Guyana noch
 immer ein Gegenstand des Mißtrauens und des Hasses. Diese
-Stämme leisten dem Schleichhandel an den Küsten »und durch
-die Canäle oder Es!-eres zwischen dem Mo Bat-ima und dem
+Stämme leisten dem Schleichhandel an den Küsten und durch
+die Canäle oder <i>Esteres</i> zwischen dem Rio Barima und dem
 Rio Moroca Vorschub; sie treiben den Missionären das Vieh
-weg und verleiten die neubekehrten Indianer (die unter der
-Glocke lebzn), wieder in den Wald zu laufen. Die freien
-Horden haben überall den natürlichen Trieb, sich. den Fort-
-schritten -der Cultur und dem Vordringen der Weißen zu
+weg und verleiten die neubekehrten Indianer (die <b>unter der
+Glocke</b> leben), wieder in den Wald zu laufen. Die freien
+Horden haben überall den natürlichen Trieb, sich den Fort-
+schritten der Cultur und dem Vordringen der Weißen zu
 widersetzen. Die Caraiben und Aruacas verschaffen sich in
-Essequebo und Demerary Feuergetoehre, und als der Handel
-mit amerikanischen Sklaven (p0itos) in Blüthe stand, be-
-theiligten sich Abenteurer von holländischem Blut· an den
-Ginsällen an den Paragua, Erevato und Ventuario. Die
-Menschenjagd wurde an diesen Flüssen betrieben, wie
-wahrscheinlich noch" jetzt am Senegal und Gambia. In
-beiden Welten haben die Europäer dieselben Kunstgrisse ge-
-braucht, dieselben Unthaten begangen, um einen Handel
-zu treiben, der die Menschheit schändet.« Die Missionäre
-am Caron·y und Orinoco schreiben alles Ungemach, das sie
+Essequebo und Demerary Feuergewehre, und als der Handel
+mit amerikanischen Sklaven (<i>poitos</i>) in Blüthe stand, 
+betheiligten sich Abenteurer von holländischem Blut an den
+Einfällen an den Paragua, Erevato und Ventuario. Die
+<b>Menschenjagd</b> wurde an diesen Flüssen betrieben, wie
+wahrscheinlich noch jetzt am Senegal und Gambia. In
+beiden Welten haben die Europäer dieselben Kunstgriffe gebraucht,
+dieselben Unthaten begangen, um einen Handel
+zu treiben, der die Menschheit schändet. Die Missionäre
+am Carony und Orinoco schreiben alles Ungemach, das sie
 von den freien Caraiben zu erdulden haben, dem Hasse
 ihrer Nachbarn, der calvinistischen Prädicanten am Essequebo,
 zu. Ihre Schriften sind daher auch voll Klagen über die
-gest-a (1je.boli(-a de Gab-ins y de Lukan-o und gegen die
-siehet in holländisch Guyana, die sich zuweilen herausnehmen,
+<i>secta diabolica de Calvins y de Lutero</i> und gegen die
+Ketzer in holländisch Guyana, die sich zuweilen herausnehmen,
+das Missionswesen zu treiben und Keime der Gesittung unter
+den Wilden ausstreuen zu wollen.
 
-I M .
-das Missionswesen zu treiben und Keime der Gesitt·ung unter
-den Wilden ausstreuen zu wollen. « · ·
-Unter allen vegetabilischen Grzeugnissen dieses Landes ist
+Unter allen vegetabilischen Erzeugnissen dieses Landes ist
 durch die Betriebsamkeit der catalonischen Kapuziner der Baum,
-von dem die Gott(-x Angosturae kommt, fälschlich ,,China
-von Carony« genannt, am berühmtesten geworden« Wir haben
-ihn zuerst »als eine neue von »der Give-bona ganz verschi-
-dene Gattung der Familie der Meliaceen bekannt gemacht.
-Früher meinte man, dieses wirksame Arzneimittel aus Süd-·
-amerika komme von der Brut-ev« t’ekrugine-a, die in Abyssf-
-nien wächst, von der Magn0lia glatten. und der Mk-«gn0liq.
-P1umjeri. Während der schweren Krankheit meines Reise
-gefährten schickte Navago einen vertrauten Mann·in die Mis-
-sionen am Carony und ließ uns durch die Kapuziner in Upata
-blühende Zweige des Baumes verschaffen, den wir wünsch-
-ten beschreiben zu können. Wir bekamen sehr schöne Exem-
-plare, deren 18 Zoll lange Blätter einen sehr angenehmen
+von dem die <b>Cortex Angosturae</b> kommt, fälschlich »China
+von Carony« genannt, am berühmtesten geworden. Wir haben
+ihn zuerst als eine neue von der <i>Cinchona</i> ganz verschiedene
+Gattung der Familie der Meliaceen bekannt gemacht.
+Früher meinte man, dieses wirksame Arzneimittel aus Südamerika
+komme von der <i>Brucea ferruginea</i>, die in Abyssinien
+wächst, von der <i>Magnolia glauca</i> und der <i>Magnolia
+Plumieri</i>. Während der schweren Krankheit meines Reisegefährten
+schickte Navago einen vertrauten Mann in die Missionen
+am Carony und ließ uns durch die Kapuziner in Upata
+blühende Zweige des Baumes verschaffen, den wir wünschten
+beschreiben zu können. Wir bekamen sehr schöne Exemplare,
+deren 18 Zoll lange Blätter einen sehr angenehmen
 aromatischen Geruch verbreiteten. Wir sahen bald, daß der
-Cus p are (dieß ist der indianische Name der Cascarilla oder
-der Corteza de1Angostura) eine neue Gattung bildet; und
+<b>Cuspare</b> (dieß ist der indianische Name der Cascarilla oder
+der <i>Corteza del Angostura</i>) eine neue Gattung bildet; und
 bei Uebersendung von Orinocopflanzen an Willdenow ersuchte
 ich diesen, die Gattung nach Bonpland zu benennen. Der
-jetzt unter dem Namen Bonp1andia trit’oliato« bekannte
+jetzt unter dem Namen <i>Bonplandia trifoliata</i> bekannte
 Baum wächst 5 bis 6 Meilen vom östlichen Ufer des Carony
 am Fuß der Hügel, welche die Missionen Copapui, Upata
 und Alta Gracia einschließen. Die Caraiben gebrauchen einen
 Aufguß der Rinde des Cuspare als ein stärkendes Mittel.
 Bonpland hat denselben Baum westwärts von Cumana im
-Meerbusen Santa Fe entdeckt, und dort kann er für Neu-
-Andalusien ein Aussuhrartikel werden.
+Meerbusen Santa Fe entdeckt, und dort kann er für Neu-Andalusien
+ein Ausfuhrartikel werden.
 
-T-53
 Die catalonischen Mönche bereiten ein Extrakt aus der
-Gotte: Angostu1-ne, das sie in die Klöster ihrer Provinz
+<i>Cortex Angosturae</i>, das sie in die Klöster ihrer Provinz
 versenden und das im nördlichen Europa bekannter zu seyn
-verdiente.— Hoffentlich wird die gegen Fieber und Ruhr so
-wirksame Rinde der Vonplandia auch ferner angewendet, ob-
-gleich man unter dem Namen ,,-faIsche Angostura« eine andere
-Rinde eingeführt hat, die mit jener häufig verwechfelt wird.
-Diese ,,falsche Angostut«a« oder ,,Angosturo« pseudo-t’erru—
-given-«« kommt, wie man behauptet, von der B!-ne-ca anti-
-(iyseenteri(-a; sie wirkt sehr stark auf die Nerven, bringt
-heftige Ansälle von Starrkrampf hervor und enthält nach
+verdiente. Hoffentlich wird die gegen Fieber und Ruhr so
+wirksame Rinde der Bonplandia auch ferner angewendet, obgleich
+man unter dem Namen »falsche Angostura« eine andere
+Rinde eingeführt hat, die mit jener häufig verwechselt wird.
+Diese »falsche Angostuta« oder »Angostura pseudo-ferruginosa«
+kommt, wie man behauptet, von der <i>Brucea antidysenterica</i>;
+sie wirkt sehr stark auf die Nerven, bringt
+heftige Anfälle von Starrkrampf hervor und enthält nach
 Pelletiers und Caventous Versuchen ein eigenthümliches Alcali,
-das mit dem Morphium und dem ·Strychnin Aehnlichkeit hat»
-Der Baum, von dem die dichte (-or-te-X Ang0sturae kommt,
-ist nicht sehr häufig, und es erscheint daher als wünschcns-
-wer-th, daß man ihn anpflanzt. Die catalonischen Ordens-
-leute sind ganz dazu geeignet, diesen Culturzweig in Aufnahme
-zu bringen. Sie find hau-shälterischer, betriebsamer und rüh-
-riger als die andern Misfionäre. Bereits haben sie in einigen
-Dörfern Gerbereien und BaumwolIenspinnereien angelegt, und
-wenn sie fortan die Indianer der Früchte ihrer Arbeit ge-
-nießen lassen, so sinden sie sicher an der eingeborenen Bevöl-
-kerung kräftige Unterstützung. Da hier die Mönche auf kleinem
+das mit dem Morphium und dem Strychnin Aehnlichkeit hat.
+Der Baum, von dem die ächte <i>Cortex Angosturae</i> kommt,
+ist nicht sehr häufig, und es erscheint daher als wünschenswerth,
+daß man ihn anpflanzt. Die catalonischen Ordensleute
+sind ganz dazu geeignet, diesen Culturzweig in Aufnahme
+zu bringen. Sie sind haushälterischer, betriebsamer und rühriger
+als die andern Missionäre. Bereits haben sie in einigen
+Dörfern Gerbereien und Baumwollenspinnereien angelegt, und
+wenn sie fortan die Indianer der Früchte ihrer Arbeit genießen
+lassen, so finden sie sicher an der eingeborenen Bevölkerung
+kräftige Unterstützung. Da hier die Mönche auf kleinem
 Gebiet beisammen leben, fühlen sie ihre politische Bedeutung,
 und sie haben zu wiederholten malen der weltlichen Gewalt,
 wie der des Bischofs Widerstand geleistet. Die Statthalter
 in Angostura haben mit sehr ungleichem Erfolg mit ihnen
-gekampft, je nachdem das Ministerium in Madrid sich der
+gekämpft, je nachdem das Ministerium in Madrid sich der
 kirchlichen Hierarchie gefällig erzeigen wollte oder ihre Macht
-zu befchrönlen suchte. Im Jahr I768 ließ Don Manuel
-
-l
-«
-254- -
-Centurion den Missionc"cren über 20,000 Stücke Vieh weg-
-nehmen und sie unter die dürftigsten Einwohner vertheilen.
+zu beschränken suchte. Im Jahr 1768 ließ Don Manuel
+Centurion den Missionären über 20,000 Stücke Vieh wegnehmen
+und sie unter die dürftigsten Einwohner vertheilen.
 Diese auf ziemlich ungesetzliche Weise geübte Freigebigkeit hatte
-wichtige Folgen. De: Statthalter spukt- auf Sie at«-ge de:
-catalonischen Mönche abgesetzt, obgleich er das Gebiet« der
-Missionen gegen Süd bedeutend erweitert und über dem Zu-
-sammenfluß des Carony mit dem« Paragua die Billet. Osak-
-celoneta und bei der Vereinigung des Paragua mit dem
-Paraguamusi die C-iud ad Guirior gegründet hatte. Seit
-jene: Zeit"k-is auf die poritischen Stümke, weiche gegenwärtig
-in den spanischen» Colonien toben, vermied die bürgerliche
+wichtige Folgen. Der Statthalter wurde auf die Klage der
+catalonischen Mönche abgesetzt, obgleich er das Gebiet der
+Missionen gegen Süd bedeutend erweitert und über dem Zusammenfluß
+des Carony mit dem Paragua die <b>Villa</b> Barceloneta
+und bei der Vereinigung des Paragua mit dem
+Paraguamusi die <b>Ciudad</b> Guirior gegründet hatte. Seit
+jener Zeit bis auf die politischen Stürme, welche gegenwärtig
+in den spanischen Colonien toben, vermied die bürgerliche
 Behörde sorgfältig jede Einmischung in die Angelegenheiten
 der Kapuziner. Man gefällt sich darin, ihren Wohlstand zu
 übertreiben, wie man früher bei den Jesuiten in Paraguay gethan.
-Die Missionen am Carony vereinigen in Folge der Bo-
-denbildung1 und des Wechsels von Savanen und Ackerland
-die Vorzüge der Llanos von Calabozo und der Thaler von
+
+Die Missionen am Carony vereinigen in Folge der
+Bodenbildung^[Kleine Hochebenen zwischen
+den Bergen bei Upata, Cumamu und
+Tupuquen scheinen über 150 Toisen Meereshöhe zu haben.] und
+des Wechsels von Savanen und Ackerland
+die Vorzüge der Llanos von Calabozo und der Thäler von
 Aragua. Der wahre Reichthum des Landes beruht auf der
 Viehzucht und dem Bau von Colonialprodukten. Es ist zu
 wünschen, daß hier, wie in der schönen, fruchtbaren Provinz
 Venezuela, die Bevölkerung dem Landbau treu bleibt und nicht
 so bald darauf ausgeht, Erzgruben zu suchen. Deutschlands
 und Mexikos Beispiel beweist allerdings, daß Bergbau und
-eine blühende Landwirthschaft keineswegs unverträglich find;
+eine blühende Landwirthschaft keineswegs unverträglich sind;
 aber nach Volkssagen kommt man über die Ufer des Carony
-zum See Dorado und zum Palast des vergoldeten Man-
-nes,2 und da dieser See und dieser Palast ein Localmythus
-« Kleine Hochebenen zwischen den Bergen bei Upata4,I Eumamu und
-Tupuquen scheinen über 150 Toifen Meereshöhe zu haben.
-« El Do!-ad0, d. h. ei re-y 6 hombre doro(1o. S. Bd. ll1. Seite 398.
-
-A35
-.sind,:-so wäre es gefäl)rlich Erinnerungen zu wecken, die
-sich allnsshlig.zn verwischen beginnen. Man hat mich ver-
-sichert, noch bis zum Jahr 1760 seyen die freien C-araiben
--zum Cerro de Pajareima, einem Berg südlich von Vieja
-»Und-Ia gekommen, um das verwitterte Gestein auszuwa-
-Den. Der dabei gewonnene Goldstaub wurde in Calebassen
-der C:-esrentia Cujete aufbewahrt und in Essequebo an die
-Holländer verkauft Noch später mißbrauchten mexicanische
-Bergleute die Leichtgläubigkeit des .Intendanten von Caracas,
+zum See Dorado und zum Palast des <b>vergoldeten Mannes</b>,^[<i>El
+Dorado</i>, d. h. <i>el rey ó hombre dorodo.</i> S. Bd. III.
+Seite 398.] und da dieser See und dieser Palast ein 
+<b>Localmythus</b>
+sind, so wäre es gefährlich Erinnerungen zu wecken, die
+sich allmählig zu verwischen beginnen. Man hat mich versichert,
+noch bis zum Jahr 1760 seyen die freien Caraiben
+zum Cerro de Pajarcima, einem Berg südlich von Vieja
+Guyana gekommen, um das verwitterte Gestein auszuwaschen.
+Der dabei gewonnene Goldstaub wurde in Calebassen
+der Crescentia Cujete aufbewahrt und in Essequebo an die
+Holländer verkauft. Noch später mißbrauchten mexicanische
+Bergleute die Leichtgläubigkeit des Intendanten von Caracas,
 Don Jose Avalo, und legten mitten in den Missionen am
-«Eawny, bei der Villa Upata in den Cerros del Potre-ro und
-Chirika große Hüttenwerke an. Sie erklärten, die ganze Ge-
-birg-sart sey goldhaltig und man baute ·Werkstätten und
-Schmelzöfen. Nachdem man betrüchtliche Summen verfehlen-
-dett, zeigte -es sich, daß die Kiese keine Spur von Gold ent-
-hielten. Diese Versuche, so fruchtlos sie waren, riefen den
-alten Aberglauben! wach, daß in Guyana ,,jedes glänzende
-Gestein- uns mach-e del ok0 sey.« Man begnitgte sich nicht
+Carony, bei der Villa Upata in den Cerros del Potrero und
+Chirika große Hüttenwerke an. Sie erklärten, die ganze Gebirgsart
+sey goldhaltig und man baute Werkstätten und
+Schmelzöfen. Nachdem man beträchtliche Summen verschleudert,
+zeigte es sich, daß die Kiese keine Spur von Gold enthielten.
+Diese Versuche, so fruchtlos sie waren, riefen den
+alten Aberglauben^[S. Bd. I. 329. II. 245. III. 366.] wach,
+daß in Guyana »jedes glänzende
+Gestein <i>una madre del oro</i> sey.« Man begnügte sich nicht
 damit, Glimmerschiefer zu schmelzen; bei Angostura zeigte man
-mir Schichten·· von Hornblendeschiefer ohne sremdartige Bei-
-m·engung, die man unter dem wunderlichen Namen: schwarzes
-Golderz, oro negko, ausbeuten. «
-- Zur Vervollständigung der Beschreibung des Orinoco
-theile ich an dieser Stelle die Hauptergebnisse meiner Unter-
-suchungen über den Dorado, über das weiße Meer oder
-Lagnna Parime und die O-uellen des Or-inoco mit, wie
+mir Schichten von Hornblendeschiefer ohne fremdartige Beimengung,
+die man unter dem wunderlichen Namen: schwarzes
+Golderz, <i>oro negro</i>, ausbeutete.
+
+Zur Vervollständigung der Beschreibung des Orinoco
+theile ich an dieser Stelle die Hauptergebnisse meiner 
+Untersuchungen über den <b>Dorado</b>, über das <b>weiße Meer</b>
+oder <b>Laguna Parime</b> und die Quellen des Orinoco mit, wie
 sie auf den neuesten Karten gezeichnet sind. Die Vorstellung
 von einem überschwenglich reichen Goldlande war seit dem
-·« S· Bd. I. 829. U. 245. 1lI. 366.
-
-W .
 Ende des sechzehnten Jahrhunderts mit der andern verbunden,
-daß ein großer Vinnensee den'Orinoco,  Branco und
-den Mo Essequebo zugleich mit Wasser speise« Ich glaube
-durch «genauere Kenntniß der Qertlichleiten, -durch langes,
-mühsames Studium der spanischen Schriftsteller, «die vom
-Dorado handeln, besonders aber durch Vergleichung sehr
+daß ein großer Binnensee den Orinoco, Rio Branco und
+den Rio Essequebo zugleich mit Wasser speise. Ich glaube
+durch genauere Kenntniß der Oertlichleiten, durch langes,
+mühsames Studium der spanischen Schriftsteller, die vom
+<b>Dorado</b> handeln, besonders aber durch Vergleichung sehr
 vieler alten, chronologisch geordneten Karten den Quellen
-dieses Jrrthums auf die Spur gekommen zu sehn. Allen
-Mährchen liegt etwas Wirkliches zu Grunde; das vom Do-
-rado gleicht den Mythen des Alterthums, die bei ihrer Wan-
-derung von Land zu Land immer den verschiedenen Oertlich-
-keiten angepaßt wurden. Um Wahrheit und Jrrthum zu
+dieses Irrthums auf die Spur gekommen zu seyn. Allen
+Mährchen liegt etwas Wirkliches zu Grunde; das vom Dorado
+gleicht den Mythen des Alterthums, die bei ihrer Wanderung
+von Land zu Land immer den verschiedenen Oertlichkeiten
+angepaßt wurden. Um Wahrheit und Irrthum zu
 unterscheiden, braucht man in den Wissenschaften meistens
-nur die Geschichte der Vorstellungen und ihre allmählige Ent-
-wicklung zu verfolgen. Die Untersuchung, mit der ich dieses
+nur die Geschichte der Vorstellungen und ihre allmählige 
+Entwicklung zu verfolgen. Die Untersuchung, mit der ich dieses
 Kapitel beschließe, ist nicht allein deßhalb von Belang, weil
 sie Licht verbreitet über die Vorgänge bei der Eroberung und
-über die lange Reihe unglücklicher Expeditionen, die unter-
-nommen worden, um den Dorado zu suchen, und deren letzte
+über die lange Reihe unglücklicher Expeditionen, die unternommen
+worden, um den Dorado zu suchen, und deren letzte
 (man schämt sich, es sagen zu müssen) in das Jahr 1775
-fällt; neben diesem rein historischen J-nteresse haben sie noch
+fällt; neben diesem rein historischen Interesse haben sie noch
 ein anderes unmittelbareres und allgemeineres: sie können
 dazu dienen, die Geographie von Südamerika zu berichtigen,
 und auf den Karten, die gegenwärtig erscheinen, die großen
 Seen und das seltsame Flußnetz auszumerzen, die wie auf
 gerathewohl zwischen dem 60. und 69. Längengrad eingezeichnet
 werden. In Europa glaubt kein Mensch mehr an die Schätze
-in Guyana und an das Reich des großen Patiti. Die
+in Guyana und an das Reich des großen <b>Patiti</b>. Die
 Stadt Manoa und ihre mit massiven Goldplatten bedeckten
 Paläste sind längst verschwunden; aber der geographische
-
-I-.
-257
 Apparat, mit dem die Sage vom Dorado aufgeputzt war, der
 See Parime, in dem sich, wie im See bei Mexiko, so viele
-herrliche Gebäude spiegelten, wurde von den Geographen ge-
-wissenhast beibehalten. Im Laufe von drei Jahrhunderten
+herrliche Gebäude spiegelten, wurde von den Geographen 
+gewissenhaft beibehalten. Im Laufe von drei Jahrhunderten
 erlitten dieselben Sagen verschiedene Umwandlungen; aus
 Unkenntniß der amerikanischen Sprachen hielt man Flüsse
-für Seen und Trageplätze für Fluszverzweigungen; man rückte
+für Seen und Trageplätze für Flußverzweigungen; man rückte
 einen See (den Cassipa) um 5 Breitegrade zu weit nach
 Süd, während man einen andern (den Parime oder Dorado)
-hundert Meilen weit weg vom westlichen Ufer des Rio Brauen
-ans das östliche versetzte. Durch solch mancherlei Umwand-
-lungen ist das Problem, das uns hier vorliegt, weit ver-
-wickelte: geworden, als man gewöhnlich glaubt. Der Geo-
-graphen, welche bei Entwerfung einer Karte die drei Funda-
-mentalpunlte, die Maße, die Vergleichung der beschreibenden
+hundert Meilen weit weg vom westlichen Ufer des Rio Branco
+auf das östliche versetzte. Durch solch mancherlei Umwandlungen
+ist das Problem, das uns hier vorliegt, weit verwickelter
+geworden, als man gewöhnlich glaubt. Der Geographen,
+welche bei Entwerfung einer Karte die drei Fundamentalpunkte,
+die Maße, die Vergleichung der beschreibenden
 Schriften und die etymologische Untersuchung der Namen immer
-im Auge haben, find sehr wenige. Fast alle seit 1775 er-
-schienenen Karten von Südamerika sind, was das Binnenland
+im Auge haben, sind sehr wenige. Fast alle seit 1775 erschienenen
+Karten von Südamerika sind, was das Binnenland
 zwischen den Steppen von Venezuela und dem Amazonenstrom,
-zwischen dem Oftabhang der Anden und den Küsten von
-Eayenne betrifft, reine Copien der großen spanischen Karte
-des re am« O1mei-irre. Eine Linie darauf, weiche den Lend-
-stkirh bezeichnet, den Don .Jose Solano entdeckt und durch
+zwischen dem Ostabhang der Anden und den Küsten von
+Cayenne betrifft, reine Copien der großen spanischen Karte
+des la Cruz Olmedilla. Eine Linie darauf, welche den Landstrich
+bezeichnet, den Don Jose Solano entdeckt und durch
 seine Truppen und Emissäre zur Ruhe gebracht haben wollte,
-hielt man für den Weg, den der C-ommissär zurückgelegt,
+hielt man für den <b>Weg</b>, den der Commissär zurückgelegt,
 während er nie über San Fernando de Atabapo, das 160
-Meilen vom angeblichen See Parime liegt, hinausgekom-
-1uen ist. Man versäumte es, das Werk des Pater Caulin
+Meilen vom angeblichen See Parime liegt, hinausgekommen
+ist. Man versäumte es, das Werk des Pater Caulin
 zu Rathe zu ziehen, des Geschichtschreibers von Solanos
 Expedition, der nach den Angaben der Indianer sehr klar
-O--vom, steife. n-. 17
-
-As
-auseinandersetzt, ,,wie der Name des Flusses Parime" das
-Mährchen vom Dorado und einem Binnemneer veranlaßt hats«
-Ganz unbenützt ließ man ferner eine Karte vom Orrnoco,
-die drei Jahre jünger ist als die von la Cruz; und die
-von Surville nach dem ganzen zuverlckssigen wie hhpothetis·hen
-Material in den Archiven des De-spacbo naiven-so! de In·
-diss gezeichnet wurde. Die Fortschritte der Geographie, so-
-weit sie sich auf den Karten zu erkennen geben, sind weit
+auseinandersetzt, »wie der Name des Flusses Parime das
+Mährchen vom Dorado und einem Binnenmeer veranlaßt hat«.
+Ganz unbenützt ließ man ferner eine Karte vom Orinoco,
+die <b>drei Jahre jünger</b> ist als die von la Cruz; und die
+von Surville nach dem ganzen zuverlässigen wie hypothetischen
+Material in den Archiven des <i>Despacho universal de Indias</i>
+gezeichnet wurde. Die Fortschritte der Geographie, soweit
+sie sich auf den Karten zu erkennen geben, sind weit
 langsamer, als man nach der Menge brauchbarer Resultate,
 die in den Literaturen der verschiedenen Völker zerstreut sind,
 glauben sollte. Astronomische Beobachtungen, topographische
 Nachweisungen häufen sich viele Jahre lang an, ohne daß
-sie benützt werden, und aus sonst sehr lobenswerthem Con-
-servatismus wollen die Kartenzeichner oft lieber nichts Neues
-bringen, als einen See, eine Bergkette« oder ein Flusznetz opfern,
+sie benützt werden, und aus sonst sehr lobenswerthem 
+Conservatismus wollen die Kartenzeichner oft lieber nichts Neues
+bringen, als einen See, eine Bergkette oder ein Flußnetz opfern,
 die man nun einmal seit Jahrhunderten eingezeichnet hat.
+
 Da die fabelhaften Sagen vom Dorado und vom See
-Parime nach dem Charakter der Länder, denen man ·sie an-
-passen wollte, verschiedentlich gewendet worden sind, so ist
+Parime nach dem Charakter der Länder, denen man sie anpassen
+wollte, verschiedentlich gewendet worden sind, so ist
 herauszufinden, was daran richtig seyn mag und was rein
-chimürisch ist. Um nicht zu sehr ins Einzelne zu gehen, was
-besser· der ,,Analyse des» geographischen Atlas« vorbehalten
+chimärisch ist. Um nicht zu sehr ins Einzelne zu gehen, was
+besser der »Analyse des geographischen Atlas« vorbehalten
 bleibt, mache ich den Leser vor allem auf die Oertlichkeiten
-aufmerksam, welche zu verschiedenen Zeiten der Scha"uplatz der
+aufmerksam, welche zu verschiedenen Zeiten der Schauplatz der
 Expeditionen zur Entdeckung des Dorado gewesen. Hat man
 sich mit der Physiognomie des Landes und mit den örtlichen
 Umständen, wie wir sie jetzt zu beschreiben im Stande sind,
 bekannt gemacht, so wird einem klar, wie die verschiedenen
 Voraussetzungen auf unsern Karten nach und nach entstehen
-und einander modificiren konnten. Um einen J-rrthum zu
+und einander modificiren konnten. Um einen Irrthum zu
+berichtigen, hat man nur die wechselnden Gestalten zu betrachten,
+unter denen er zu verschiedenen Zeiten aufgetreten ist.
 
-259
-berichtigen, hat man nur .die wechselnden Gestalten zu be
-trachten, unter denen er zu ver-schiedenen Zeiten aufgetreten ist.
-Macht«- Gebiet zwischm den Bergen von sr«mzösisch Guym
+Bis zur Mitte des achtzehnten Jahrhunderts war das
+ungeheure Gebiet zwischen den Bergen von französisch Guyana
 und den Wäldern am obern Orinoro, zwischen den Quellen
-des Mo Carony und dem Amazonenstro1n (von 0 bis 4 Grad
-nördlither Breite und vom 57. bis 68. Grad der Lange) so
-wenig bekannt- daß die Gevgw-oben Mk) Gefallen Seen-
+des Rio Carony und dem Amazonenstrom (von 0 bis 4 Grad
+nördlicher Breite und vom 57. bis 68. Grad der Lange) so
+wenig bekannt, daß die Geographen nach Gefallen Seen,
 Flußverbindungen, mehr oder weniger hohe Berge einzeichnen
-konnten. Sie haben sich dieser Freiheit in vollem Maße be-
-dient, und die' Lage der Seen, wie der Lauf und die Ver-
-zweigungen der Flüsse wurden so verschiedenartig dargestellt,
+konnten. Sie haben sich dieser Freiheit in vollem Maße bedient,
+und die Lage der Seen, wie der Lauf und die Verzweigungen
+der Flüsse wurden so verschiedenartig dargestellt,
 daß es nicht zu wundern wäre, wenn sich unter den zahllosen
-Karten ein paar fänden, die das Riehtige getroffen hätten.
+Karten ein paar fänden, die das Richtige getroffen hätten.
 Heutzutage ist das Feld der Hypothesen sehr bedeutend kleiner
 geworden. Die Länge von Esmeralda am obern Orinoco ist
-von mir bestinunt; weiter nach Ost, mitten in den Niede-
-.rungen der Parime (ein unbekanntes Land, wie Wangara und
+von mir bestimmt; weiter nach Ost, mitten in den Niederungen
+der Parime (ein unbekanntes Land, wie Wangara und
 Dar-Saley in Afrika), ist ein 20 Meilen breiter Strich von
-Nord nach Süd an den Ufern des Nin Carony und des
-Mo Branca) hin, unter dem 63. Grad der Länge, bereits
-beseitigen. Es ist dieß der gefährliche Weg, den Don Antonio
-Santos von Santo Thome de Angostura an den Nin Negro
+Nord nach Süd an den Ufern des Rio Carony und des
+Rio Branca) hin, unter dem 63. Grad der Länge, bereits
+begangen. Es ist dieß der gefährliche Weg, den Don Antonio
+Santos von Santo Thome de Angostura an den Rio Negro
 und den Amazonenstrom eingeschlagen, derselbe, auf dem in
 neuester Zeit Ansiedler aus Surinam mit den Bewohnern
-von Gran-Para verkehrt haben.1 Dieser Weg schneidet die
-to:-ro incognito der Parime in zwei ungleiche Stücke; zu-
-gleich seht er den Quellen des Orinoco Grenzen, so das; man
-« S. Bd. IV. Seite 194.
+von Gran-Para verkehrt haben.^[S. Seite 194.]
+Dieser Weg schneidet die
+<i>terra incognita</i> der Parime in zwei ungleiche Stücke; 
+zugleich setzt er den Quellen des Orinoco Grenzen, so daß man
+dieselben nicht mehr nach Belieben gegen Ost schieben kann,
+weil sonst das Bett des obern Orinoco, der von Ost nach
+West läuft, über das Bett des Rio Branco liefe, der von
+Nord nach Süd fließt. Verfolgt man den Rio Branco oder
+den Streifen Bauland, der zur <i>Capitania general</i> von 
+Gran-Para gehört, so sieht man Seen, die von den Geographen
+zum Theil aus der Luft gegriffen, zum Theil vergrößert sind,
+zwei gesonderte Gruppen bilden. Die erste derselben begreift
+die Seen, die man zwischen Esmeralda und den Rio Branco
+verlegt, zur zweiten gehören die, welche man auf dem Landstrich
+zwischen dem Rio Branco und den Bergen von französisch
+und holländisch Guyana einander gegenüber liegen läßt.
+Aus dieser Uebersicht ergibt sich, daß die Frage, ob es ostwärts
+vom Rio Branco einen See Parime gibt, mit der Frage nach
+den Quellen des Orinoco gar nichts zu thun hat.
 
-2s0
-. « ·
-dieselben nicht mehr nach Belieben gegen Oft schieben kann,
-weil sonst das Bett des obern «Orinecn, der. von Oft nach
-West läuft, über das Bett des Rio Brauen liefe, der von
-Nord nach Süd fließt. Verfelgt man den Nin Brauen oder
-den Streifen Bauland, der zur Onpitai-is geriet-a1 von Gran-
-Para gehört, so «sieht man Seen,« die von den Gengraphe"n
-zum Theil ans der»Luft gegriffen, zum Theil vergrößert sind,
-zwei gesnnderte Gruppen bilden. Die erste derselben begreift
-die Seen-, die man zwischen Esmeralda und den Nin Branca
-verlegt, zur zweiten gehören die, welche man auf dem Land-
-strich ztnischen dem Rio Brauen und den Bergen von fran-
-zösisch Und holländisch Guyana einander gegenüber liegen läßt.
-Aus dieser Uebersicht ergibt.sich, daß die Frage, ob es ostwärts
-vom Rio Brauen einen See Parime gibt, mit der Frage nach
-den Quellen des Orineco gar nichts zu thun hat.
-Außer dem eben bezeichneten Landstrich (dem I)0ko.c1o
-de la Pari1ne, durch den der Nin Brauen läuft) gibt es
-260 Meilen gegen West am Qstabhang der Cordilleren der
-Anden ein anderes Land, das in den Expeditienen zur
+Außer dem eben bezeichneten Landstrich (dem <i>Dorado
+de la Parime</i>, durch den der Rio Branco läuft) gibt es
+260 Meilen gegen West am Ostabhang der Cordilleren der
+Anden ein anderes Land, das in den Expeditionen zur
 Aufsuchung des Dorado ebenso berufen ist. Es ist dieß das
-Mesopotamien zwischen dem Caqueta, dem Nin Negrn, dem
-Uaupes und dem Jurubesh, von dem ich eben ausführlich
-gesprochen,1 der Deradn der Omaguas, we der See
-Manna des Pater Acuf1a, die lagen« de oro der Guanek
-.Indianer und das Goldland liegen, aus dem Pater F·ritz
-gegen das Ende des siebzehnten Jahrhunderts in seiner Mis-
-sion am Amazenenstrem Gnldbleche erhalten hat.
-Die ersten und zumal ber1'ihmtesten Unternehmungen zur
-· S. «-nd. m. Seite 352 is. -
+Mesopotamien zwischen dem Caqueta, dem Rio Negro, dem
+Uaupes und dem Jurubesh, von dem ich oben ausführlich
+gesprochen,^[S. Bd. III. Seite 352 ff.]
+der <b>Dorado der Omaguas</b>, wo der See
+<b>Manoa</b> des Pater Acuña, die <i>laguna de oro</i> der
+Guanes-Indianer und das Goldland liegen, aus dem Pater Fritz
+gegen das Ende des siebzehnten Jahrhunderts in seiner Mission
+am Amazonenstrom Goldbleche erhalten hat.
 
-» 261
-Aussindung des Dorado ivaren.gegen den Ostabhang der Anden
+Die ersten und zumal berühmtesten Unternehmungen zur
+Auffindung des Dorado waren gegen den Ostabhang der Anden
 von Neu-Grenada gerichtet. Voll Verwunderung über den
-Bericht eines Indianers -aus Tacunga- von den Schätzen des
-Königs oder Zague von ,,Cundirumarca,« schickte Sebastian de
-Belalcazar im Jahr 1535 die Hauptleutc Aftasco und Am-
-pudia aus, dass volle del l)ore.do zu suchen, das zwölf Tage
-reisen von Guallabamba, also in den Gebirgen zwischen Pasto
+Bericht eines Indianers aus Tacunga von den Schätzen des
+Königs oder Zague von »Cundirumarca,« schickte Sebastian de
+Belalcazar im Jahr 1535 die Hauptleute Añasco und Ampudia
+aus, das <i>valle del Dorado</i> zu suchen, das zwölf Tagereisen
+von Guallabamba, also in den Gebirgen zwischen Pasto
 und Popayan liegen sollte. Die Nachrichten, welche Pedro de
-A1«tasco von den Gingeborenen eingezogen, in Verbindung mit
-den späteren Mittheilungen des Diaz de Pirieda (1536), der
+Añasco von den Eingeborenen eingezogen, in Verbindung mit
+den späteren Mittheilungen des Diaz de Pineda (1536), der
 die Provinzen Quixos und Canela zwischen dem Rio Napo
-und dem Rio Pastaea entdeckt hatte, brachten auf die Vor-
-stellung, daß köstlich von den Nevados von Tunguragua, Ca-
-yambe und Popayan ,,weite Ebenen liegen, reich an edlen
-Metallen, wo die Eingeborene-n Rüstungen aus massivem Golde
-trügen« Als man nun diese Schtitze aufsuchte, entdeckte Gou-
-zalo Pizarro (1539) zufällig den amerikanischen Zimmtbaum
-(1«u1-us eiunamomoides) und gelangte Francisco de Orellana
+und dem Rio Pastaca entdeckt hatte, brachten auf die Vorstellung,
+daß östlich von den Nevados von Tunguragua, Cayambe
+und Popayan »weite Ebenen liegen, reich an edlen
+Metallen, wo die Eingeborenen Rüstungen aus massivem Golde
+trügen«. Als man nun diese Schätze aufsuchte, entdeckte Gonzalo
+Pizarro (1539) zufällig den amerikanischen Zimmtbaum
+(<i>Laurus cinnamomoides</i>) und gelangte Francisco de Orellana
 über den Napo hinunter in den Amazonenstrom. Von da
 an wurden zu gleicher Zeit von Venezuela, Neu-Grenada,
-Quito und Pera, ja von Vrasilien und vom Rio de la Plato
-aus Ex«peditionen zur Eroberung des Dorado unternommen.
-Am lüngsten haben sich die Züge in das Land südlich vom
-Guaviare, Rio F-ragua und Caqueta im Gedächtniß erhalten,
+Quito und Peru, ja von Brasilien und vom Rio de la Plata
+aus Expeditionen zur Eroberung des Dorado unternommen.
+Am längsten haben sich die Züge in das Land südlich vom
+Guaviare, Rio Fragua und Caqueta im Gedächtniß erhalten,
 und durch sie vor allen hat das Mährchen von den Schätzen
-der Manao-s, der Omaguas und Guaypes, wie von der Existenz
-der Lesung« de 0ro und der Stadt des vergoldeten
-König3 (der große Patiti, der große Mord, der große
-Paru oder Enim) Verbreitung gefunden. Da Orellana
-zwischen den Nebenslüssen des Jupura und des Rio Negro
-
-·2e2
+der Manaos, der Omaguas und Guaypes, wie von der Existenz
+der <i>Lagunas de oro</i> und der Stadt des <b>vergoldeten
+Königs</b> (der <b>große Patiti</b>, der <b>große Moxo</b>,
+der <b>große
+Paru</b> oder <b>Enim</b>) Verbreitung gefunden. Da Orellana
+zwischen den Nebenflüssen des Jupura und des Rio Negro
 Götzenbilder von massivem Golde gefunden hatte, so glaubte
-man an ein Goldland zwischen dem Papamene" und dem
-Guaviare. Seine Erzählung und die Reiseberichte .Jorge’-s de
-Es-pira (Georg von Speier), Hernan.s Perez de»Guezada und
-Felipe’s de —Urre (Philipp von Hutten) verrathen, neben vielen
-Uebertreibungen, genaue Loralkenntnisse. Betrachtet man! sie
-rein aus gepgtaphüchem GOsichtsp1m!t- so sieht man, daß da«
-Bestreben der ersten.Conquistadoren fortwährend dahin ging,
-zum Landstrich zwischen den Quellen des Mo Negro, des
+man an ein Goldland zwischen dem Papamene und dem
+Guaviare. Seine Erzählung und die Reiseberichte Jorge’s de
+Espira (Georg von Speier), Hernans Perez de Guezada und
+Felipe’s de Urre (Philipp von Hutten) verrathen, neben vielen
+Uebertreibungen, genaue Localkenntnisse. Betrachtet man sie
+rein aus geographischem Gesichtspunkt, so sieht man, daß das
+Bestreben der ersten Conquistadoren fortwährend dahin ging,
+zum Landstrich zwischen den Quellen des Rio Negro, des
 Uaupes (Guape) und des Jupura oder Caqueta zu gelangen.
-Diesen Laudstrich haben wir oben, zum Unterschied vom Dorado
-der Parime, den Dorado der Omaguas genannt. Aller-
-dings hieß alles Land zwischen dem Amazonenstrom und dem
-Orinoco im Allgemeinen ,,Pkovjncjas del I)ora(lo;« aber
-auf diesem ungeheuern, mit Wäldern, Savanen und G-
-birgen bedeckten Raum strebte man, wenn man den großen
+Diesen Landstrich haben wir oben, zum Unterschied vom <b>Dorado
+der Parime</b>, den <b>Dorado der Omaguas</b> genannt. Allerdings
+hieß alles Land zwischen dem Amazonenstrom und dem
+Orinoco im Allgemeinen »Provincias del Dorado;« aber
+auf diesem ungeheuern, mit Wäldern, Savanen und Gebirgen
+bedeckten Raum strebte man, wenn man den großen
 See mit goldreichen Ufern und den vergoldeten König suchte,
 doch immer nur zwei Punkten zu, nordöstlich und südwestlich
-vom Rio Negro, nämlich der Parime (dem Jsthmus zwischen
-dem Earonp, Essequebo und Rio Branca) und den alten
+vom Rio Negro, nämlich der Parime (dem Isthmus zwischen
+dem Carony, Essequebo und Rio Branco) und den alten
 Wohnplätzen der Manaos an den Ufern des Jurubesh. Die
-Lage des letzteren Landstrichs, der in der Geschichte der ,,Ero-
-berung« vom Jahr 1535 bis zum Jahr 1560 vielberusen
+Lage des letzteren Landstrichs, der in der Geschichte der 
+»Eroberung« vom Jahr 1535 bis zum Jahr 1560 vielberufen
 war, habe ich oben angegeben; ich habe nun noch von der
 Bodenbildung zwischen den spanischen Missionen am Carony
 und den portugiesischen am Rio Branco zu sprechen. Es ist
 dieß das Land in der Nähe des obern Orinoco, Esmeraldas
-und von hollündisch und französisch Guyana, das am Ende
-des sechzehnten Jahrhunderts Raleghs Unternehmungen und
-übertriebene Berichte in so hellem Glanze strahlen ließen.
-
-263
-In Folge des Laufs des Orinoco, indem er nach einan-
-der erst gegen West, dann gegen Nord und endlich gegen Ost
-fließt, liegt seine Mündung fast im selben Meridian wie seine
-Quellen; geht man daher von Alt-Guahana gegen Süd, so
-kommt man über das ganze Land, in das die Geographen
-nach einander ein Binnenmeer (Mak b1anco) und die ver-
-schiedenen Seen ·versetzen, die mit der Sage vom Dorado
-der Parime verknüpft «sind. Zuerst- kommt man an den
-Mo Carony, zu dem zwei fast gleich starke Zweige zusammen-
-treten, der eigentliche Carony und der Mo Paragua» Die
-Missionäre von Piritu nennen letzteren Fluß einen See (la-
-guua). Er ist voll Klippen und kleiner Wasserfälle; ,,da er
-aber über ein völlig ebenes Land- läuft, tritt er zugleich häufig
-sehr stark aus und man kann sein eigentliches Bett (su ver-
-(iadera can) kaum erkennen." Die Gingeborenen nennen
-ihn Paragua oder Parava, was auf caraibisch Meer
-oder großer See bedeutet. Diese örtlichen Verhältnisse und
-diese Benennung sind ohne Zweifel die Veranlassung geworden,
-daß man aus dem Rio Paragua, einem Nebenfluß des Carony,
-einen See gemacht und denselben Cafsipa genannt hat, nach
-den Casfipagotos, die in der Gegend wohnten. Ralegh gab
-diesem Wasserbecken 13 Meilen Breite, und da alle Seen der
-Parime Goldsand haben müssen, so ermangelt er nicht zu ver-
-sichern, wenn Sommers das Wasser falle, finde man daselbst
-Goldgeschiebe von bedeutenden Gewicht.
-Da die Quellen der Nebenflüsse des Caronh, Arui und
-Caura (Caroli, Arvi und Caora der alten Geographen) ganz
-nahe bei einander liegen, so kam man auf den Gedanken,
-alle diese Flüsse aus dem angeblichen See Cassipa entspringen
-zu lassen. Sanfon vergrößert den See auf 42 Meilen Länge
-
-»2s2 ·
-Götzenbilder von massivem Golde gefunden hatte, so glaubte
-man an ein Goldland zwischen dem Papamene" und dem
-Guaviare. Seine Erzählung und die Reiseberichte .Jorge«s de
-Espira (Georg von Speier), Heruans Perez de Guezada und
-F-elipe«s de -Urre (Philipp von Hatten) verrathen, neben vielen
-Uebertreibungen, getraue Localkenntnisse. Betrachtet man sie
-rein aus ge(-gwphischem GesichtspMckt- so sieht man, daß do-I
-Bestreben der ersten.Conquistadoren fortwährend dahin ging,
-zum Landstrich zwischen den Quellen des Mo Negro, des
-Uaupes (Guape) und des .Jupnra oder C·aqueta zu gelangen.
-Diesen Laudstrich haben wir oben, zum Unterschied vom D orado
-der Parime, den Dorado der Omaguas genannt. Aller-
-dings hieß alles Land zwischen dem Amazonenstrom und dem
-Orinoco im Allgemeinen ,,Pkovjncias del Dokaclo;« aber
-auf diesem ungeheuern, mit Wäldern, Savanen und G-
-birgen bedeckten Raum strebte man, wenn man den großen
-See mit goldreichen Ufern und den vergoldeten König suchte,
-doch immer nur zwei Punkten zu, nordöstlich und südtveftlich
-vom Rio Negro, nämlich der Parime (dem Jsthmus zwischen
-dem Caronp, Essequebo und Rio Branco) und den alten
-Wohnplätzen der Manaos an den Ufern des Jurubesh. Die
-Lage des letzteren Landstrichs, der in der Geschichte der ,,Ero-
-berung« vom Jahr 1535 bis zum Jahr 1560 vielberusen
-war, habe ich oben angegeben; ich habe nun noch von der
-Vodenbildung zwischen den spanischen Missionen am Carony
-und den portugiesischen am Rio Branco zu sprechen. Es ist
-dies; das Land in der Nähe des obern Orinoco, E-smeraldas
 und von holländisch und französisch Guyana, das am Ende
 des sechzehnten Jahrhunderts Raleghs Unternehmungen und
 übertriebene Berichte in so hellem Glanze strahlen ließen.
-«·
 
-In Folge des-Laufs de5Dtinrco, indem er nach einan-
-der etst g0gM West, dann gegen Nord und endlich gegen Ost
-fließt, liegt seine Mt'a1dung fast im selben Meridian wie feine
-Quellen; geht man daher von Alt-Gnayana gegen Süd, so
-kommtucan über dasganzeLand, indasdieGeog«t·aphen
-nach einander ein Binnenmeer (Ll-k b1aae0) und die ver-
-schiedenen Seen ,v-etsetzen, die mit der Sage vom Dorado
-der Parime verknüpft sind. Zuerst kommt man an den
-Mo Carony, zu dein zwei fast gleich starke Zweige zusammen-
-treten, der eigentliche Carony und der Nio Paragua. Die
-Missiouäre von Piritu nennen letzteren Fluß einen See (la-
-gana). Er ist voll Klippen und kleiner Wasserfälle; ,,da er
-aber über ein völlig ebenes Land« läuft, tritt er zugleich häufig
-sehr stark aus und man kann sein eigentliches Bett (su ver-
-(1aden-. eure) kaum erkennen« Die Eingeborenen nennen
-ihn Paragua oder Parava, was auf caraibisch Meer
-oder großer See bedeutet. Diese örtlichen Verhältnisse und
-diese Benennung sind ohne Zweifel die Veranlassung geworden,
+In Folge des Laufs des Orinoco, indem er nach einander
+erst gegen West, dann gegen Nord und endlich gegen Ost
+fließt, liegt seine Mündung fast im selben Meridian wie seine
+Quellen; geht man daher von Alt-Guayana gegen Süd, so
+kommt man über das ganze Land, in das die Geographen
+nach einander ein Binnenmeer (<i>Mar blanco</i>) und die 
+verschiedenen Seen versetzen, die mit der Sage vom <b>Dorado
+der Parime</b> verknüpft sind. Zuerst kommt man an den
+Rio Carony, zu dem zwei fast gleich starke Zweige zusammentreten,
+der eigentliche Carony und der Rio Paragua. Die
+Missionäre von Piritu nennen letzteren Fluß einen See
+(<i>laguna</i>). Er ist voll Klippen und kleiner Wasserfälle;
+»da er aber über ein völlig ebenes Land läuft, tritt er zugleich
+häufig sehr stark aus und man kann sein eigentliches Bett (<i>su
+verdadera caxa</i>) kaum erkennen«. Die Eingeborenen nennen
+ihn <b>Paragua</b> oder <b>Parava</b>, was auf caraibisch
+<b>Meer</b> oder <b>großer See</b> bedeutet. Diese örtlichen
+Verhältnisse und diese Benennung sind ohne Zweifel die
+Veranlassung geworden,
 daß man aus dem Rio Paragua, einem Nebenfluß des Carony,
-einen See gemacht und denselben Cassipa genannt hat, nach
+einen See gemacht und denselben <b>Cassipa</b> genannt hat, nach
 den Cassipagotos, die in der Gegend wohnten. Ralegh gab
 diesem Wasserbecken 13 Meilen Breite, und da alle Seen der
-Parime Goldsand haben müssen, so er1nangelt er nicht zu ver-
-sichern, wenn Sommers das Wasser falle, finde man daselbst
-Goldgeschiebe von bedeutendem Gewicht.
-« Da die Quellen der Nebenslüsse des Caronh, Arui und
+Parime Goldsand haben müssen, so ermangelt er nicht zu versichern,
+wenn Sommers das Wasser falle, finde man daselbst
+Goldgeschiebe von bedeutenden Gewicht.
+
+Da die Quellen der Nebenflüsse des Carony, Arui und
 Caura (Caroli, Arvi und Caora der alten Geographen) ganz
 nahe bei einander liegen, so kam man auf den Gedanken,
 alle diese Flüsse aus dem angeblichen See Cassipa entspringen
 zu lassen. Sanson vergrößert den See auf 42 Meilen Länge
-
-. M »
 und 15 Meilen Breite. Die alten Geographen kümmern sich
-wenig darum, ob sie die Znflüsse an beiden Ufern immer in
-derselben Weise einander gegentibersepen, und so geben sie
-die Mündung des Carony und den See Cassis)a-, der durch den
-Carony mit dem Or-inoco zusammenbringt, zuweilen oberhalb
-des Einflnsses des Meta an. So schiebt Hondius den See
-bis zum 2. und Z. Breitengrad hinunter und gibt ihm die
+wenig darum, ob sie die Zuflüsse an beiden Ufern immer in
+derselben Weise einander gegenübersetzen, und so geben sie
+die Mündung des Carony und den See Cassipa, der durch den
+Carony mit dem Orinoco zusammenbringt, zuweilen <b>oberhalb</b>
+des Einflusses des Meta an. So schiebt Hondius den See
+bis zum 2.&nbsp;und 3.&nbsp;Breitengrad hinunter und gibt ihm die
 Gestalt eines Rechtecks, dessen größten Seiten Von Nord nach
 Süd gerichtet sind. Dieser Umstand ist bemerkenswerth, weil
-man, indem man nach und nach dem See Cassipa eine süd-
-lichere Breite gab, denselben vom C-arony und Arui loslöste
+man, indem man nach und nach dem See Cassipa eine südlichere
+Breite gab, denselben vom Carony und Arui loslöste
 und ihn Parime nannte. Will man diese Metamorphose in
 ihrer allmähligen Entwicklung verfolgen, so muß man die
-Karten, die seit Raleghs Reise bis heute erschienen sind, ver-
-gleichen. La Crnz, dem alle neueren Geographen nachgezeichnet
+Karten, die seit Raleghs Reise bis heute erschienen sind, 
+vergleichen. La Cruz, dem alle neueren Geographen nachgezeichnet
 haben, läßt seinem See Parime die länglichte Gestalt des Sees
 Cassipa, obgleich diese Gestalt von der des alten Sees Parime
-oder Rupunnwini, dessen große Achse von Ost nach West ge
-richtet war, völlig abweicht. Ferner war dieser alte See
-(der des Hondius, Sanson und Coronelli) von Bergen um-
-geben und es entsprang kein Fluß daraus, während der See
+oder Rupunuwini, dessen große Achse von Ost nach West gerichtet
+war, völlig abweicht. Ferner war dieser alte See
+(der des Hondius, Sanson und Coronelli) von Bergen umgeben
+und es entsprang kein Fluß daraus, während der See
 Parime des la Cruz und der neueren Geographen mit dem
-obern Orinoco zusammenbringt, wie der Cassipa mit dem untern
+obern Orinoco zusammenhängt, wie der Cassipa mit dem untern
 Orinoco.
-Ich habe hiemit den Ursprung der Fabel vom See Cas-
-sipa erklärt, so wie den Einfluß, den sie auf die Vorstellung
+
+Ich habe hiemit den Ursprung der Fabel vom See Cassipa
+erklärt, so wie den Einfluß, den sie auf die Vorstellung
 gehabt, als ob der Orinoco aus dem See Parime entspränge.
 Sehen wir jetzt, wie es sich mit dem letzteren Wasserbecken
-verhält, mit dem angeblichen Binnenmeer, das bei den
-Geogra«phen des sechzehnten Jahrhunderts Rupnnuwini heißt.
-
-- 265 '
-Unter dem L. oder 41X, Grad der Breite (leider fehlt es in dieser
-Richtung, südlich von Santo Thotne de Angostura, auf 8
-Grade weit ganz an astronomischen Beobachtungen) verbindet
+verhält, mit dem angeblichen <b>Binnenmeer</b>, das bei den
+Geographen des sechzehnten Jahrhunderts <b>Rupunuwini</b> heißt.
+Unter dem 4.&nbsp;oder 4½&nbsp;Grad der Breite (leider fehlt es
+in dieser
+Richtung, südlich von Santo Thome de Angostura, auf 8&nbsp;Grade
+weit ganz an astronomischen Beobachtungen) verbindet
 eine lange, schmale Cordillere, Pacaraimo, Quimiropaca und
-Ucucuamv genannt, die von— Ost nach Südwest streicht, den
+Ucucuamo genannt, die von Ost nach Südwest streicht, den
 Bergstock der Parime mit den Bergen von holländisch und
-sranzösisch Guyana. Sie bildet die Wasserscheide zwischen dem
-Carony, Rupunury oder Rupunuwini und dem Rio Brauen,
+französisch Guyana. Sie bildet die Wasserscheide zwischen dem
+Carony, Rupunury oder Rupunuwini und dem Rio Branco,
 und somit zwischen den Thälern des untern Orinoco, des
-Essequebo und des Mo Negro. Nordwestlich von dieser Cordil-
-lere von Pacaraimo, über die nur wenige Enropäer gekommen
-sind (im Jahr I739 der deutsche Chirurg Nicolaus Hortsmann,
-im Jahr 1775 sein spanischer Qfficier, Don Antonio Santos,
-im Jahr 1791 der —portugiesische Qbrist Barata, und im Jahr
-IsU mehrere englische Colonisten) kommen der Nocapra, der
+Essequebo und des Rio Negro. Nordwestlich von dieser Cordillere
+von Pacaraimo, über die nur wenige Europäer gekommen
+sind (im Jahr 1739 der deutsche Chirurg Nicolaus Hortsmann,
+im Jahr 1775 sein spanischer Officier, Don Antonio Santos,
+im Jahr 1791 der portugiesische Obrist Barata, und im Jahr
+1811 mehrere englische Colonisten) kommen der Nocapra, der
 Paraguamusi und der Paragua herab, die in den Carony fallen;
-gegen Nordost kommt der Rnpunuwini herunter, ein Neben-
-sluß des Essequebo; gegen Süd vereinigen sich der Taeutu und
+gegen Nordost kommt der Rupunuwini herunter, ein Nebenfluß
+des Essequebo; gegen Süd vereinigen sich der Tacutu und
 der Uraricuera zum vielberufenen Rio Parime oder Rio Branco.
-Dieser Jsthmus zwischen den Zweigen des Mo Gssequebo
-und des Rio Branco (das heißt zwischen dem Rupunuwiui
-einerseits, und dem Pirara, Mahu und Urarieuera oder Rio
-Parime andererseits) ist als der eigentliche elassische Boden
-des Dorado der Parime zu betrachten. Am Fuße der
-Berge von Paearaimo treten die Fl1·tsse häufig aus, und ober-
-halb Santa Rosa heißt das rechte Ufer des Urariapara, der
-sich in den Utaricueta ergießt, ,,el v-alle de la inunda·cion.«
-Ferner» sindet man zwischen dem Rio Parime und dem Xa-
-rumu große Lachen; auf den in neuester Zeit in Brasilien
-gezeichneten Karten, die über diesen Landstrich sehr genau find,
-x
 
-Mc .
-finden sich diese Wasserstücke CUg«Ceben. :Weiter nach West
-kommt der Caf1o Pirara, der in den Mahu läuft, aus einem
+Dieser Isthmus zwischen den Zweigen des Rio Essequebo
+und des Rio Branco (das heißt zwischen dem Rupunuwini
+einerseits, und dem Pirara, Mahu und Uraricuera oder Rio
+Parime andererseits) ist als der eigentliche classische Boden
+des <b>Dorado der Parime</b> zu betrachten. Am Fuße der
+Berge von Pacaraimo treten die Flüsse häufig aus, und oberhalb
+Santa Rosa heißt das rechte Ufer des Urariapara, der
+sich in den Utaricuera ergießt, »el valle de la inundacion</i>«.
+Ferner findet man zwischen dem Rio Parime und dem Xurumu
+große Lachen; auf den in neuester Zeit in Brasilien
+gezeichneten Karten, die über diesen Landstrich sehr genau sind,
+finden sich diese Wasserstücke angegeben. Weiter nach West
+kommt der Caño Pirara, der in den Mahu läuft, aus einem
 Binsensee. Das ist der von Nicolaus Hortsmann beschriebene
-See Amucu, derselbe, über den mir Portngiesen aus Barcelos,
-die am Rio Branco (Rio Parüne oder Mo -Paravigiana)
-gewesen waren, während meines AUfMkbCIte-B -in« San Carlos
-del Rio Negro genaue Notizen gegeben haben, Der See Zinnen
-ist mehrere Meilen breit und hat zwei kleine» Inseln, die
-Santos Jslas Jpomucena nennen hörte. Der Rupunuwini,
-an dessen Ufer Hortsmann Felsen mit hieroglhphischen Bildern
-entdeckt hat," kommt diesem See ganz nahe, steht aber in
+See Amucu, derselbe, über den mir Portugiesen aus Barcelos,
+die am Rio Branco (Rio Parime oder Rio Paravigiana)
+gewesen waren, während meines Aufenthaltes in San Carlos
+del Rio Negro genaue Notizen gegeben haben. Der See Amucu
+ist mehrere Meilen breit und hat zwei kleine Inseln, die
+Santos Islas Ipomucena nennen hörte. Der Rupunuwini,
+an dessen Ufer Hortsmann Felsen mit hieroglyphischen Bildern
+entdeckt hat, kommt diesem See ganz nahe, steht aber in
 keiner Verbindung mit demselben. Der Trageplatz zwischen
 dem Rupunuwini und dem Mahu liegt weiter gegen Nord,
 wo der Berg Ucucuamo sich erhebt, der bei den Eingeborenen
-noch jetzt der Goldberg heißt. Sie gaben Hortsmann den
-Rath, um den Rio Mahu herum eine Silbergrube (ohne Zwei-
-fel großblätteriger Glimmer), Diamanten und Smaragde zu
-suchen; der Reisende fand aber nichts als BergkrystaII. Aus
+noch jetzt der <b>Goldberg</b> heißt. Sie gaben Hortsmann den
+Rath, um den Rio Mahu herum eine Silbergrube (ohne Zweifel
+großblätteriger Glimmer), Diamanten und Smaragde zu
+suchen; der Reisende fand aber nichts als Bergkrystall. Aus
 seinem Bericht scheint hervorzugehen, daß der ganze nach Ost
-streichende Zug der Gebirge am obern Orinoco (sjer1-a P-U-im(-)
-aus Graniten besteht, in denen, wie am Pic Duida, !·häusig
-Drusen und offene Gänge vorkommen. Ja dieser Gegend, die
-noch immer für sehr goldreich gilt,-leben an der Westgrenze
+streichende Zug der Gebirge am obern Orinoco (<i>Sierra Parime</i>)
+aus Graniten besteht, in denen, wie am Pic Duida,^[S. Seite 73.]
+häufig Drusen und offene Gänge vorkommen. In dieser Gegend, die
+noch immer für sehr goldreich gilt, leben an der Westgrenze
 von holländisch Guyana die Macusis, Aturajos und Acuvajos;
-später fand Santos diese Völkerschaften zwischen dem Rippa-
-nuwini, dem Mahu und der Bergkette Pacaraimo angesiedelt.
-Das glimmerreiche Gestein am Berg Ucucuamo,
+später fand Santos diese Völkerschaften zwischen dem Rupunuwini,
+dem Mahu und der Bergkette Pacaraimo angesiedelt.
+<b>Das glimmerreiche Gestein am Berg Ucucuamo,
 der Name des Rio Parime, das Austreten der Flüsse
-« S. Bd. lV. Seite 73·
-
-267
 Urariapara, Parime und Xurumu, besonders aber
-der See Amucu (der nahe« beim Rio Rupunuwini
-liegt und für die Hauptquelle des Rio Patime
+der See Amucu (der nahe beim Rio Rupunuwini
+liegt und für die Hauptquelle des Rio Parime
 gilt) haben die Fabel vom weißen Meer und dem
-Dorado der Parime veranlaßt. Alle diese Momente
+Dorado der Parime veranlaßt</b>. Alle diese Momente
 (und eben dadurch wirkten sie zu Einer Vorstellung zusammen)
 finden sich auf einer von Nord nach Süd 8 bis 9 Meilen
-breiten, von Qst nach West 4’0 Meilen langen Strecke neben
-einander. »Diese Lage gab man auch bis zum Anfang des
-sechzehnten Jahrhunderts dem weißen Meer, nur daß man
-es in der Richtung eines Parallels verlängerte. Dieses weiße
-Meer ist nun aber nichts· anderes als der Rio Parime, der
-auch weißer Fluß, Rio Branco oder de aguas blaue-as
-heißt und diesen ganzen Landstrich, über den er läuft, nnter
+breiten, von Ost nach West 40 Meilen langen Strecke neben
+einander. Diese Lage gab man auch bis zum Anfang des
+sechzehnten Jahrhunderts dem <b>weißen Meer</b>, nur daß man
+es in der Richtung eines Parallels verlängerte. Dieses <b>weiße
+Meer</b> ist nun aber nichts anderes als der Rio Parime, der
+auch <b>weißer Fluß, Rio Branco</b> oder <i>de aguas blancas</i>
+heißt und diesen ganzen Landstrich, über den er läuft, unter
 Wasser setzt. Auf den ältesten Karten heißt das weiße Meer
 Rupunuwini, und daraus geht hervor, daß die Sage eben
-hier zu Hause ist, da unter allen Nebenflüssen· des Gssequebo
+hier zu Hause ist, da unter allen Nebenflüssen des Essequebo
 der Rio Rupunuwini dem See Amucu am nächsten kommt.
 Bei seiner ersten Reise (1595) machte sich Ralegh noch keine
 bestimmte Vorstellung von der Lage des Dorado und des Sees
 Parime, den er für gesalzen hielt und den er »ein zweites
-caspisches Meer« nennt. Erst bei der zweiten, gleichfalls auf Ra-
-leghs Kosten unternommenen Reise (1596) gab Lawrence Keymis
-die Oettlichkeiten des Dorado so bestimmt an, daß, wie mir
-dünkt, an der Jdentität der Parime de Manoa mit dem
-See Amucn und dem ,Jsthmus zwischen dem Nupunuwini
-(der in den Esseqnebo läuft) und dem Rio Parime oder Rio
-B-ranco gar nicht zu zweifeln ·ist. »Die Indianer,« sagt
-Keymis, ,,fahren den Essequebo südwürts in zwanzig Tagen
+caspisches Meer« nennt. Erst bei der zweiten, gleichfalls auf 
+Raleghs Kosten unternommenen Reise (1596) gab Lawrence Keymis
+die Oertlichkeiten des Dorado so bestimmt an, daß, wie mir
+dünkt, an der Identität der <b>Parime de Manoa</b> mit dem
+See Amucu und dem Isthmus zwischen dem Rupunuwini
+(der in den Essequebo läuft) und dem Rio Parime oder Rio
+Branco gar nicht zu zweifeln ist. »Die Indianer,« sagt
+Keymis, »fahren den Essequebo südwärts in zwanzig Tagen
 hinauf. Um die Stärke des Flusses anzudeuten, nennen sie
-
-.—,
-268 «
--W—--.— «
-ihn den Bruder des Orinoco. Nach zwanzigtügiger Fahrt
-schaffen sie ihre Canoes über einen Trageplatz in einem einzi-
-gen Tage aus dem Flusse Dessekebe auf -einen See, den die
-Jaos Roponowini, die Caraihen Parime nennen. Dieser See
-ist groß wie ein Meer; es fahren unzählige Canoes- darauf,
+ihn den <b>Bruder des Orinoco</b>. Nach zwanzigtägiger Fahrt
+schaffen sie ihre Canoes über einen Trageplatz <b>in einem 
+einzigen Tage</b> aus dem Flusse Dessekebe auf einen See, den die
+Jaos Roponowini, die Caraiben Parime nennen. Dieser See
+ist groß wie ein Meer; es fahren unzählige Canoes darauf,
 und ich vermuthe (die Indianer hatten ihm also nichts davon
 gesagt), daß es derselbe See ist, an dem die Stadt Manoa
 liegt.« Hondius gibt eine merkwürdige Abbildung von jenem
-Trageplatz, und da nach der damaligen Vorstellung die Mün-
-dung des Carony unter dem 4. Breitengrad (siatt unter 80 8«)
+Trageplatz, und da nach der damaligen Vorstellung die Mündung
+des Carony unter dem 4.&nbsp;Breitengrad (statt unter 8°8′)
 lag, so setzte man den Trageplatz ganz nahe an den Aequator.
 Zur selben Zeit ließ man den Viapoco (Oyapoc) und den
 Rio Cayane (Maroni?) aus jenem See Parime kommen. Der
 Umstand, daß die Caraiben den westlichen Zweig des Rio
 Branco ebenso nennen, hat vielleicht so viel dazu beigetragen,
-den See Amucu in der Einbildung zu vergrößern, als die Ueber-
-schwemmungen der verschiedenen Nebenslüsse des Uraricuera von
-der Mündung des Tacutu bis zum va1le de 1o.inundacion.
+den See Amucu in der Einbildung zu vergrößern, als die 
+Ueberschwemmungen der verschiedenen Nebenflüsse des Uraricuera von
+der Mündung des Tacutu bis zum <i>va1le de la inundacion</i>.
+
 Wir haben oben gesehen, daß die Spanier den Rio
 Paragua oder Parava, der in den Carony fällt, für einen
-See hielten, weil das Wort Pakt-we Meer, See, Fluß
-bedeutet. Ebenso scheint Parime großes Wasser im All-
-gemeinen zu bedeuten, denn die Wurzel par kommt in carni-
-bischen Benennungen von Flüssen, Lachen, Seen und Meeren
-Vor. Im Arabischen und im Persischen dienen ebenso dahi-
-und de:-ja gleichmäßig zur Bezeichnung des Meeres, der
+See hielten, weil das Wort <i>Parava</i> <b>Meer, See, Fluß</b>
+bedeutet. Ebenso scheint Parime <b>großes Wasser</b> im 
+Allgemeinen zu bedeuten, denn die Wurzel <i>par</i> kommt in 
+caraibischen Benennungen von Flüssen, Lachen, Seen und Meeren
+Vor. Im Arabischen und im Persischen dienen ebenso <i>bahr</i>
+und <i>deria</i> gleichmäßig zur Bezeichnung des Meeres, der
 Seen und der Flüsse, und dieser Brauch, der sich bei vielen
-Völkern in beiden Welten sindet, hat auf den alten Karten
-Seen in Flüsse und Flüsse in Seen umgewandelt. Zur Be-
-kräftigung des eben Gesagten führe ich einen sehr achtbaren
-
--269
-Zeugen auf, Pater Caulin. »Als ich,« sagt dieser Missionür,
-der sich länger als. ich am untern Orinoco aufgehalten hat,
-»die Indianer fragte, was denn die Parime sey, so er-
-wiederten sie, es sey nichts als ein Fluß, der aus einer
+Völkern in beiden Welten findet, hat auf den alten Karten
+Seen in Flüsse und Flüsse in Seen umgewandelt. Zur Bekräftigung
+des eben Gesagten führe ich einen sehr achtbaren
+Zeugen auf, Pater Caulin. »Als ich,« sagt dieser Missionär,
+der sich länger als ich am untern Orinoco aufgehalten hat,
+»die Indianer fragte, was denn <b>die Parime</b> sey, so erwiederten sie, es sey nichts als ein Fluß, der aus einer
 Bergkette komme, an deren anderem Abhang der Essequebo
-entspringe.« C·aulin weiß nichts vom See Amucu, und er-
-klärt den Glauben an ein Binnemneer nur aus den Ueber-
-schwemmUngen der Ebenen, I- las i11uadaci0aes di1atadas
-per los baj0s del pay-s.1 Ihm zufolge rühren alle Miß-
-griffe der Geog"raphen von dem leidigen Umstand her, daß
+entspringe.« Caulin weiß nichts vom See Amucu, und erklärt
+den Glauben an ein Binnenmeer nur aus den Ueberschwemmungen
+der Ebenen, <i>a las inundaciones dilatadas
+per los bajos del pays</i>.^[Dieß ist auch Walkenaers und
+Malte Bruns Ansicht.] Ihm zufolge rühren alle Mißgriffe
+der Geographen von dem leidigen Umstand her, daß
 alle Flüsse in Guyana an ihren Mündungen andere Namen
-haben als an ihren Quellen. ,,Ich zweifle nicht,« sagt er
-weiter, »daß einer der obern Zweige des Rio Branco der-
-selbe Rio Parime ist, den die Spanier für einen See gehal-
-ten haben (-.-. quien sup()njan 1aguna).« Diese Notizen
+haben als an ihren Quellen. »Ich zweifle nicht,« sagt er
+weiter, »daß einer der obern Zweige des Rio Branco derselbe
+Rio Parime ist, den die Spanier für einen See gehalten
+haben (<i>a quien suponian laguna</i>).« Diese Notizen
 hatte der Geschichtschreiber der Grenzexpedition an Ort und
 Stelle gesammelt, und er hätte wohl nicht geglaubt, daß la
-Er-uz und Surville richtige Begriffe und alte Vorstellungen
+Cruz und Surville richtige Begriffe und alte Vorstellungen
 vermengen und auf ihren Karten das Mar Dorado oder Mar
 Blanco wieder zum Vorschein bringen würden. So kommt
-es, daß) obgleich ich seit meiner Rückkehr aus Amerika viel-
-seid) den Beweis geführt, daß ein Binnenmeer, aus dem der
-Drinoco entspränge, gar nicht existirt, in neuester Zeit unter
-meinem Namen eine Karte D erschienen ist, auf der die Lugano.
-de Periode wiederum auftritt.
-Aus allem Bisherigen geht hervor: I) daß die L-aguna
-Rupunuwini oder Parime aus Raleghs Reise und auf den
-« Dieß iß auch Waltenaeks und Mal« VI.-uns Ansicht.
-« ca«-e·do I’Am6kique, da-esse sur les obs·-kvatjons de dir. de
-llsmbo1dt, par Fried. Wien 1818.
+es, daß, obgleich ich seit meiner Rückkehr aus Amerika vielfach
+den Beweis geführt, daß ein Binnenmeer, aus dem der
+Orinoco entspränge, gar nicht existirt, in neuester Zeit unter
+meinem Namen eine Karte^[<i>Carte de l’Amérique, dressé sur les
+observations de Mr. de
+Humbo1dt, par Fried</i>. Wien 1818.] erschienen ist,
+auf der die <i>Laguna
+de Parime</i> wiederum auftritt.
 
-NO
-Karten des Hondius ein ehimürischer See ist, zu dem der
-See Amucu und die häufiger: Ueberschwennnungen der Neben-
-slüsse des Uraricuera Veranlassung gegeben; 2) das; die Laguna
-Parime ausSurvilles Karte der See Blumen ist, aus dem der
+Aus allem Bisherigen geht hervor: 1) daß die Laguna
+Rupunuwini oder Parime aus Raleghs Reise und auf den
+Karten des Hondius ein chimärischer See ist, zu dem der
+See Amucu und die häufigen Ueberschwemmungen der Nebenflüsse
+des Uraricuera Veranlassung gegeben; 2) daß die Laguna
+Parime auf Survilles Karte der See Amucu ist, aus dem der
 Rio Pirara und (zugleich mit dem Mahu, dem Tacutu, dein
-Uraricuera oder dem eigentlich sogenannten Rio ·-Parime)
-der Rio Branco entspringt; Z) daß die Laguna Parime des
-la Cruz eine eingebildete Erweiterung des- Mo Parime (dec
-mit dem Or-inoco verwechselt wird) unterhalb der Vereini-
-gung des Mahu mit dem Xurumu ist. Von der Mündung
+Uraricuera oder dem eigentlich sogenannten Rio Parime)
+der Rio Branco entspringt; 3) daß die Laguna Parime des
+la Cruz eine eingebildete Erweiterung des Rio Parime (der
+mit dem Orinoco verwechselt wird) unterhalb der Vereinigung
+des Mahu mit dem Xurumu ist. Von der Mündung
 des Mahu bis zu der des Tacutu beträgt die Entfernung
-kaum 00 40«; la Cruz macht 7 Breite-ngrade daraus. Er nennt
-das obere Stück des Rio Branco (in das der Mahu sällt)
-Orinoco oder Puruma. Dies; ist ohne allen Zweifel der
-Xurumu, ein Nebensluß des Tacutu, der den Einwohnern
+kaum 0°40′; la Cruz macht 7&nbsp;Breitengrade daraus. Er nennt
+das obere Stück des Rio Branco (in das der Mahu fällt)
+Orinoco oder <b>Puruma</b>. Dieß ist ohne allen Zweifel der
+<b>Xurumu</b>, ein Nebenfluß des Tacutu, der den Einwohnern
 des benachbarten Forts San Joaquim wohl bekannt ist. Alle
-Namen, die in der Sage vom Dorado vorkommen, sinden
+Namen, die in der Sage vom Dorado vorkommen, finden
 sich unter den Nebenflüssen des Rio Branco. Geringfügige
 örtliche Verhältnisse und die Erinnerung an den Salzsee in
-Mexico, zumal aber an den See Manoa im Dorado der
-Omaguas wirkten zusammen zur Ausmalung eines Bildes,
-das der Einbildungskrast Raleghs und seiner beiden Unter-
-besehlshaber, Keymis und Masham, den Ursprung verdankt.
+Mexico, zumal aber an den See Manoa im <b>Dorado der
+Omaguas</b> wirkten zusammen zur Ausmalung eines Bildes,
+das der Einbildungskraft Raleghs und seiner beiden 
+Unterbefehlshaber, Keymis und Masham, den Ursprung verdankt.
 Nach meiner Ansicht lassen sich die Ueberschwemmungen des
-Rio Branco höchstens mit denen des Ned River in Louisiana
+Rio Branco höchstens mit denen des Red River in Louisiana
 zwischen Natchitotches und Cados vergleichen, keineswegs aber
-mit der Laguna de los Xarayes, die eine periodische Aus-
-breitung des Rio Paraguay ist.«
-· Diese periodisehen Ueberschwemmungen des Rio Paraguah haben in
-der slidlichen .ssalbtugel lange dieselbe Rolle gespielt wie der See Pariere
+mit der Laguna de los Xarayes, die eine periodische Ausbreitung
+des Rio Paraguay ist.^[Diese periodischen Ueberschwemmungen
+des Rio Paraguay haben in
+der südlichen Halbkugel lange dieselbe
+Rolle gespielt wie der See Parime
+in der nördlichen. Hondius und Sanson
+ließen aus der <i>Lugano de los
+Xarayes</i> den Rio de la Plata, den
+Rio Topajos (einen Nebenfluß des
+Amazonenstroms), den Rio Tocantinos
+und den Rio de San Francisco entspringen.]
 
-271
-Wir haben im Bisherigen ein weißes Meer besprochen,
-durch das man »den Hauptstamm des Rio Brance laufen läßt,
-und ein zweites,1 das man ostmärts von diesem Flusse .setzt,
-und das mit demselben mittelst des Caf1e Pirara zusammen-
-hängt Noch gibt es einen dritten See,2 den man westwärts
-vom Rio Brauen verlegt, und über den ich erst kürzlich interes-
-sante Angaben im handschriftlichen Tagebukh des Chirurgen
-Hort-smann gefunden habe. ,,Ztvei Tagereisen unterhalb des
-Einslusses des Mahu (Tacutu) in den Rio Parime (Uraricuera)
+Wir haben im Bisherigen ein <b>weißes Meer</b> besprochen,
+durch das man den Hauptstamm des Rio Branco laufen läßt,
+und ein zweites,^[Survilles See, der für den See Amucu steht.]
+das man ostwärts von diesem Flusse setzt,
+und das mit demselben mittelst des Caño Pirara zusammenhängt.
+Noch gibt es einen dritten See,^[Der See, den Surville
+<i>Laguna tenida hasta ahora por la Laguna
+Parime</i> nennt.] den man westwärts
+vom Rio Branco verlegt, und über den ich erst kürzlich 
+interessante Angaben im handschriftlichen Tagebuch des Chirurgen
+Hortsmann gefunden habe. »Zwei Tagereisen unterhalb des
+Einflusses des Mahu (Tacutu) in den Rio Parime (Uraricuera)
 liegt auf einem Berggipfel ein See, in dem dieselben Fische
 vorkommen, wie im Rio Parime; aber die Wasser des ersteren
 sind schwarz, die des letzteren weiß.« Hat nun nicht vielleicht
 Surville nach einer dunkeln Kunde von diesem Wasserbecken
 auf der Karte, die er zu Pater Caulins Werk entworfen, sich
 einen 10 Meilen langen Alpensee ausgedacht, bei dem (gegen
-Ost) der Orinoce und der'.Jdapa, ein Nebenfluß des Nie
+Ost) der Orinoco und der Idapa, ein Nebenfluß des Rio
 Negro, zumal entspringen? So unbestimmt die Angabe des
 Chirurgen aus Hildesheim lautet, so läßt sich doch unmöglich
-annehmen, daß der Berg, auf dessen Gipfel sich ein See be-
-findet, uördlich vom Parallel von 20 V, liege, und diese Breite
+annehmen, daß der Berg, auf dessen Gipfel sich ein See befindet,
+nördlich vom Parallel von 2°½, liege, und diese Breite
 kommt ungefähr mit der des Cerro Unturan überein. Es
-ergibt sich daraus, daß Hortsmann Alpsee, der d?Anvilles
+ergibt sich daraus, daß Hortsmanns Alpsee, der d’Anvilles
 Aufmerksamkeit entgangen ist, und der vielleicht mitten in
-einer Berggruppe liegt, nordöstlich vom Tragepla-tz zwischen
-in der nördlichen. sending und Sausen ließen aus der Lugano de los
-Xec-s;-es den Rio de la Plan, den Rio Tepajes (einen Nebenfluß des
-L1nazenenst1-eme), den Rio Tecantince und den Rio de San Francieco
-entspringen. . .
-« Survilles See, der für den See Statuen sieht.
-« Der See, den Suwille l·aguna tenida beste share per la La-
-gnac Pskime nennt.
+einer Berggruppe liegt, nordöstlich vom Trageplatz zwischen
+dem Idapa und Mavaca und südöstlich vom Orinoco, oberhalb
+Esmeralda, zu suchen ist.
 
-MS
-dem Jdapa und Madam und sitdöstlich vom Orinoco, ober-
-halb E-smeralda, zu suchen ist. «
-Die meisten Geschichtschreiber, welche die ersten Jahr-
-hunderte nach der Eroberung beschrieben haben, schienen der
-festen Ansicht, daß die Namen Provincias und Pai-
-del Dorado ursprünglich jeden goldreichen Landstrich be
-deuteten. Sie vergessen den etymologischen Sinn des Wortes
-Dorado (der Vergoldete) und bemerken nicht, daß diese
-Sage ein Loealmythus ist, wie ja auch fast alle Mythen der
-Griechen, Hindns und Perser. Die Geschichte vom vergol-
-deten Mann ist ursprünglich in den 2xnden von Neu-G»
-nada zu Hause, besonders aus den Niederungen am Ostab-
-hange derselben; nur allmählig, wie ich oben· gezeigt, sieht
+Die meisten Geschichtschreiber, welche die ersten Jahrhunderte
+nach der Eroberung beschrieben haben, schienen der
+festen Ansicht, daß die Namen <b>Provincias</b> und <b>Pais
+del Dorado</b> ursprünglich jeden goldreichen Landstrich 
+bedeuteten. Sie vergessen den etymologischen Sinn des Wortes
+<b>Dorado</b> (<b>der Vergoldete</b>) und bemerken nicht, daß diese
+Sage ein Localmythus ist, wie ja auch fast alle Mythen der
+Griechen, Hindus und Perser. Die Geschichte vom <b>vergoldeten
+Mann</b> ist ursprünglich in den Anden von Neu-Grenada
+zu Hause, besonders aus den Niederungen am Ostabhange
+derselben; nur allmählig, wie ich oben gezeigt, sieht
 man sie 300 Meilen gegen Ost-Nord-Ost von den Quellen
-des Caqueta an die des Rio Branco und des Gsseqnebo her-
-überrücken. Man hat in verschiedenen Gegenden von Süd-
-amerika bis zum Jahr 1536 Gold gesucht, ohne daß das
-Wort Dorado ausgesprochen worden wäre, und ohne daß
+des Caqueta an die des Rio Branco und des Essequebo herüberrücken.
+Man hat in verschiedenen Gegenden von Südamerika
+bis zum Jahr 1536 Gold gesucht, ohne daß das
+Wort <b>Dorado</b> ausgesprochen worden wäre, und ohne daß
 man an die Existenz eines andern Mittelpunktes der Cultur
-und der Schätze als das Neich der .Inca von Cuzco geglaubt
+und der Schätze als das Reich der Inca von Cuzco geglaubt
 hätte. Länder, aus denen gegenwärtig auch nicht die kleinste
 Menge edlen Metalls in den Handel kommt, die Küste von
-Paria, Terra Firma (Casti11o« del 0ko), die Berge von
-St. Martha und die Landenge Darien waren damals so
-vielberusen, wie in neuerer Zeit der goldhaltige Boden in
+Paria, Terra Firma (<i>Castilla del Oro</i>), die Berge von
+St.&nbsp;Martha und die Landenge Darien waren damals so
+vielberufen, wie in neuerer Zeit der goldhaltige Boden in
 Senora, Choco und Brasilien.
-Diego de Ordaz (1531) und Alonzo de .Herera (1535)
-zogen auf ihren Entdeckung-steifen an den Ufern des untern
-Orinoco hin. Ersterer ist der berüchtigte Conqnistador von
-Mexico, der sich rühmte, Schwefel aus dem Krater des
 
-N
+Diego de Ordaz (1531) und Alonzo de Herera (1535)
+zogen auf ihren Entdeckungsreisen an den Ufern des untern
+Orinoco hin. Ersterer ist der berüchtigte Conquistador von
+Mexico, der sich rühmte, Schwefel aus dem Krater des
 PicsPqsoeateI-et! geholt zu haben, und deIsKatlI’. diess-
 lanbnißektheilte,eineIbcennendeaValkmti1aIL«1ppeazufük
 ten. Drin; war zuIIQdeltatt·sdo allen Landes ernannt worden,

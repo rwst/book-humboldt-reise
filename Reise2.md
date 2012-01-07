@@ -3602,7 +3602,6 @@ ich der Beschreibung der Stadt Guayra und des merkwürdigen
 Weges, der von diesem Hafen nach Caracas führt, alle Beobachtungen
 an, die Bonpland und ich auf einem Ausflug
 nach Cabo Blanco zu Ende Januars 1800 gemacht. Da
-
 **Depons** die Gegend nach mir besucht hat, sein lehrreiches
 Werk aber vor dem meinen erschienen ist, so lasse ich mich
 auf eine nähere Beschreibung der Gegenstände, die er ausführlich

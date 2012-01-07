@@ -1892,9 +1892,7 @@ und
   San Diego sind wie auf Gerathewohl auf unsern Karten umhergestreut.]
 Es ist
 dieß das kleine Dorf, das im Jahr 1749 vom Jesuitenpater
-
-Gili
-, dem Verfasser der in 
+Gili, dem Verfasser der in 
 Rom
 gedruckten 
 *Storia dell Orinoco*,
@@ -5091,7 +5089,6 @@ Fieber sind mit bedeutender Schwächung des Muskelsystems
 verbunden; indessen sieht man am Orinoco arme
 Ordensgeistliche sich jahrelang mit dieser 
 *Calenturidas* und
-
 *Tercianas* schleppen;
 die Wirkungen sind nicht so tief greifend
 und gefährlich als bei kürzer dauernden Fiebern in gemäßigten
@@ -6051,7 +6048,7 @@ die durch sehr verschiedene Bodenbildungen hervorgebracht
 werden. Zuweilen stürzt sich ein ganzer Fluß aus
 bedeutender Höhe in Einem Falle herunter, wodurch die Schifffahrt
 völlig unterbrochen wird. Dahin gehört der prächtige
-Fall des Rio Tequendama, den ich in meinen  
+Fall des Rio Tequendama, den ich in meinen
 *Vues des Cordillères*
 abgebildet habe; dahin die Fälle des Niagara und
 der Rheinfall, die nicht sowohl durch ihre Höhe als durch die
@@ -7067,8 +7064,6 @@ Sonnenaufgang verschwinden.
 
 
 Auf der Reise von Carthagena nach Santa Fe de Bogota
-
-
 machten wir die Beobachtung, daß zwischen Mompox und
 Honda im Thal des großen Magdalenenflusses die Zancudos
 zwischen acht Uhr Abends und Mitternacht die Luft verfinstern,
@@ -12527,7 +12522,7 @@ Bis zu Acuñas Reise und den schwankenden Angaben,
 die er über Verbindungen mit einem andern großen Fluß
 nordwärts vom Amazonenstrom erhielt, sahen die unterrichtetsten
 Missionare den Orinoco für eine Fortsetzung des Caqueta
-(Kaqueta, Caketa) an. »Dieser Strom,« sagte Fray  
+(Kaqueta, Caketa) an. »Dieser Strom,« sagte Fray
 **Pedro Simon** im Jahr 1625, »entspringt am
   Westabhang
   des Paramo d’Iscancè. Er nimmt den Papamene auf, der

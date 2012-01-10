@@ -8572,469 +8572,361 @@ Diego de Ordaz (1531) und Alonzo de Herera (1535)
 zogen auf ihren Entdeckungsreisen an den Ufern des untern
 Orinoco hin. Ersterer ist der berüchtigte Conquistador von
 Mexico, der sich rühmte, Schwefel aus dem Krater des
-PicsPqsoeateI-et! geholt zu haben, und deIsKatlI’. diess-
-lanbnißektheilte,eineIbcennendeaValkmti1aIL«1ppeazufük
-ten. Drin; war zuIIQdeltatt·sdo allen Landes ernannt worden,
-dcs er zwistheuBkcsilien uudBenezuela erobern könnte, und
-dGdmnn»ls das Land der deIt1schen EompagniederH.blsek
-(BelsatG)hieß, und er giugauf feiueInZuge von derMün-
-dImgdes» Z»m«zonensttoines aus. Ersahdott indenHän-
-den der Eingeborenen ,,fauftgwße S1naragde«. Es waren
-»Hu- Zweifel Stücke S«1tütttit- !-tm dem- dichtM Fskdsp«th-
-den wir· vom Orinooo zur-sickgebracht, und den La Conda1nine
-an der Mündung des Mo T«opapos in Menge angetroffen.«
-Die Indianer sagten Diego de O!-daz, »wenn er so und so
-viele Sonnen gegen West hinaussahre, komme er an einen
-großen Fels (peö-I) von· grünem Gestein«; bevor er aber
-diesen ·vermeintlichen Smaragdberg (Guphotitgestein?) erreichte,
-machte ein Schissbruch allen weiteren Entdeckungen ein Ende.
+Pics Popocatepetl geholt zu haben, und dem Karl V.&nbsp;die 
+Erlaubniß ertheilte, einen brennenden Vulkan im Wappen zu führen.
+Ordaz war zum Adelantado allen Landes ernannt worden,
+das er zwischen Brasilien und Venezuela erobern könnte, und
+das damals das Land der deutschen Compagnie der Welser
+(Belzares) hieß, und er ging auf seinem Zuge von der Mündung
+des Amazonenstromes aus. Er sah dort in den Händen
+der Eingeborenen »faustgroße Smaragde«. Es waren
+ohne Zweifel Stücke Saussurit, von dem dichten Feldspath,
+den wir vom Orinoco zurückgebracht, und den La Condamine
+an der Mündung des Rio Topayos in Menge angetroffen.^[S. Bd. III. Seite 392 ff.]
+Die Indianer sagten Diego de Ordaz, »wenn er so und so
+viele Sonnen gegen West hinauffahre, komme er an einen
+großen Fels (<i>peña</i>) von grünem Gestein«; bevor er aber
+diesen vermeintlichen Smaragdberg (Euphotitgestein?) erreichte,
+machte ein Schiffbruch allen weiteren Entdeckungen ein Ende.
 Mit genauer Noth retteten sich die Spanier in zwei kleinen
-FahrzZugen. Sie eilten, aus der Mündung des Amazonen-
-strom»s hinauszukommen, und die Strömungen, die in diesen
-Strichen stark nach Nordtvest gehen, führten Ordaz ·an die
-Küste von Paria oder auf das Gebiet des Caziken von Yuri-
-part (Uriapari, Viapari). Sedefio hatte die case« werte do
-Pkn-jn gebaut, und da dieser Posten ganz nahe an der Mün-
-dung des Orinoco lag, beschloß der mexikanische Conquista-
-dor, eine Expedition aus diesem großen Strom zu versuchen.
-Er hielt sich zuerst in Carao (Caroa, Carora) auf, einem
-großen indianischen Dorf, das mir etwas ostwärts vom Ein-
-fluß des Caronh gelegen zu haben scheint; er fuhr sofort nach
-» « S. Bd. III. Seite 392 ff.
-.o--it-pct»,2-Ieise. us. 18
-
-Ä« « «
+Fahrzeugen. Sie eilten, aus der Mündung des Amazonenstroms
+hinauszukommen, und die Strömungen, die in diesen
+Strichen stark nach Nordwest gehen, führten Ordaz an die
+Küste von Paria oder auf das Gebiet des Caziken von Yuripari
+(Uriapari, Viapari). Sedeño hatte die <i>Casa fuerte de
+Paria</i> gebaut, und da dieser Posten ganz nahe an der Mündung
+des Orinoco lag, beschloß der mexikanische Conquistador,
+eine Expedition auf diesem großen Strom zu versuchen.
+Er hielt sieh zuerst in Carao (Caroa, Carora) auf, einem
+großen indianischen Dorf, das mir etwas ostwärts vom Einfluß
+des Carony gelegen zu haben scheint; er fuhr sofort nach
 Cabruta (Cabuta, Cabritu) hinauf und an den Einfluß des
-Mem (Metacuyu), wo er mit großen Führlichkeiten· seine
-Fahrzeuge über den Runda! von Cariven schaffte. Wir haben
-oben gesehen, daß das Bett des Or-inoco bei der« Einmündung
-des Meta voll Klippen ist. Die Aruacas-Indianer, die Orden
-als Wegweiser dienten, riethen ihm, den Meta hinauszusahren;
+Meta (Metacuyu), wo er mit großen Fährlichkeiten seine
+Fahrzeuge über den Raudal von Cariven schaffte. Wir haben
+oben gesehen, daß das Bett des Orinoco bei der Einmündung
+des Meta voll Klippen ist. Die Aruacas-Indianer, die Ordaz
+als Wegweiser dienten, riethen ihm, den Meta hinaufzufahren;
 sie versicherten ihn, weiter gegen West finde er bekleidete
 Menschen und Gold in Menge. Ordaz wollte lieber auf dem
-Orinoco weiterfahren, aber die .Katarakten bei Tabaje (viel-
-leicht sogar die bei Amtes) nöthigten ihn, seine Entdeckungen
+Orinoco weiterfahren, aber die Katarakten bei Tabaje (vielleicht
+sogar die bei Atures) nöthigten ihn, seine Entdeckungen
 aufzugeben.
+
 Auf diesem Zuge, der lange vor den des Orellana fällt
 und also der bedeutendste war, den die Spanier bis dahin
 auf einem Strome der neuen Welt unternommen, hörte man
-zum erstenmal den Namen Orinoco aussprechen. Ordaz,
+zum erstenmal den Namen <b>Orinoco</b> aussprechen. Ordaz,
 der Anführer der Expedition, versichert, von der Mündung
-bis zum Einfluß des Meta heiße der Strom Uriaparia,
-oberhalb dieses Einflusses aber Drinnen. Dieses Wort ,(ähn-
-lich gebildet wie die Worte Tamanacu, Otomacu, Si-
-narucu) gehört wirklich der tamanakischen Sprache an, und
+bis zum Einfluß des Meta heiße der Strom <b>Uriaparia</b>,
+oberhalb dieses Einflusses aber <b>Orinucu</b>. Dieses Wort 
+(ähnlich gebildet wie die Worte <b>Tamanacu</b>, <b>Otomacu</b>,
+<b>Sinarucu</b>) gehört wirklich der tamanakischen Sprache an, und
 da die Tamanacas süd-östlich von Encaramada wohnen, so ist
 es natürlich, daß die Conquistadoren den jetzigen Namen des
 Stromes erst in der Nähe des Rio Meta zu hören bekamen.
-Auf diesem Nebenfluß erhielt Diego de Ordaz von den Ein-
-geborenen die erste Kunde von civilisirten Völkern, welche auf
+Auf diesem Nebenfluß erhielt Diego de Ordaz von den Eingeborenen
+die erste Kunde von civilisirten Völkern, welche auf
 den Hochebenen der Anden von Neu-Grenada wohnten, »von
-einem gewaltigen, einäugigen Fürsten und von Thieren, klei-
-ner als Hirsche, aus denen man aber reiten könne, wie die
-Spanier auf den Pserden.« Ordaz zweifelte nicht, daß diese
-Thiere Llamas oder 0vejas del Pera seyen. Soll man
+einem gewaltigen, einäugigen Fürsten und von Thieren, kleiner
+als Hirsche, auf denen man aber reiten könne, wie die
+Spanier auf den Pferden.« Ordaz zweifelte nicht, daß diese
+Thiere Llamas oder <i>Ovejas del Peru</i> seyen. Soll man
+annehmen, daß die Llamas, die man in den Anden vor dem
+Pflug und als Lastthiere, aber nicht zum Reiten brauchte,
+früher nördlich und östlich von Quito verbreitet gewesen? Ich
+finde wirklich, daß Orellana welche am Amazonenstrom gesehm
+hat, oberhalb des Einflusses des Rio Negro, also in einem
+Klima, das von dem der Hochebene der Anden bedeutend abweicht.
+Das Mährchen von einem auf Llamas berittenen
+Heere von Omaguas mußte dazu dienen, den Bericht der Begleiter
+Felipes de Urre über ihren ritterlichen Zug an den
+obern Orinoco auszuschmücken. Dergleichen Sagen sind äußerst
+beachtenswerth, weil sie darauf hinzuweisen scheinen, daß die
+Hausthiere Quitos und Perus bereits angefangen hatten von
+den Cordilleren herabzukommen und sich allmählig in den
+östlichen Landstrichen von Südamerika zu verbreiten.
 
-US
-sssHen,daidieAaIa-,diei-anisdensndesoorde-
-IIIg III Cl« LtIHtbitte- «!-et lädt III! Müt! IMM-
-sriher kindlich und Glich von Qnito verbreitet gewesen? Jch
-sinde BEIDE- III Ocellen« welche as AnsazonenittoI gesehen
-hat, oberhalb deOEiIsItsseSde5NioRegw, alfoineine-
-.IliIa, das von des- derHochebene der Juden bedeutend ab-
-.HeecevonOIagta5-ußtedazndienen,denBetithtdekB-
-gleitet Feldes de Um über ihren ritterli«hen Zug an den
-obern Orinoco au5zuschInäcken. Dergleichen Sagen sind äußerst
-kMI7sI!III«'IlI-veilsiedatmtibi1!z1UvckfeuschtEI!sU-d«szdks
-HansthiekeQuito5itndPeku5bekei1saugeiangenhattenvon
-den Cordilleren hekabzukonnnen und sich allmählig in den
-dstlichen Landstrithen von Süda1nerika zu verbreiten.
-Ja: Jahr 1533 wurde Herein, te- S(-(-tzmeifter bei
-Diego3deOrdaz Expedition, vom Statthalter-Geroni1node
-DrtalinitderweiterenE'kfvksch1«1!gdesL)rinocoiaiddes
-stets: beauftragt. Er brachte zwischen Punta Barima und
-dein Eins1nß desCarony fast dreizehn Monate mit dein Bau
-platt« Fahrzeuge und den nothwendiger! Zurt"tstungen zu einer
+Im Jahr 1533 wurde Herera, der Schatzmeister bei
+Diegos de Ordaz Expedition, vom Statthalter Geronimo de
+Ortal mit der weiteren Erforschung des Orinoco und des
+Meta beauftragt. Er brachte zwischen Punta Barima und
+dem Einfluß des Carony fast dreizehn Monate mit dem Bau
+platter Fahrzeuge und den nothwendigen Zurüstungen zu einer
 langen Reise hin. Man liest nicht ohne Verwunderung die
 Erzählung dieser kühnen Unternehmungen, wobei man drei,
-vierhundert Pferde einschisfte, um sie ans Land zu sehen, so
-ostdieReitereia1neinenoderdem andernUferetwasaus-
-richten konnte. Wir sinden bei Hereras Expedition dieselben
+vierhundert Pferde einschiffte, um sie ans Land zu setzen, so
+oft die Reiterei am einen oder dem andern Ufer etwas ausrichten
+konnte. Wir finden bei Hereras Expedition dieselben
 Stationen wieder, die wir bereits kennen gelernt: die Feste
-Paria, das indianische Dorf Uriaparia (wahtscheinlich unterhalb
-Iniataca an einem Punkt, wo sich die Spanier wegen der
-Uebersehwennnung des Telta kein Brennholz vetschaffen konn-
-ten), Caroa in der Provinz Entom, die Flüsse Earanaca
-
-Mc.
-(Caura?) und Eaxavana (Cuchivero ?), das Dorf Cabritu (Ga-
-bruta) und den Runda! ·am Einfluß des Meta. Da der Rit-
-Meta" sehr berühmt war, weil seine Quellen und seine Neben-
-flüsse· den goldhaltigen Cordilleren« von Neu-Grenada (Cundina-
-marca) nahe liegen, so versuchte. er ihn hinausz1tfahren. Er
-fand daselbst eivilisirtere Völker als. am Or-inoco, s-die aber
-das Fleisch stummer Hunde aßen.« In einem Gefecht
-wurde «Herera durch einen mit Curaresaft (Yierva) vergifte-
-ten Pfeile getödtet; ster·bend ernannte er Alvaro de Ordaz zu
+Paria, das indianische Dorf Uriaparia (wahrscheinlich unterhalb
+Imataca an einem Punkt, wo sich die Spanier wegen der
+Ueberschwemmung des Delta kein Brennholz verschaffen konnten),
+Caroa in der Provinz Carora, die Flüsse Caranaca
+(Caura?) und Caxavana (Cuchivero?), das Dorf Cabritu (Cabruta)
+und den Raudal am Einfluß des Meta. Da der Rio
+Meta sehr berühmt war, weil seine Quellen und seine Nebenflüsse
+den goldhaltigen Cordilleren von Neu-Grenada (Cundinamarca)
+nahe liegen, so versuchte er ihn hinaufzufahren. Er
+fand daselbst civilisirtere Völker als am Orinoco, die aber
+das Fleisch <b>stummer Hunde</b> aßen.^[S. Seite 189 ff.]
+In einem Gefecht
+wurde Herera durch einen mit Curaresaft (Yierva) vergifteten
+Pfeile getödtet; sterbend ernannte er Alvaro de Ordaz zu
 seinem Stellvertreter. Dieser führte (1535) die Trümmer der
-Expedition nach der Feste Pari"a zurück, nachdem er vollends
-die wenigen Pferde eingebüßt, die einen achtzehnmon"atlichen
+Expedition nach der Feste Paria zurück, nachdem er vollends
+die wenigen Pferde eingebüßt, die einen achtzehnmonatlichen
 Feldzug ausgehalten.
+
 Dunkle Gerüchte über die Schätze der Völker am Meta
 und andern Nebenflüssen am Ostabhang der Cordilleren von
-NewG«renada veranlaßten nacheinander, in den Jahren 1535
-und 1586, Geronimo» de Ortal, Nicolau.s -Federmann und
-Iorge de E-spira (Georg « von «Speier) zu C«xpeditionen auf
-Landwegen gegen Süd und "Südwest. Vom Vorgebirge Paria
+Neu-Grenada veranlaßten nacheinander, in den Jahren 1535
+und 1536, Geronimo de Ortal, Nicolaus Federmann und
+Jorge de Espira (Georg von Speier) zu Expeditionen auf
+Landwegen gegen Süd und Südwest. Vom Vorgebirge Paria
 bis zum Cabo de la Vela hatte man schon seit den Jahren
-1498 und 1500 in den Händen der Eingeborenen kleine ge-
-gossene Goldbilder,gesehen. Die Hauptmärkte für diese Amu-
-lette, die den Weibern als Schmuck dienten, waren die Dörfer
+1498 und 1500 in den Händen der Eingeborenen kleine gegossene
+Goldbilder gesehen. Die Hauptmärkte für diese Amulette,
+die den Weibern als Schmuck dienten, waren die Dörfer
 Curiana (Coro) und Cauchieto (beim Rio la Hacha). Die
 Gießer in Cauchieto erhielten das Metall aus einem Bergland
 weiter gegen Süden. Die Expeditionen des Ordaz und des
 Herera hatten das Verlangen, diese goldreichen Landstriche
 zu erreichen, natürlich gesteigert. Georg von Speier brach
-- S. Bd. Iv. Seite 189 is.
-
-— 277
 (1535) von Coro auf und zog über die Gebirge von Merida
-an den- Apure und Meta. Er ging über diese beiden Flüsse
+an den Apure und Meta. Er ging über diese beiden Flüsse
 nahe bei ihren Quellen, wo sie noch nicht breit sind. Die
-J«adianer erzählten ihm, weiter vorwärts ziehen weiße Men-
-schen auf den Ebenen umher. Speier, der ,sich nahe am Ama-
-zonenst-com glaubte, zweifelte nicht, daß diese umherziehenden
+Indianer erzählten ihm, weiter vorwärts ziehen weiße Menschen
+auf den Ebenen umher. Speier, der sich nahe am Amazonenstrom
+glaubte, zweifelte nicht, daß diese umherziehenden
 Spanier Schiffbrüchige von der Expedition des Ordaz seyen.
 Er zog über die Savanen von San Juan de los Llanos,
 die reich an Gold seyn sollten, und blieb lange in einem
-indianischen Dorf, Pueblo de Nuestra Sefiora, -später F.ragua
-genannt, südöstlich vom Paramo de- la Sm.na Paz. Ich war
-am Westabhang dieses Bergftocks, in F1isagasuga, und hörte,
-die Ebenen gegen -Ost am Fuß der Berge seyen noch jetzt bei
-den Eingeborenen- wegen ihres Reichthnms berufen. Im volk-
-reichen Dorfe Fragua fand Speier eine Gase« del so! (Son-
-nentempel) und ein Jungfrauenkloster, ähnlich denen in Peru
+indianischen Dorf, Pueblo de Nuestra Señora, später Fragua
+genannt, südöstlich vom Paramo de la Suma Paz. Ich war
+am Westabhang dieses Bergstocks, in Fusagasuga, und hörte,
+die Ebenen gegen Ost am Fuß der Berge seyen noch jetzt bei
+den Eingeborenen wegen ihres Reichthums berufen. Im volkreichen
+Dorfe Fragua fand Speier eine <i>Casa del Sol</i> (Sonnentempel)
+und ein Jungfrauenkloster, ähnlich denen in Peru
 und Neu-Grenada. Hatte sich hier der Cultus gegen Ost
 ausgebreitet, oder sind etwa die Ebenen bei San Juan die
-Wiege desse1ben? Nach der Sage war allerdings Bochica, der
-Gesetzgeber Von Neu-Grenada und Oberpriester von Jraoa,
+Wiege desselben? Nach der Sage war allerdings Bochica, der
+Gesetzgeber von Neu-Grenada und Oberpriester von Iraca,
 von den Ebenen gegen Ost auf das Plateau von Bogota
 herausgekommen. Da aber Bochica in Einer Person Sohn
 nnd Sinnbild der Sonne ist, so kann seine Geschichte rein
 astrologische Allegorien enthalten. Auf seinem weiteren Zuge
 nach Süd ging Speier über die zwei Zweige des Guaviare,
 den Ariare und Guayavero, und gelangte ans Ufer des großen
-Mo Papamene« oder Caqueta. Der Widerstand, den er ein
+Rio Papamene^[S. Bd. III, Seite 356.]
+oder Caqueta. Der Widerstand, den er ein
 ganzes Jahr lang in der Provinz los Choques fand, machte
-« S. Bd. 111. Seite 356.
-
-278
 dieser denkwürdigen Expedition ein Ende (1537), Nicolaus
-Federmann und Geronimo de Ortal verfolgten von fMacara-
-pana und der Mündung des Rio Neveri aus Jorges de Gö-
-pira Spuren. Crsterer suchte Gold im großen Magdalenen-
-strom, letzterer wollte einen Sonnentempel am Ufer des Mem
+Federmann und Geronimo de Ortal verfolgten von Macarapana
+und der Mündung des Rio Neveri aus Jorges de Espira Spuren.
+Ersterer suchte Gold im großen Magdalenenstrom,
+letzterer wollte einen Sonnentempel am Ufer des Meta
 entdecken. Da man die Landessprache nicht verstand, sah
 man am Fuße der Cordilleren überall einen Abglanz der
-großartigen Tempel von Jraca (Sogamozo), dem damaligen
-Mittelpunkt der Cultur in Cundinatnarca.
+großartigen Tempel von Iraca (Sogamozo), dem damaligen
+Mittelpunkt der Cultur in Cundinamarca.
+
 Ich habe bis jetzt aus geographischem Gesichtspunkt die
 Reisen besprochen, welche auf dem Orinoco und gegen West
-und Süd an den Ostabhang der Anden unternommen wur-
-den, bevor sich die Sage vom Dorado unter den Conqui-
-stadoren verbreitet hatte. Diese Sage stammt, wie wir oben
-angeführt, aus dem Königreich O-uito, wo Luis Duca im
+und Süd an den Ostabhang der Anden unternommen wurden,
+bevor sich die Sage vom <b>Dorado</b> unter den Conquistadoren
+verbreitet hatte. Diese Sage stammt, wie wir oben
+angeführt, aus dem Königreich Quito, wo Luis Daça im
 Jahr 1535 einen Indianer aus Neu-Grenada traf, der von
-seinem Fürsten (ohne Zweifel vom ,8ippa von Bogota oder
-vom Zaque von Tunja) abgesandt war, um von Atahualpa,
-dem Inea von Peru, Kriegshitlfe zu erbitten. Dieser Abg-
-sandte pries, wie gewöhnlich, die Sehätze seiner Heimath;
-was aber den Spaniern, die mit Dac;a in der Stadt Ta-
-cunga (Llactaconga) waren, ganz besonders auffiel, das
+seinem Fürsten (ohne Zweifel vom <b>Zippa</b> von Bogota oder
+vom <b>Zaque</b> von Tunja) abgesandt war, um von Atahualpa,
+dem Inca von Peru, Kriegshülfe zu erbitten. Dieser Abgesandte
+pries, wie gewöhnlich, die Schätze seiner Heimath;
+was aber den Spaniern, die mit Daça in der Stadt Tacunga
+(Llactaconga) waren, ganz besonders auffiel, das
 war die Geschichte von einem vornehmen Mann, »der, den
-Körper mit Goldstaub bedeckt, in einen See mitten im G-
-birge ging.« Dieser See könnte die Laguna de Totta, etwas
-ostwärts von Sogamozo (Jraca) und Tunja (Hunca) seyn,
-wo das geistliche und das weltliche Haupt des Reiches Cun-
-dinamarca oder Cundirumarca ihren Sitz hatten; da sich
+Körper mit Goldstaub bedeckt, in einen See mitten im Gebirge
+ging.« Dieser See könnte die Laguna de Totta, etwas
+ostwärts von Sogamozo (Iraca) und Tunja (Hunca) seyn,
+wo das geistliche und das weltliche Haupt des Reiches Cundinamarca
+oder Cundirumarca ihren Sitz hatten; da sich
 aber keinerlei geschichtliche Erinnerung an diesen See knüpft,
 so glaube ich vielmehr, daß mit dem, in welchen man den
-
-279
-vergoldeten großen Herrn gehen ließ, der heilige See
-Guatavita, ostwärts von den Steinsalzgrub·en von Zipa-
-quira, gemeint ist. Ich sah am Rande dieses Wasserbeckens
+<b>vergoldeten großen Herrn</b> gehen ließ, der <b>heilige See
+Guatavita</b>, ostwärts von den Steinsalzgruben von Zipaquira,
+gemeint ist. Ich sah am Rande dieses Wasserbeckens
 die Reste einer in den Fels gehauenen Treppe, die bei den
-gottesdienstlichen Waschungen gebraucht wurde. Die In-
-dianer erzählen, man habe Goldstaub und Goldgeschirr hin-·
-eingeworfen, als Opfer für die Götzen des adokatokio de
-Guo«t-avita. Man sieht noch die Spuren eines Einschnitts,
-den die Spanier gemacht, um den See trinken zu legen. Da
+gottesdienstlichen Waschungen gebraucht wurde. Die Indianer
+erzählen, man habe Goldstaub und Goldgeschirr hineingeworfen,
+als Opfer für die Götzen des <i>adoratorio de
+Guatavita</i>. Man sieht noch die Spuren eines Einschnitts,
+den die Spanier gemacht, um den See trocken zu legen. Da
 der Sonnentempel von Sogamozo den Nordküsten von Terra
 Firma ziemlich nahe liegt, so wurden die Vorstellungen vom
-vergoldeten Mann bald auf einen Oberpriester von der .Sekte
-des Bochica oder Jdacanzas übergetragen, der sich gleichfalls
+vergoldeten Mann bald auf einen Oberpriester von der Sekte
+des Bochica oder Idacanzas übergetragen, der sich gleichfalls
 jeden Morgen, um das Opfer zu verrichten, auf Gesicht und
 Hände, nachdem er dieselben mit Fett eingerieben, Goldstaub
-kleben- ließ. Nach andern Nachrichten, die in einem Schreiben
-Oviedos an den berühmten Cardinal Bembo auibehalten find,
+kleben ließ. Nach andern Nachrichten, die in einem Schreiben
+Oviedos an den berühmten Cardinal Bembo aufbehalten sind,
 suchte Gonzalo Pizarro, als er den Landstrich entdeckte, wo
-die Zimmtbäume wachsen, zugleich ,,einen großen Fürsten,
+die Zimmtbäume wachsen, zugleich »einen großen Fürsten,
 von dem hier zu Lande viel die Rede geht, der immer mit
-Goldstaub überzogen ist, so daß er vom Kopf zum Fuß aus-
-sieht wie uns ügu1-a. d’01-o 1av0rata di mano d’un bu0—
-aissimo oriliee.. Der Goldstaub wird mittelst eines wohl-
-riechenden Harzes am Leibe befestigt; da aber diese Art An-
-zug ihm beim Schlafen unbequem wäre, so wascht sich der
+Goldstaub überzogen ist, so daß er vom Kopf zum Fuß aussieht
+wie <i>una figura. d’oro lavorata di mano d’un buonissimo
+orifice</i>. Der Goldstaub wird mittelst eines wohlriechenden 
+Harzes am Leibe befestigt; da aber diese Art <b>Anzug</b>
+ihm beim Schlafen unbequem wäre, so wascht sich der
 Fürst jeden Abend und läßt sich Morgens wieder vergolden,
-welches beweist, daß das Reich des Dorado ungemein viele
+welches beweist, daß das Reich des <b>Dorado</b> ungemein viele
 Goldgruben haben muß.« Es ist ganz wohl anzunehmen,
 daß unter den von Bochica eingeführten gottesdienstlichen
 Ceremonien eine war, die zu einer so allgemein verbreiteten
-
-278
-dieser denkwürdigen Expedition ein Ende (1537), NicolanI
-Federmann und Geronimo de Ortal verfolgten von Mamm-
-pana und der Mündung des Rio Neveri aus Jorges de C
-pira Spuren. Ersterer suchte Gold im großen MagdaleIeI-
-strom, letzterer wollte einen Sonnentempel am Ufer des Reis
-entdecken. Da man die Landessprakhe nicht Verstand, sah
-man am Fuße der Cordilleren überall einen Abglanz des
-großartigen Tempel von Jraca (Sogamozo), dem damaligen
-Mittelpnnkt der Cnltur in Cnndinamarca.
-Ich habe bis jetzt ans geographischem Gesichtspunkt die
-Reisen besprochen, welche auf dem Orinoco und gegen West
-und Süd an den Ostabhang der Anden unternommen wirr-
-den, bevor sich die Sage vom Dorado unter den Conqni-
-stadoren verbreitet hatte. Diese Sage stammt, wie wir oben
-angeführt, aus dem Königreich Quito, wo Luis Daea« im
-Jahr 1535 einen Indianer aus Nein-Grenada traf, der von
-seinem Fürsten (ohne Zweifel vom Zippa von Bogota oder
-vom Zaque von Tunja) abgesandt war, um von Atahual.pa,
-dem Inca von Pera, Kriegshülfe zu erbitten. Dieser Abgs
-sandte pries, wie gewöhnlich, die Schätze seiner Heimath;
-was aber den Spaniern, die mit Duca in der Stadt Ta-
-cunga (Llactaconga) waren, ganz besonders auffiel, das
-war die Geschichte von einem vornehmen Mann, »der, den
-Körper mit Goldstaub bedeckt, in einen See mitten im G-
-birge ging.« Dieser See könnte die Laguna de Totta, etwas
-ostwärts von Sogamozo (Jraca) und Tunja (Hunca) seyn,
-wo das geistliche und das weltliche Haupt des Reiches Cun-
-dinamarca oder Cundirumarca ihren Sitz hatten; da fah
-aber keinerlei geschichtliche Erinnerung an diesen See knüpft,
-so glaube ich vielmehr, daß mit dem, in welchen man den
-
-278
-dieser denkwürdigen Expedition ein Ende (1537). Nikolaus
-Federmann und Geronimo de Ortal verfolgten von Mamm-
-pana und der Mündung des Mo Neveri aus sorge-I de Es-
-pira Spuren. Ersterer suchte Gold im großen Magdalenen-
-strom, letzterer wollte einen Sonnentempel am Ufer des Mem
-entdecken. Da man die Landessprache nicht verstand, sah
-man am Fuße der (-Jordilleren überall einen Abglanz der
-großartigen Tempel von .Jraca (Sogamozo), dem damaligen
-Mittelpunkt der Cultur in Cundinamarca.
-Ich habe bis jetzt aus geographischem Gesichtspunkt die
-Reisen besprochen, welche auf dem Orinoco und gegen West
-und Süd an den Qstabhang der Anden unternommen wur-
-den, bevor sich die Sage vom Dorado unter den Conqui-
-stadoren verbreitet hatte. Diese Sage stammt, wie wir oben
-angeführt, aus dem Königreich Quito, wo Luis Da(;a im
-Jahr 1535 einen Indianer aus NeruGrenada traf, der von
-seinem Fürsten (ohne Zweifel vom ,8ippa von Bogota oder
-vom Zaque von Tunja) abgesandt war, um von Atahualpa,
-dem Inca von Pera, Kriegshülfe zu erbitten. Dieser Abg-
-sandte pries, wie gewöhnlich, die Schätze seiner Heimath;
-was aber den Spaniern, die mit Daca in der Stadt Ta-
-cunga (Llactaconga) waren, ganz besonders auffiel, das
-war die Geschichte von einem vornehmen Mann, ,,der, den
-Körper mit Goldstaub bedeckt, in einen See mitten im G-
-birge ging.« Dieser See könnte die Laguna de Totta, etwas
-ostwärts von Sogamozo (Jraca) und Tunja (Hunca) seyn,
-wo das geistliche und das weltliche Haupt des Reiches Cun-
-dinamarca oder Cundirumarca ihren Sitz hatten; da sich
-aber keinerlei geschichtliche Erinnerung an diesen See knüpft,
-so glaube ich vielmehr, daß mit dem, in welchen man den
-
-279
-vergoldeten großen Herrn gehen ließ, der heilige See
-Guatavita, ostwärts von den Steinfalzgruben von Zipa-
--;uikq, gemeint ist Ich sah um Rande dieses We·:ssekbeckeies
-die Reste einer in den Fels gehauenen Treppe, die bei den
-gottesdienstlichen Waschungen gebraucht wurde. Die In-
-dianer erzählen, man habe Goldftaub und Goldgeschirr hin-·
-eingeworfen, als Opfer für die Götzen des a(1okato1-io de
-(-’-nat-avita. Man sieht noch die Spuren eines Einschnitts,
-den die Spanier gemacht, um den See tri)cken zu legen. Da
-der Sonnentempel von Sogamozo den Nordküsten von Terra
-Firma ziemlich nahe liegt, so wurden die Vor-stellungen vom
-vergoldeten Mann bald auf einen Oberpriester von der .Sekte
-des Bochica oder Jdacanzas übergetragen, der sich gleichfalls
-jeden Morgen, um das Opfer zu verrichten, auf Gesicht und
-Hände, nachdem er dieselben mit Fett eingerieben, Goldstaub
-kleben— ließ. Nach andern Nachrichten, die in einem Schreiben
-Oviedos an den berühmten Cardinal Bembo aufbehalten find,
-suchte Gonzalo Pizarro, als er den Landstrich entdeckte, wo
-die Zimmtbäume wachsen, zugleich ,,einen großen Fürsten,
-von dem hier zu Lande viel die Rede geht, der immer mit
-Goldstaub überzogen ist, so daß er vom Kopf zum Fuß aus-
-sieht tvie uns. figura d’oro las-0rata di ma.n0 d’un boo-
-nissimo or-its(-e-. Der Goldstaub wird mittelst eines wohl-
-riechenden Harzes am Leibe befestigt; da aber diese Art An-
-zug ihm beim Schlafen unbequem wäre, so wascht sich der
-Fürst jeden Abend und läßt sich Morgens wieder vergolden,
-welches beweist, daß das Neich des Dorado ungemein viele
-Goldgruben haben muß.« Es ist ganz wohl anzunehmen,
-daß unter den von Bochica eingeführten gottesdienftlichen
-Ceremonien eine war, die zu einer so allgemein verbreiteten
-
-Wo
-Sage Anlaß gab. Fand« man· «doch in der neuen» Welt die
-"allerwunderl«ichst·en Gebrauche. In Mexico betnalten "si.ch die
-Qpsecpriester den Körper; ja«fie trugen eine Art Meßgewand
+Sage Anlaß gab. Fand man doch in der neuen Welt die
+allerwunderlichsten Gebräuche. In Mexico bemalten sich die
+Opferpriester den Körper; ja sie trugen eine Art Meßgewand
 mit hängenden Aermeln aus gegerbter Menschenhaut. Ich
-habe Zeichnungen derselben bekannt gemacht, die von· den
-alten Einw«ohnern von Anahuac herrühren und in ihren
-gottesdienstlichen Büchern ausbehalten«sind. ·
+habe Zeichnungen derselben bekannt gemacht, die von den
+alten Einwohnern von Anahuac herrühren und in ihren
+gottesdienstlichen Büchern aufbehalten sind.
+
 Am Rio Caura und in andern wilden Landstrichen von
-Guyana, wo der Körper bemalt statt tätowirt wird,
-reiben sich die Eingeborenen mit Schildl«r«ötenfett ein und
-,lleben sich metallisch glänzende, silberweiße und kupferrothe
-Glimmerblättchen auf die Haut. Von weitem sieht"dieß aus,
-als trügen sie mit Vorten besetzte Kleider. Der Sage vom
-vergoldeten Mann liegt vielleicht ein ähnlicher Brauch zu
+Guyana, wo der Körper <b>bemalt</b> statt <b>tätowirt</b> wird,
+reiben sich die Eingeborenen mit Schildkrötenfett ein und
+kleben sich metallisch glänzende, silberweiße und kupferrothe
+Glimmerblättchen auf die Haut. Von weitem sieht dieß aus,
+als trügen sie mit Borten besetzte Kleider. Der Sage vom
+<b>vergoldeten Mann</b> liegt vielleicht ein ähnlicher Brauch zu
 Grunde, und da es in Neu-Grenada zwei souveräne Fürsten
-gab·,1 den"Lama· in Jraca und das weltliche Oberhaupt oder
+gab,^[Gerade wie im alten Reiche Meroe,
+in Tibet, und wie« der Dairi
+und der Kubo in Japan.]
+den Lama in Iraca und das weltliche Oberhaupt oder
 den Zaque in Tunja, so ist es nicht zu verwundern, daß
 dasselbe Ceremoniell bald dem König, bald dem Oberpriester
-zugeschrieben wird. Ausfallender erscheint es, daß man vom
+zugeschrieben wird. Auffallender erscheint es, daß man vom
 Jahr 1535 an das Land des Dorado ostwärts von den
 Anden gesucht hat. Robertson nimmt in seiner Geschichte des
 neuen Continents an, die Sage sey zuerst Orellana (1540)
 am Amazonenstrom zu Ohren gekommen; aber das Buch des
-Fray Pedro Simon, dem Quesadas, des Eroberers von Cun-
-dirumarca, Aufzeichnungen zu Grunde liegen, beweist das
+Fray Pedro Simon, dem Quesadas, des Eroberers von Cundirumarca,
+Aufzeichnungen zu Grunde liegen, beweist das
 Gegentheil, und bereits im Jahr 1536 suchte Gonzalo Diaz
-de Pineda den vergoldeten Mann jenseits der Niederun-
-gen der Provinz Quixos. Der Gesandte aus Bogota, den
-« Gerade wie im alten Reiche Meroe, in Tibet, und wie« der Dairi
-und der Kubo in Japan.
-
-281 «
-Duca im·«Ttönigreich Quito·4szgetros·sen, hatte von einem ost-
-wärts gelegenen Lande gesprochen; that er etwa so,»weil die
-Hochebene von Neu-Grenada nicht nordwärts, sondern nord-
-ostwärts von O-uito liegt? Man sollte meinen, die Sage
-von einem· nackten, mit Goldstaub überzogenen Mann müßte
+de Pineda den <b>vergoldeten Mann</b> jenseits der Niederungen
+der Provinz Quixos. Der Gesandte aus Bogota, den
+Daça im Königreich Quito angetroffen, hatte von einem ostwärts
+gelegenen Lande gesprochen; that er etwa so, weil die
+Hochebene von Neu-Grenada nicht nordwärts, sondern nordostwärts
+von Quito liegt? Man sollte meinen, die Sage
+von einem nackten, mit Goldstaub überzogenen Mann müßte
 ursprünglich in einem heißen Lande zu Hause seyn, und nicht
-auf den kalten Hochebenen von Cundirumarca, wo» ich den
-T'hermometersz oft unter 4 oder 5 Grad fallen sah; indessen
-ist das Kling in Folge der« ungewöhnlich« Boden!-ils-uns
-auch in» Guatavita, Tunja«, Jraca und am Ufer des Soga-
-mvzo sehr verschieden. Nicht selten behält man gottesdienst"-
-liebe Gebräuche bei, die aus einem andern Erdstrich herrühren,
-und nach alten Sagen ließen die Mut)-3eas ihren ersten Cis
-setzgeber und Stifter ihres Gottesdieustes, Bochica, aus den
+auf den kalten Hochebenen von Cundirumarca, wo ich den
+Thermometer oft unter 4 oder 5 Grad fallen sah; indessen
+ist das Klima in Folge der ungewöhnlichen Bodenbildung
+auch in Guatavita, Tunja, Iraca und am Ufer des Sogamozo
+sehr verschieden. Nicht selten behält man gottesdienstliche
+Gebräuche bei, die aus einem andern Erdstrich herrühren,
+und nach alten Sagen ließen die Muyscas ihren ersten Gesetzgeber
+und Stifter ihres Gottesdienstes, Bochica, aus den
 Ebenen ostwärts von den Cordilleren herkommen. Ich lasse
-unentschieden, ob diese Sagen · auf einer geschichtlichen That-
-sache beruhten oder ob damit, wie schon oben bemerkt, nur
+unentschieden, ob diese Sagen auf einer geschichtlichen Thatsache 
+beruhten oder ob damit, wie schon oben bemerkt, nur
 angedeutet seyn sollte, daß der erste Lama, der Sohn und
-Sinnbild der Sonne ist, nothwendig aus Ländern gegen Auf-
-gang gekommen seyn müsse. Wie dem sey, so viel ist gewiß,
-der Ruf, den der Orinoco, der Meta und die Provinz Pa-
-pamene zwischen den Quellen des Guaviare und Caqueta durch
+Sinnbild der Sonne ist, nothwendig aus Ländern gegen Aufgang
+gekommen seyn müsse. Wie dem sey, so viel ist gewiß,
+der Ruf, den der Orinoco, der Meta und die Provinz Papamene
+zwischen den Quellen des Guaviare und Caqueta durch
 die Expeditionen des Ordaz, Herera und Georgs von Speier
 bereits erlangt, trug dazu bei, die Sage vom Dorado in der
 Nähe des Ostabhangs der Cordilleren zu fixiren.
-Daß« auf der Hochebene von Neu-Grenada drei Heer-
-haufen znsammentrafen, machte, daß sich in ganz Amerika,
-so weit Jes von den Spaniern besetzt war, die Kunde von
-einem noch zu erobernden reichen, stark bevölkerten Lande
-verbreitete Sebastian de Belalcazar zog von Quitv über
 
-· M
-Popayan nach Bogota (1536); Nicolaris Feder-wann kam von
+Daß auf der Hochebene von Neu-Grenada drei Heerhaufen
+zusammentrafen, machte, daß sich in ganz Amerika,
+so weit es von den Spaniern besetzt war, die Kunde von
+einem noch zu erobernden reichen, stark bevölkerten Lande
+verbreitete. Sebastian de Belalcazar zog von Quito über
+Popayan nach Bogota (1536); Nicolaus Federmann kam von
 Venezuela, von Ost her über die Ebenen am Meta. Diese
-beiden Anführer trafen auf der Hochebene von Eundiru-
-marca bereits den vielberufenen Adelantado Gonzalo Xi-
-mene-S de Quesada, von dem ich einen Nachko1nmen bei Zi-
-paquira barfuß das Vieh habe hüten sehen. Das zufällige
-Zusammentreffen der drei Conquistadoren, eines der merk-
-würdigsten und dramatischsten Ereignisse in der G2schichte der
-Eroberung, fand im Jahr 1538 statt. Belalrazar erhitzte
-durch feine Berichte die Phantasie abentenerlustiger Krieger;
-man verglich, was der Indianer aus Tac«unga Luis Da(;a
+beiden Anführer trafen auf der Hochebene von Cundirumarca
+bereits den vielberufenen <b>Adelantado</b> Gonzalo Ximenes
+de Quesada, von dem ich einen Nachkommen bei Zipaquira
+barfuß das Vieh habe hüten sehen. Das zufällige
+Zusammentreffen der drei Conquistadoren, eines der merkwürdigsten
+und dramatischsten Ereignisse in der Geschichte der
+Eroberung, fand im Jahr 1538 statt. Belalcazar erhitzte
+durch seine Berichte die Phantasie abenteuerlustiger Krieger;
+man verglich, was der Indianer aus Tacunga Luis Daça
 erzählt, mit den verworrenen Vorstellungen von den Schätzen
 eines großen einäugigen Königs und von einem bekleideten,
-auf Lamas reitenden Volke, die Ordaz vom Meta mitgebracht
-Pedro de Limpias, ein alter Soldat, der mit Federmann aus
+auf Lamas reitenden Volke, die Ordaz vom Meta mitgebracht.
+Pedro de Limpias, ein alter Soldat, der mit Federmann auf
 der Hochebene von Bogota gewesen war, brachte die erste Kunde
 vom Dorado nach Coro, wo das Andenken an die Expedition
-Georgs von Speier (I535—37) an den Rio Papamene noch
+Georgs von Speier (1535—37) an den Rio Papamene noch
 ganz frisch war. Von dieser selben Stadt Coro aus unternahm
-auch Felipe de Hatten (Urre, Utre) feine vielberufene Reise
+auch Felipe de Hutten (Urre, Utre) seine vielberufene Reise
 in das Gebiet der Omaguas, während Pizarro, Orellana
-und Hernan Perez de Quesada, der Bruder des AJdelantado,
+und Hernan Perez de Quesada, der Bruder des Adelantado,
 das Goldland am Rio Napo, längs des Amazonenstroms und
-in der östlichen Kette der Linden von Neu-Grenada suchten.
+in der östlichen Kette der Anden von Neu-Grenada suchten.
 Die Eingeborenen, um ihrer unbequemen Gäste los zu werden,
-versicherten aller Orten, zum Dorado seh leicht zu kommen,
+versicherten aller Orten, zum Dorado sey leicht zu kommen,
 und zwar ganz in der Nähe. Es war wie ein Phantom,
-das vor den Spaniers: entwich und ihnen beständig zurief. Es
+das vor den Spaniern entwich und ihnen beständig zurief. Es
 liegt in der Natur des flüchtigen Erdenbewohners, daß er das
 Glück in der unbekannten Weite sucht. Der Dorado, gleich
+dem Atlas und den hesperischen Inseln, rückte allgemach vom
+Gebiet der Geographie auf das der Mythendichtung hinüber.
 
-Celsiet set sesg-site -? I-I :-» II-U-ans-; te-satt.
-eiIgelIåd-e- S-IS is s.Ds’sbI-It.  -ist -It: :-ja:-t-r R«
-Hi- T· It-I des--Its sag- It-ei-III-: z1r:-ists-IT-V dir
-.IieIItIi5 -I Jst-I I-ais-S: fu« I(-jin«-: de-« AUTOR
-Di-sie,IsiejsderJI:1xII-to1ckgstvgteTXwtitu nickt
- ad- in taro!-liegt-di-IS-or
-teruugkauui«hIichtIrlvi ds1U1nst-iudt-uansd1lrm, die
-aufdie EutDetsIIIg der alten und neun:-Sara-«-I unmittelbar
-Einfluß gehabt habet. herum- Peke.z de Quesada suchte nach
-der Abreise seines Bruders, de-I Adel-1ntado, na(i·") Europa
-von neue1n(1539), diesmal aber im Verglande nordösili(b
-von Bogota, den Sonnentempel (0usa del Sols, von dem
-Geronimo de Ortal (1536) am Mein hatte sprechen hören.
+Die vielfachen Unternehmungen zur Aufsuchung dieses
+eingebildeten Landes zu erzählen, liegt nicht in meiner Absicht.
+Ohne Zweifel verdankt man denselben großentheils die
+Kenntniß vom Innern Amerikas; sie leisteten der Geographie
+Dienste, wie ja der Irrthum oder gewagte Theorien nicht
+selten zur Wahrheit führen; aber in der vorliegenden Erörterung
+kann ich mich nur bei den Umständen aufhalten, die
+auf die Entwerfung der alten und neuen Karten unmittelbar
+Einfluß gehabt haben. Hernan Perez de Quesada suchte nach
+der Abreise seines Bruders, des Adelantado, nach Europa
+von neuem (1539), dießmal aber im Berglande nordöstlich
+von Bogota, den Sonnentempel (<i>Casa del sol</i>), von dem
+Geronimo de Ortal (1536) am Meta hatte sprechen hören.
 Der von Bochica eingeführte Sonnendienst und der hohe Ruf
-des HeiligthumS zu J-caea oder Sogamozo gaben Anlaß zu
+des Heiligthums zu Iraca oder Sogamozo gaben Anlaß zu
 jenen verworrenen Gerüchten von Tempeln und Götzenbildern
-aus massivem Golde; aber auf den Bergen wie in den Nic-
-derungen glaubte man immer weit davon zu seyn, weil die
-Wirklichkeit den chimärischen Träumen der EinbildungsIrast
-so wenig entsprach. Franci-see de Orellana fuhr, nachdem er
-mit Pizaktv den Dorado in der Pkovjn(-in do los (-«--sc-.l0-«
+aus massivem Golde; aber auf den Bergen wie in den Niederungen
+glaubte man immer weit davon zu seyn, weil die
+Wirklichkeit den chimärischen Träumen der Einbildungskraft
+so wenig entsprach. Francisco de Orellana fuhr, nachdem er
+mit Pizarro den Dorado in der <i>Provincia de los canelos</i>
 und an den goldhaltigen Ufern des Napo vergebens gesucht,
-den großen Amazvnenstrom hinunter (1540). Er fand dort
-zwischen den Mündungen des Iavari und des Mo de la
-Trinidad (Yupnra?) einen goldreiehen Lands«-ich, genannt
-Machiparo (Muchisaro), in der Nähe des Aon1aguas »der
-O-agna5. Diese Kunde trug dazu bei, das; «:-et T-Hab»
-sidosiIuirt5 verlegt wurde, denn L-tnagnae sc-in-«-,;u«h
-
-284"
-Aguas), Dit-Aguas und Papamene waren Benennungen
+den großen Amazonenstrom hinunter (1540). Er fand dort
+zwischen den Mündungen des Javari und des Rio de la
+Trinidad (Yupura?) einen goldreichen Landstrich, genannt
+Machiparo (Muchifaro), in der Nähe des Aomaguas oder
+Omaguas. Diese Kunde trug dazu bei, daß der Dorado
+südostwärts verlegt wurde, denn <b>Omaguas</b> (Om-aguas,
+Aguas), <b>Dit-Aguas</b> und <b>Papamene</b> waren Benennungen
 für dasselbe Land, für das, welches Georg von Speier auf
-seinem Zuge an den Caqueta entdeckt hatte. Mitten«a"uf den
-Niederungen- nordwärts vom Amazonenstrom wohnten die
-Omaguas, die Manaos oder Ma"noa-S und die Guaype«s
-(Uaupes oder Guayu.pes), drei mächtige Völker, deren letzteres,
-dessen Wohnsitze westwärts am Gu«aupe oder Uaupe liegen,
-schon in den Reiseberichten Quesadag und Hutten·g erwähnt
-wird. Diese beiden in der Geschichte Amerikas gleich berühm-
-ten "Conquistadoren kamen auf verschiedenen Wegen in die
-LlanoS von San Juan, die damals Balle- de Nuestra
-SefIora hießen. Hernan Perez de Quesada ging (1541)
+seinem Zuge an den Caqueta entdeckt hatte. Mitten auf den
+Niederungen nordwärts vom Amazonenstrom wohnten die
+<b>Omaguas</b>, die <b>Manaos</b> oder Manoas und die <b>Guaypes</b>
+(Uaupes oder Guayupes), drei mächtige Völker, deren letzteres,
+dessen Wohnsitze westwärts am Guaupe oder Uaupe liegen,
+schon in den Reiseberichten Quesadas und Huttens erwähnt
+wird. Diese beiden in der Geschichte Amerikas gleich berühmten
+Conquistadoren kamen auf verschiedenen Wegen in die
+Llanos von San Juan, die damals <b>Valle de Nuestra
+Señora hießen. Hernan Perez de Quesada ging (1541)
 über die Cordilleren von Cundirumarca, wahrscheinlich zwischen
 den Paramos Chingasa und Suma Paz, während Felipe de
 Hutten, in Begleitung Pedro-s de Limpias (desselben, der
-von den Hochebenen von Bogota die erste Kunde vom Do-
-rado nach Venezuela gebracht hatte) von Nord nach Süd
-den Weg einschlug, auf dem Georg von Speier am Ostab-
-hang der Gebirge hingezogen war. Hutten brach von Coro,
-dem Hauptsitz der deutschen Faktorei oder Gesellschaft der
-Weiser auf, als Heinrich Remboldt an der Spitze derselben
+von den Hochebenen von Bogota die erste Kunde vom Dorado
+nach Venezuela gebracht hatte) von Nord nach Süd
+den Weg einschlug, auf dem Georg von Speier am Ostabhang
+der Gebirge hingezogen war. Hutten brach von Coro,
+dem Hauptsitz der <b>deutschen Faktorei</b> oder Gesellschaft der
+Welser auf, als Heinrich Remboldt an der Spitze derselben
 stand. Nachdem er über die Ebenen am Casanare, Meta und
 Caguan gezogen (1541), kam er an den obern Guaviare
 (Guayuare), den man lange für den Ursprung des Orinoco
@@ -9044,824 +8936,785 @@ Nicht weit vom rechten Ufer des Guaviare kam Hutten in
 die Stadt der Guaypes, Macatoa. »Das Volk daselbst trug
 Kleider, die Felder schienen gut angebaut, alles deutete auf
 eine Cultur, die sonst diesem heißen Landstrich im Osten der
+Cordilleren fremd war. Wahrscheinlich war Georg von Speier
+bei seinem Zuge an den Rio Caqueta und in die Provinz
+Papamene weit oberhalb Macatoa über den Guaviare gegangen,
+bevor die beiden Zweige dieses Flusses, der Ariari
+und der Guayavero, sich vereinigen. Hutten erfuhr, auf dem
+Wege weiter nach Südost komme er auf das Gebiet der großen
+Nation der Omaguas, deren Priester-König Quareca heiße
+und große Heerden von Llamas besitze. Diese Spuren von
+Cultur, diese alten Verbindungen mit der Hochebene von
+Quito scheinen mir sehr bemerkenswerth. Wir haben schon
+oben erwähnt, daß Orellana bei einem indianischen Häuptling
+am Amazonenstrom Llamas gesehen, und daß Ordaz auf den
+Ebenen am Meta davon hatte sprechen hören.
 
-I
-II
-CordiIleteI it-II II. stinkt!-"I:-":ck te: Saat; us Erei-
-beiseinesIk-Isd-I·sCs-e"-· nd it die«-Bkou"nz
-gangen, beIsortielIir-Fj:e-"-ge  mItiari
-nnd dekJCnay-I-so,  H-In-sinkt, ans Nu
-Wege tIIeitekItIhSidt.·i·tc1.-se erst? U§ Gebiet der grt«§t«n
-Nation der D-g-s:·, d-et Priester-König Luni-ers heiße
-und große Heerde- as- Sienas lenke. Hefe Spuren von
-Ctlltnr,diefealtesVal«iI.duIgenItnd-kHu·hebeIIevon
-Qnito schritten mir sehr!-escekken5:oekth. Wir hat-enschon
-oben erwähnt, daß Orellana bei einein indianischen H-inptling
-am A1nazonenftronc L1a1na5 gesehen, und laß Ordaz auf den
-Ebenen am Mein davon hatte sprechen 
-Ichhalte nich nntanda-is, was in das Bereich der
-Geographie fallt, und beschreibe weder nach Hatten jene un-
-erkneßlich große Stadt, die er von weitem gesehen, noch
-das Gefecht mit den Omagnas, wobei 39 Spanier (ihker !-i
-sind in den Nachrichten ans jener Zeit namentlich aufgeführt)
-mit 15,000 Indianetn zu thun hatten. Diese lügenhaften
-Berichte haben zur Ansfcbtnückung der Sage vom Dokado
-sehr vie! beigetragen. Der Namen der Stadt der Omagnas
-kommt in Hattens Bericht nicht vor, aber die Manoa-I, von
-denen· Pater F-ritz noch im siebzehnten Jahrhundert in seiner
-Mission Yurimagna-s Goldbleche erhielt, find Nachbarn der
-Omaguas. Später wurde der Namen Manoa ans dein
-Lande der Amazonen auf eine eingebildete Stadt im Do-
-tado der Parime übergetragen. Der bedeutende Ruf, in
-dem die Länder zwischen dem Caqueta (Papamene) und (-i1uanpe
-(einem Nebenfluß des Rio Negro) standen, veranlaßte (lr-tin)
+Ich halte mich nur an das, was in das Bereich der
+Geographie fällt, und beschreibe weder nach Hutten jene unermeßlich
+große Stadt, <b>die er von weitem gesehen<b>, noch
+das Gefecht mit den Omaguas, wobei 39 Spanier (ihrer 14
+sind in den Nachrichten aus jener Zeit namentlich aufgeführt)
+mit 15,000 Indianern zu thun hatten. Diese lügenhaften
+Berichte haben zur Ausschmückung der Sage vom Dorado
+sehr viel beigetragen. Der Namen der Stadt der Omaguas
+kommt in Huttens Bericht nicht vor, aber die Manoas, von
+denen Pater Fritz noch im siebzehnten Jahrhundert in seiner
+Mission Yurimaguas Goldbleche erhielt, sind Nachbarn der
+Omaguas. Später wurde der Namen Manoa aus dem
+Lande der Amazonen auf eine eingebildete Stadt im <b>Dorado
+der Parime</b> übergetragen. Der bedeutende Ruf, in
+dem die Länder zwischen dem Caqueta (Papamene) und Guaupe
+(einem Nebenfluß des Rio Negro) standen, veranlaßte (1560)
 Pedro de Ursua zu der unheilvollen Expedition, welche mit
-
-. M »
-der Empörung des Tyrannen« Agnitre« endigte. Als er den
-Eaqueta hinabfuhr, um sofort in den Olmazonenstrom zu ge
-langen, hörte Ursua von der Provinz Earicnri sprechen.
+der Empörung des Tyrannen Aguirre^[S. Bd. I. Seite 233]
+endigte. Als er den
+Caqueta hinabfuhr, um sofort in den Amazonenstrom zu gelangen,
+hörte Ursua von der Provinz <b>Caricuri</b> sprechen.
 Diese Benennung weist deutlich auf das Goldland hin,
-denn, wie ich sehe, heißt Gold auf tamanakifch Earicuri,
-auf caraibisch Earucuru. Sollte der Ausdruck für Gold bei
-den Völkern am Orinoco ein Fremdwort seyn, wie Zucker
-und Eoton in den europäischen Sprachen? Dieß wiese wohl
+denn, wie ich sehe, heißt Gold auf tamanakisch <b>Caricuri</b>,
+auf caraibisch <b>Carucuru</b>. Sollte der Ausdruck für <b>Gold</b> bei
+den Völkern am Orinoco ein Fremdwort seyn, wie <b>Zucker</b>
+und <b>Coton</b> in den europäischen Sprachen? Dieß wiese wohl
 darauf hin, daß diese Völker die edlen Metalle mit den fremden
-Erzeugnissen haben kennen lernen, die ihnen von denEordilleren'«
+Erzeugnissen haben kennen lernen, die ihnen von den Cordilleren^[Im
+Peruvianischen oder dem Oquichua (<i>Lengua del Inga) heißt
+Gold <b>Cori</b>, woher <b>Chichicori</b>, Goldstaub, und <b>Corikoya</b>, Golderz]
 oder von den Ebenen am Ostabhang der Anden zugekommen.
+
 Wir kommen jetzt zum Zeitpunkt, wo der Mythus vom
-Dorado sich im öftlichen Strich von Guyana, zuerst beim
+Dorado sich im östlichen Strich von Guyana, zuerst beim
 angeblichen See Cassipa (an den Ufern des Paragua, eines
 Nebenflusses des Carony), und dann zwischen den Quellen des
-Rio Essequebo und des Mo Branco, festfetzte. Dieser Umstand
+Rio Essequebo und des Rio Branco, festsetzte. Dieser Umstand
 ist vom bedeutendsten Einfluß auf die Geographie dieser Länder
 gewesen. Antonio de Verrio, der Schwiegersohn und einzige
-Erbe des großen Adelantado Ximenez de Quefada, ging· west-
-wärts von Tunja über die Cordilleren, schiffte sich auf dem
-Mo Casanare ein und fuhr auf diesem Fluß, auf dem Meta
+Erbe des großen Adelantado Ximenez de Quesada, ging westwärts
+von Tunja über die Cordilleren, schiffte sich auf dem
+Rio Casanare ein und fuhr auf diesem Fluß, auf dem Meta
 und Orinoco hinab nach der Insel Trinidad. Wir wissen von
 dieser Reise fast nur, was Ralegh davon berichtet; sie scheint
 wenige Jahre vor die erste Gründung von Vieja Guayana
 im Jahr 1591 zu fallen. Einige Jahre darauf (1595) ließ
-Berrio durch seinen Masse de 0amp0, Domingo de Vera,
-eine Expedition von 2000 Mann an-Brüsten, welche «den
-« S. Bd. 1. Seite 233. «
-« Jm Peruvianischen oder dem Qquichua (l«engus del links) heißt
-Gold Cori, woher Chichi«cori, Goldstaub, und Eorikoya, Golde;-«·
-
-B?
-Drinnen hinaufgehen und den Dorn!-o erobern sollte, den man
-fest das Land Nation, sogar Lugano de la G-In
-lis:-an zu ne-tm anfing. Reiche  ver-
-ka-fte-ibwHsfe--desKt-wa mitz««mi1cheu- tm sich
-Iodlf Obsetvanten und zehn Beltgeistli·he anschlosfen. Die
-Wahren eines PwisseuRartinez (Juan Martin de Albujar!),
-derbei de!-CI;-edition des-DiegodeOrdaz wollte zurückge-
-lassen und vonStadt zuStadt in die Hauptstadt de-sDorado
-geschleppt Ivvtk-es M, M« BEIDE Ph(mtusie sthidt— W«-S
-UtfskCpIIC1Ikstsdvt ccUfd0kF«h1'k  herab sckVst
+Berrio durch seinen <i>Maese de Campo</i>, Domingo de Vera,
+eine Expedition von 2000 Mann ausrüsten, welche den
+Orinoco hinaufgehen und den Dorado erobern sollte, den man
+jetzt das <b>Land Manoa</b>, sogar <b>Laguna de la Gran
+Manoa</b> zu nennen anfing. Reiche Grundeigenthümer verkauften
+ihre Höfe, um den Kreuzzug mitzumachen, dem sich
+zwölf Observanten und zehn Weltgeistliche anschlossen. Die
+Mähren eines gewissen Martinez (Juan Martin de Albujar?),
+der bei der Expedition des Diego de Ordaz wollte zurückgelassen
+und von Stadt zu Stadt in die Hauptstadt des Dorado
+geschleppt worden seyn, hatten Berrios Phantasie erhitzt. Was
+dieser Conquistador auf der Fahrt den Orinoco herab selbst
 beobachtet, ist schwer von dem zu unterscheiden, was er, wie
-er angiebt, aus einem in Port-rieo aufbewahrten Tagebuche
+er angiebt, aus einem in Portorico aufbewahrten Tagebuche
 des Martinez geschöpft hat. Man sieht, man hatte damals
 vom neuen Continent im Allgemeinen dieselben Vorstellungen,
-wie wir so lange von Afrika. Man meinte· tiefer im Lande
+wie wir so lange von Afrika. Man meinte tiefer im Lande
 mehr Cultur anzutreffen als an den Küsten. Bereits Juan
-Gonzalez, den Diego de Ordaz abgesandt hatte, die Ufer des
-Orinoco zu untersuchen (153I), behauptete, ,,je weiter man
-auf dem Orinoco hinauf komme, desto stärker werde die Be-
-völkerung« Bei-rio erwähnt zwischen den Mitndungen des
+Gonzalez, den Diego de Qrdaz abgesandt hatte, die Ufer des
+Orinoco zu untersuchen (1531), behauptete, »je weiter man
+auf dem Orinoco hinauf komme, desto stärker werde die Bevölkerung«.
+Berrio erwähnt zwischen den Mündungen des
 Meta und des Cuchivero der häufig unter Wasser stehenden
-Provinz Amapaja, wo er viele kleine gegossene goldene Götzen-
-bilder gefunden, ähnlich denen, welche in Cauchieto östlich von
-Coro verfertigt wurden. ;Er meinte, dieses Gold komme aus
+Provinz Amapaja, wo er viele kleine gegossene goldene Götzenbilder gefunden, ähnlich denen, welche in Cauchieto östlich von
+Coro verfertigt wurden. Er meinte, dieses Gold komme aus
 dem Granitboden des bergigten Landes zwischen Carichana,
-Uruana und dem Cuchivero. Und allerdings haben in neue-
-rer Zeit die Eingeborenen in der Quem-ada (le1 tig-ro bei
-der Mission Encaramada ein Goldgeschiebe gefunden« Ostwärts
-" S. Bd. IIl. Seite Cl.
-
-von- der Provinz Amapaja erwähnt Berrio des Mo Carony
-(Carolh), ;den man aus einem großen See entspringen ließ,
-weil man einen der Nebenslüsse des Carony, den» Rio Para-
-gua (Fluß des großen Wasse-rs), aus Unbekanntschaft mit
-den indianischen Sprachen, für ein Binnenmeer gehalten
-hatte. Mehrere spanische Geschichtschreiber glaubten, dieser·
-See·, -die Quelle des Carony, sey Berrios Gran Manoa;
+Uruana und dem Cuchivero. Und allerdings haben in neuerer Zeit
+die Eingeborenen in der <i>Quebadra del tigre</i> bei
+der Mission Encaramada ein Goldgeschiebe gefunden.^[S. Bd. III. Seite
+61.] Ostwärts
+von der Provinz Amapaja erwähnt Berrio des Rio Carony
+(Caroly), den man aus einem großen See entspringen ließ,
+weil man einen der Nebenflüsse des Carony, den Rio Paragua
+(Fluß des <b>großen Wassers</b>), aus Unbekanntschaft mit
+den indianischen Sprachen, für ein <b>Binnenmeer</b> gehalten
+hatte. Mehrere spanische Geschichtschreiber glaubten, dieser
+See, die Quelle des Carony, sey Berrios <b>Gran Manoa</b>;
 aber aus den Nachrichten, die Berrio Ralegh mitgetheilt, ist
-ersichtli»ch, daß man annahm, die Laguna de Manna (del
-Dorado oder de Parime) liege südlich vom Rio Paragua,
-aus dem man die Laguna Cassipa gemacht hatte. -»Diese
+ersichtlich, daß man annahm, die <b>Laguna de Manoa</b> (del
+<b>Dorado</b> oder <b>de Parime</b>) liege südlich vom Rio Paragua,
+aus dem man die <b>Laguna Cassipa</b> gemacht hatte. »Diese
 beiden Wasserbecken hatten goldhaltigen Sand; aber am Ufer
-des Cassipa lag Macureguaira (Margureguaira), die Haupt-
-stadt des Caziken Aromaja und die vornehmste Stadt des ein-
-gebildeten Reiches Guyana.« » ·
-Da diese häufig überschwemmten Landsiriche von jeher
+des Cassipa lag Macureguaira (Margureguaira), die Hauptstadt
+des Caziken Aromaja und die vornehmste Stadt des ein-
+gebildeten Reiches Guyana.«
+
+Da diese häufig überschwemmten Landstriche von jeher
 von Völkern caraibischen Stammes bewohnt waren, die tief
-ins Land hinein mit den entlegensten Gegenden einen unge-
-mein lebhaften Handel trieben, so ist nicht zu verwundern,
-daß man hier bei den Indianern mehr Gold fand als irgend-
-wo. Die Eingeborenen im Küstenland brauchten dieses Metall
+ins Land hinein mit den entlegensten Gegenden einen ungemein
+lebhaften Handel trieben, so ist nicht zu verwundern,
+daß man hier bei den Indianern mehr Gold fand als irgendwo.
+Die Eingeborenen im Küstenland brauchten dieses Metall
 nicht allein zum Schmuck und zu Amuletten, sondern auch in
 gewissen Fällen als Tauschmittel. Es erscheint daher ganz
-natürlich, daß das Gold an den .Kü·sten von Paria und bei
+natürlich, daß das Gold an den Küsten von Paria und bei
 den Völkern am Orinoco verschwunden ist, seit der Verkehr
 mit dem Innern durch die Europäer abgeschnitten wurde. Die
-unabhängig gebliebenen Eingeborenen sind gegenwärtig unzwei-
-felhaft elender, träger und versunkener als vor der Eroberung.
+unabhängig gebliebenen Eingeborenen sind gegenwärtig unzweifelhaft
+elender, träger und versunkener als vor der Eroberung.
 Der König von Morequito, derselbe, dessen Sohn Ralegh nach
 England mitgenommen hatte, war im Jahr 1594 nach
-
-289
-Cumana gekommen, um gegen eine große Menge massiver Gold-
-bildet eiserne Geräthe und europäische Waaren einzumischen.
+Cumana gekommen, um gegen eine große Menge massiver Goldbilder
+eiserne Geräthe und europäische Waaren einzutauschen.
 Dieses unerwartete Auftreten eines indianischen Häuptlings
 steigerte noch den Ruf der Schätze des Orinoco. Man stellte
 sich vor, der Dorado müsse nicht weit vom Lande seyn, aus
 dem der König von Morequito gekommen; und da das Land
-«dort häufig unter Wasser stand, und die Flüsse die allge-
-meinen Namen: ,,großes Meer,« ,«,großes Wasserstück« führten,
-so mußte fich der Dorado am Ufer eines Sees befinden. Man
+dort häufig unter Wasser stand, und die Flüsse die allgemeinen
+Namen: »großes Meer,« »großes Wasserstück« führten,
+so mußte sich der Dorado am Ufer eines Sees befinden. Man
 dachte nicht daran, daß das Gold, das die Caraiben und
-andere Handelsvölker mitbrachten, so wenig ein Erzeugnis;
+andere Handelsvölker mitbrachten, so wenig ein Erzeugniß
 ihres Bodens war, als die brasilianischen und ostindischen
 Diamanten Erzeugnisse der europäischen Länder sind, wo sie sich
-am -meisten zusammenhäuft. Berrios C«xpedition, die, während
-die Schiffe in Cumana, bei Margarita .und Trinidad anlegten,
+am meisten zusammenhäuft. Berrios Expedition, die, während
+die Schiffe in Cumana, bei Margarita und Trinidad anlegten,
 sehr stark an Mannschaft geworden war, ging über Morequito
-(bei Bieja Guayana) dem Mo Paragua, einem .Nebenfluß
-des Caronh, zu; aber Krankheiten, der wilde Muth der Ein-
-geborenen und der Mangel an Lebensmitteln setzten dem Zug
-der Spanier unübersteigliche .Hindernisse entgegen. Alle gingen
+(bei Vieja Guayana) dem Rio Paragua, einem Nebenfluß
+des Carony, zu; aber Krankheiten, der wilde Muth der Eingeborenen
+und der Mangel an Lebensmitteln setzten dem Zug
+der Spanier unübersteigliche Hindernisse entgegen. Alle gingen
 zu Grunde bis auf dreißig, welche im kläglichsten Zustand
-zum Posten Santo Thome zur-ückkamen.
+zum Posten Santo Thome zurückkamen.
+
 Diese Unfälle kühlten den Eifer, mit dem bis zur Mitte
-des fiebzehnten Jahrhunderts der Dorado aufgesucht wurde,
+des siebzehnten Jahrhunderts der Dorado aufgesucht wurde,
 keineswegs ab. Der Statthalter von Trinidad, Antonio de
 Berrio, wurde von Sir Walter Ralegh gefangen genommen,
 als dieser im Jahr 1595 den vielberufenen Einfall auf die
 Küste von Venezuela und an die Mündungen des Orinoco
-machte. Von Berrio und andern Gefangenen, die Capitc«in
+machte. Von Berrio und andern Gefangenen, die Capitän
 Preston bei der Einnahme von Caracas gemacht, konnte
-direct«-ldt, Ieise. IV. II
-
-No .
 Ralegh Alles in Erfahrung bringen, was man damals von den
-Ländern südwärts von Vieja Gnayana. wußte. Er« glaubte
-an die Mährchen, welche Juan Martin de Ulbuja«t ausgeheckt,
-und zweifelte weder an der Existenz der beiden Seen Eassipa
+Ländern südwärts von Vieja Guayana. wußte. Er glaubte
+an die Mährchen, welche Juan Martin de Ulbujar ausgeheckt,
+und zweifelte weder an der Existenz der beiden Seen Cassipa
 und Ropunuwini, noch am Bestehen des großen Reichs des
-J-neu, das flüchtige Fürsten (nach Atahualpas Tode) an den
+Inca, das flüchtige Fürsten (nach Atahualpas Tode) an den
 Quellen des Rio Essequebo gegründet haben sollten. Die
 Karte, welche Ralegh entworfen und deren Geheimhaltung
-er Lord Eharles Howard empfahl, besitzen wir nicht mehr;
+er Lord Charles Howard empfahl, besitzen wir nicht mehr;
 aber der Geograph Hondius hat diese Lücke ausgefüllt; ja er
-gibt seiner Karte ein Verzeichniß von Laugen- und Breiten-
-angaben bei, wobei die Laguna delDorado und die kai-
-serliche Stadt Manoas vorkommen. Während Ralegh
-an der Punta del Gallo (auf der Insel Trinidad) sich auf-
-hielt, ließ er durch feine Unterbefehlshaber -die Mündungen
-des Orinoco, namentlich die von Capuri, Gran Amana (Ma-
-namo grande) und Macureo (Macareo)« untersuchen. Da
+gibt seiner Karte ein Verzeichniß von Längen- und Breitenangaben
+bei, wobei die <b>Laguna del Dorado</b> und die <b>kaiserliche
+Stadt Manoas</b> vorkommen. Während Ralegh
+an der Punta del Gallo (auf der Insel Trinidad) sich aufhielt,
+ließ er durch seine Unterbefehlshaber die Mündungen
+des Orinoco, namentlich die von Capuri, Gran Amana (Manamo
+grande) und Macureo (Macareo)^[S. Seite 222ff.] untersuchen. Da
 seine Schiffe einen bedeutenden Tiefgang hatten, hielt es sehr
-schwer, in die hoc-as (-hie-is einzulaufen, und er mußte sich
+schwer, in die <b>bocas chicas</b> einzulaufen, und er mußte sich
 flache Fahrzeuge bauen lassen. Er bemerkte die Feuer der
 Tivitivas (Tibitibies) vom Stamme der Guaraons auf den
-Mauritiapalmen, deren Frucht,2 t’ku(-tum squamo1-um, si-
-miIem Palmen- Pinj, er zuerst nach Europa gebracht hat.
+Mauritiapalmen, deren Frucht,^[S. Seite 226] <i>fructum squamorum,
+similem Palmae Pini</i>, er zuerst nach Europa gebracht hat.
 Es wundert mich, daß von der Niederlassung, die Berrio
-unter dem Namen Santo Thome (Ia Vieja Guayaksa) ge-
-gründet, so gut wie gar nicht die Rede ist; und doch reicht
+unter dem Namen Santo Thome (<i>la Vieja Guayana</i>) gegründet,
+so gut wie gar nicht die Rede ist; und doch reicht
 dieselbe bis zum Jahr 1591 hinauf, und obgleich nach Fray
-Pedro Simon ,,Religion und Politik jeden Handelsverkebr
-« S. oben Bd. IV. Seite« 222 ff. die Topographie des Or.-inocodelta.
-« S. Bd. lV.. Seite 226.
-
-291 -
-zwischen Ehristen (Spaniern) und Ketzern (Holländern und
-Engländern) verbieten,« wurde damals, am Ende des fech-
-zehnten Jahrhunderts, wie gegenwärtig, ein lebhafter Schleich-
-handel über die Mündungen des Orinoco getrieben. Ralegh
-ging—über den Fluß Europa (Guarapo) und »die Ebenen
-der Saymas (Ehahmas),1 die im selben Niveau bis Eu-
-mana und Earacas fortstreichen;« in Morequito (vielleicht
+Pedro Simon »Religion und Politik jeden Handelsverkehr
+zwischen Christen (Spaniern) und Ketzern (Holländern und
+Engländern) verbieten,« wurde damals, am Ende des sechzehnten
+Jahrhunderts, wie gegenwärtig, ein lebhafter Schleichhandel
+über die Mündungen des Orinoco getrieben. Ralegh
+ging über den Fluß <b>Europa</b> (Guarapo) und »die Ebenen
+der <b>Saymas</b> (Chaymas),^[S. Bd. II. Seite 12.] die im selben
+Niveau bis Cumana und Caracas fortstreichen;«
+in Morequito (vielleicht
 etwas nordwärts von Villa de Upata in den Missionen am
-Earony) machte er Halt, und hier bestätigte ihm ein alter
-Eazile alle phantaftischen Vorftellungen Berrios von einem
+Carony) machte er Halt, und hier bestätigte ihm ein alter
+Cazike alle phantastischen Vorstellungen Berrios von einem
 Einfall fremder Völker (Orejones und Epuremei) in Guyana.
-Die Katarakten des Caroli (Earony), welcher Fluß damals
-für den kürzeften Weg zu den beiden am See Eassipa und
-am See Nupunuwini oder Dorado gelegenen Stadien Ma-
-cureguarai und Manoa galt, steckten der Expedition ein Ziel.
+Die Katarakten des Caroli (Carony), welcher Fluß damals
+für den kürzesten Weg zu den beiden am See Cassipa und
+am See Nupunuwini oder <b>Dorado</b> gelegenen Städten Macureguarai
+und Manoa galt, steckten der Expedition ein Ziel.
+
 Ralegh hat den Orinoco nur auf einer Strecke von kaum
-so Meilen befahren; er nennt aber nach den schwankenden
-Angaben, die er zusammengebracht, die obern .8uflüsse, den
-Takt, den Pao, den Apure (Eapuri?), den Guarico (Voaki?),
-den Meta, fogar »in der Provinz Baraguan den großen Wasser-
-fall Athule (Atures), der aller weiteren Flußfahrt ein Ende
-macht« Trotz feiner Ueber-treibungen, die sich für einen Staats-
-mann wenig ziemen, bieten Raleghs Berichte wichtiges Mate-
-rial zur Geschichte der Geographie. Der Orinoco oberhalb
+60 Meilen befahren; er nennt aber nach den schwankenden
+Angaben, die er zusammengebracht, die obern Zuflüsse, den
+Cari, den Pao, den Apure (Capuri?), den Guarico (Voari?),
+den Meta, sogar »in der Provinz Baraguan den großen Wasserfall
+Athule (Atures), der aller weiteren Flußfahrt ein Ende
+macht«. Trotz seiner Uebertreibungen, die sich für einen Staatsmann
+wenig ziemen, bieten Raleghs Berichte wichtiges Material
+zur Geschichte der Geographie. Der Orinoco oberhalb
 des Einflusses des Apure war damals den Europäern so wenig
 bekannt, als heutzutage der Lauf des Niger unterhalb Sego.
-Man hatte die Namen verschiedener, weit entfernten Neben-
-flüffe vernommen, aber man wußte nicht, wo sie lagen; man
-« S. Bd. I1. Seite 12.
-
-x
-zählte ihrer mehr auf, als wirklich sind", wenn- derselbe Name,
-verschieden ausgesprochen oder vom Ohr um-iehti«g aufgefaßt,
-verschieden klang. Andere ,Jrrthümer hatten vielleicht ihre
-Q.uellen darin, daß dem spanischen Statthalter Antonio de
+Man hatte die Namen verschiedener, weit entfernten Nebenflüsse
+vernommen, aber man wußte nicht, wo sie lagen; man
+zählte ihrer mehr auf, als wirklich sind, wenn derselbe Name,
+verschieden ausgesprochen oder vom Ohr unrichtig aufgefaßt,
+verschieden klang. Andere Irrthümer hatten vielleicht ihre
+Quellen darin, daß dem spanischen Statthalter Antonio de
 Berrio wenig daran gelegen seyn konnte, Ralegh richtige,
 genaue Notizen zu geben; letzterer beklagt sich auch über seinen
-Gefangenen ,,als einen Menschen- ohne Bildung, der Ost und
-West nicht zu unterscheiden wisse.« Ob Ralegh. an Alles,
+Gefangenen »als einen Menschen ohne Bildung, der Ost und
+West nicht zu unterscheiden wisse.« Ob Ralegh an Alles,
 was er vorbringt, an die Binnenmeere, so groß wie das
-caspische Meer, an die kaiserliche Stadt Manoa (imperia1 and
-golden (-it)-), an die prächtigen Paläste, welche der »Kat-
-ser Inga von Guyana« nach dem Vorbild seiner peruanischen
+caspische Meer, an die kaiserliche Stadt Manoa (<i>imperia1 and
+golden city</i>), an die prächtigen Paläste, welche der »Kaiser
+Inga von Guyana« nach dem Vorbild seiner peruanischen
 Ahnen erbaut, — ob er an all das wirklich geglaubt oder
-sich nur so angeftellt, das will «ich hier nicht untersuchen. Der
-gelehrte Geschichtschreiber von Brasilien, Southey, 1md der Bio-
-graph»Naleghs, Cayley, haben in neuester Zeit viel Licht über
+sich nur so angestellt, das will ich hier nicht untersuchen. Der
+gelehrte Geschichtschreiber von Brasilien, Southey, und der 
+Biograph Raleghs, Cayley, haben in neuester Zeit viel Licht über
 diesen Punkt verbreitet. Daß der Führer der Expedition und die
-unter ihm Befehlenden ungemein leichtgläubig waren, ist schwer-
-lich zu bezweifeln. Man sieht, Ralegh paßte Alles von vorn-
-herein angenommenen Voraussetzungen an. Sicher war er
+unter ihm Befehlenden ungemein leichtgläubig waren, ist schwerlich
+zu bezweifeln. Man sieht, Ralegh paßte Alles von vornherein
+angenommenen Voraussetzungen an. Sicher war er
 selbst getäuscht, wenn es aber galt, die Phantasie der Königin
 Elisabeth zu erhitzen und die Plane seiner ehrgeizigen Politik
-durchzusehen, so ließ er keinen Kunstgriff der Schmeichelei
-unversucht. Er schildert -der Königin ,,das Entzücken dieser
+durchzusetzen, so ließ er keinen Kunstgriff der Schmeichelei
+unversucht. Er schildert der Königin »das Entzücken dieser
 barbarischen Völker beim Anblick ihres Bildnisses; der Name
 der erhabenen Jungfrau, welche sich Reiche zu unterwerfen
 weiß, soll bis zum Lande der kriegerischen Weiber am Orinoco
 und Amazonenstrom dringen; er versichert, als die Spanier
-den Thron von Cnzco umgestoßen, habe man eine alte Prophe-
-zeiung gefunden, der zufolge die Dynastie der Incas dereinst
-
-293
-«Großbritannien ihre Wiederherstellung zu danken haben werde;
+den Thron von Cnzco umgestoßen, habe man eine alte Prophezeiung
+gefunden, der zufolge die Dynastie der Incas dereinst
+Großbritannien ihre Wiederherstellung zu danken haben werde;
 er gibt den Rath, unter dem Vorwand, das Gebiet gegen
-äußere Feinde schützen zu wollen, Besatzungen von drei, vier-
-tausend Mann in die Städte des Inca zu legen und diesen
+äußere Feinde schützen zu wollen, Besatzungen von drei, viertausend
+Mann in die Städte des Inca zu legen und diesen
 so zu einem jährlichen Tribut von 300,000 Pfund Sterling
 an Königin Elisabeth zu nöthigen; endlich äußert er mit einem
-Blick in die Zukunft, alle diese gewaltigen Länder S1·idamerikas
+Blick in die Zukunft, alle diese gewaltigen Länder Südamerikas
 werden eines Tages Eigenthum der englischen Nation seyn.«
+
 Raleghs vier Fahnen auf dem untern Orinoco fallen
-zwischen die Jahre 1595 und 1617. Nach all diesen vergeb-
-lithe»n Unternehmungen ließ der Eifer, mit dem man den
+zwischen die Jahre 1595 und 1617. Nach all diesen vergeblichen
+Unternehmungen ließ der Eifer, mit dem man den
 Dorado aufsuchte, allmählig nach. Fortan kam keine Expedition
 mehr zu Stande, an der sich zahlreiche Colonisten betheiligten,
 wohl aber Unternehmungen Einzelner, zu denen nicht selten
 die Statthalter der Provinzen aufmunterten. Die Kunde vom
-Goldland der Manoas-India«ner am Jurubesh und von der
-Lugano (1e»or0,1 die durch die Reisen der Patres Acufta
-(1688) und Fritz (16·37) in Umlauf kam, trugen das Jhrige
-dazu bei, daß die Vorstellungen vom Dotado in den portu-
-giesischen und spanischen Colonien im Norden und Süden des
-Aequators wieder rege wurden. In Euen(;a im Königreich
-Qnito traf ich Leute, die im Auftrag des Bischofs Mai-sil
-ösilich von den Eordilleren auf den Ebenen von Macas die
-Trümmer der Stadt Logrof1o, die in einem goldreichen Lande
-liegen sollte, ausgesucht hatten. Aus dem schon mehrmals
+Goldland der Manoas-Indianer am Jurubesh und von der
+<i>Laguna de oro</i> die durch die Reisen der Patres Acuña
+(1688) und Fritz (1637) in Umlauf kam, trugen das Ihrige
+dazu bei, daß die Vorstellungen vom Dorado in den portugiesischen
+und spanischen Colonien im Norden und Süden des
+Aequators wieder rege wurden. In Cuença im Königreich
+Quito traf ich Leute, die im Auftrag des Bischofs Marfil
+östlich von den Cordilleren auf den Ebenen von Macas die
+Trümmer der Stadt Logroño, die in einem goldreichen Lande
+liegen sollte, aufgesucht hatten. Aus dem schon mehrmals
 erwähnten Tagebuche Hortsmanns ersehen wir, daß man im
-Jahr 174() von holländisch Guyana her zum Dorado zu ge-
-langen glaubte, wenn man den Essequebo hinauffuhr. In
-« S· Bd. 1V. Seite 262.
-
-294 .
-«Santo Thome de Angostura entwickelte der Statthalter Don
+Jahr 1740 von holländisch Guyana her zum Dorado zu gelangen
+glaubte, wenn man den Essequebo hinauffuhr. In
+Santo Thome de Angostura entwickelte der Statthalter Don
 Manuel Centurion ungemeinen Eifer, um zum eingebildeten
-See Manoa zu dringen. Arimuicaipi, ein Indiana von der
-Nation der Jpurucotos, fuhr den Nie« Caronh hinab und
-.entzündete durch lügenhaste Berichte die Phantasie der spani-
-schen Colonisten. Er zeigte ihnen am Südhinnnel die Nagel-
-lanschen Wolken, deren weißlichtes L«icht er sur den Wider-
-schein de: si1bekhaktigen Ferse« mitten in de: Lagmia Paris»
+See Manoa zu dringen. Arimuicaipi, ein Indianer von der
+Nation der Ipurucotos, fuhr den Rio Carony hinab und
+entzündete durch lügenhafte Berichte die Phantasie der spanischen
+Colonisten. Er zeigte ihnen am Südhimmel die Magellanschen
+Wolken, deren weißlichtes Licht er für den Widerschein
+der silberhaltigen Felsen mitten in der Laguna Parime
 erklärte. Es war dieß eine sehr poetische Schilderung des
-Glanzes des Glimmer- und Taltschiefers seines Landes. Ein
+Glanzes des Glimmer- und Talkschiefers seines Landes. Ein
 anderer indianischer Häuptling, bei den Caraiben am Essequebo
-als Capitän Jurado bekannt, gab sich vergebliche Mühe,
-den Statthalter Centurion zu enttåuschen. Man machte frucht-
-lose Versuche auf dem Caura und dem Rio Paragua. Mehrere
+als <b>Capitän Jurado</b> bekannt, gab sich vergebliche Mühe,
+den Statthalter Centurion zu enttåuschen. Man machte fruchtlose
+Versuche auf dem Caura und dem Rio Paragua. Mehrere
 hundert Menschen kamen bei diesen tollen Unternehmungen
-elend ums»Leben. Die Geographie zog indessen einigen Nutzen
+elend ums Leben. Die Geographie zog indessen einigen Nutzen
 daraus. Nicolas Rodriguez und Antonio Santos wurden
 vom spanischen Statthalter auf diese Weise gebraucht (1775
 bis 1780). Letzterer gelangte auf dem Carony, dem Paragua,
-dem Paraguamusi, dem Anocapra und über die Berge Pa-
-earaimo und Quimiropaca an den Uraricuera und den Mo
-Branca Die Reisetagebücher dieser abenteuerlichen Unter-
-nehmungen haben mir treffliche Notizen geliefert.
-Die Seekarten, welche der Florentiner Reisende Ame:-igo
-Vespucei« in den ersten Jahren des sechzehnten Jahrhunderts
-als pi1oto ma»yok der case« de Gent:-o«t,aci011 zu Sevilla
-entworfen, und aus die er, vielleicht in schlauer Absicht, den
-Namen Ton-a de Ame:-igo gesetzt, sind nicht auf uns
-« Gestorl-en im Jahr 1512, wie Manne; aus Urkunden in den Ar-
-chive« von SiaIancas erwiesen hat·
+dem Paraguamusi, dem Anocapra und über die Berge Pacaraimo
+und Quimiropaca an den Uraricuera und den Rio
+Branco. Die Reisetagebücher dieser abenteuerlichen Unternehmungen
+haben mir treffliche Notizen geliefert.
 
-295
-gekommen. Die älteste geographische Urkunde des neuen Con-
-tinents ·ist die einer römischen Ausgabe des Ptolemäus vom
-Jahr 1508 beigegebene Weltkarte des Johann Ruysch.1 Man
-erkennt daraus Yucatan und Honduras (den südlichsten Theil
-von Mexico), die als eine Insel unter dem Namen Culicar
-dargestellt find. Eine Landenge von Panama ist nicht vor-
-handen, sondern eine Meerenge, durch die man geradeaus
-von Europa nach Indien fahren kann. Auf der großen süd-
-lichen Insel (Südamerika) steht der Name Takte. de Ostens,
-die von zwei Flüssen, dem Rio Lareno und dem Rio For-
-moso begrenzt ist. Diese CareaS sind ohne Zweifel die Ein-
-wohner von Caria, welchen Namen Eh-ristoph Columbug
+Die Seekarten, welche der Florentiner Reisende Amerigo
+Vespucci^[Gestorben im Jahr 1512, wie Munnoz aus Urkunden
+in den Archiven von Simancas erwiesen hat.]
+in den ersten Jahren des sechzehnten Jahrhunderts
+als <i>piloto mayor</i> der <i>Casa de Contratacion</i> zu Sevilla
+entworfen, und auf die er, vielleicht in schlauer Absicht, den
+Namen <i>Terra de Amerigo</i> gesetzt, sind nicht auf uns
+gekommen. Die älteste geographische Urkunde des neuen Continents
+ist die einer römischen Ausgabe des Ptolemäus vom
+Jahr 1508 beigegebene Weltkarte des Johann Ruysch.^[Auf den
+Karten, die dem Ptolemäus von 1506 beigegeben sind, sieht
+man noch keine Spur von den Entdeckungen des Columbus.] Man
+erkennt darauf Yucatan und Honduras (den südlichsten Theil
+von Mexico), die als eine Insel unter dem Namen <b>Culicar</b>
+dargestellt sind. Eine Landenge von Panama ist nicht vorhanden,
+sondern eine Meerenge, durch die man geradeaus
+von Europa nach Indien fahren kann. Auf der großen südlichen
+Insel (Südamerika) steht der Name <i>Terra de Careas</i>,
+die von zwei Flüssen, dem Rio Lareno und dem Rio Formoso
+begrenzt ist. Diese <b>Careas</b> sind ohne Zweifel die Einwohner
+von <b>Caria</b>, welchen Namen Cristoph Columbus
 bereits im Jahr 1498 vernommen hatte und mit dem lange
 Zeit ein großer Theil von Amerika bezeichnet wurde. Der
-Bischof Geraldini sagt in einem Briese an Pabst Leo X. aus
-dem Jahr 1516 deutlich: ,,lasu1o« illa, quasi Europa et Asis,
-est major, qui-m in(Iocti (-0ntinent-ern Asiae appe11ant,
-et alü Americ«-am ve1Pu1-kam nun(-upc.nt.« Auf der Welt-
-karte von 1508.sinde ich noch keine Spur vom Orinoro. Dieser
-Strom erscheint zum erstenmal unter dem Namen Mo dates
-aus der berühmten Karte, die Diego Ribero, .Kosmograph
-Kaiser Karls V» im Jahr 1529 entworfen, und die Spange!
+Bischof Geraldini sagt in einem Briefe an Pabst Leo X. aus
+dem Jahr 1516 deutlich: »Insula illa, quae Europa et Asia
+est major, quam indocti continentem Asiae appellant,
+et alii Americam vel Pariam nuncupant.« Auf der Weltkarte
+von 1508 finde ich noch keine Spur vom Orinoco. Dieser
+Strom erscheint zum erstenmal unter dem Namen <i>Rio dulce</i>
+auf der berühmten Karte, die Diego Ribero, Kosmograph
+Kaiser Karls V. im Jahr 1529 entworfen, und die Sprengel
 im Jahr 1795 mit einem gelehrten Commentar herausgegeben
-hat. Weder Eolumbus (1498) noch Alonso de Guda, beiden!
-As-erigo Bespucri war (1499), hatten die eigentliche Mundung
-desOrinocogesehen. Siehattendieselbe müder ndrdlnhen
-Oeffnung des MeerhusenS von Petri« verwethselt, dem man,
-wie denn Uebertreihungen der Art bei den Seesahrern jener
-· snidenL«rte-c, t:iedeInPtoleinän« von1w6 beigegeben link, sieht
-I-ase4hteiseSpurvondeaEntdet!asgende0C··ltmi-ne.
-
-M -
+hat. Weder Columbus (1498) noch Alonso de Guda, bei dem
+Amerigo Vespucci war (1499), hatten die eigentliche Mündung
+des Orinoco gesehen. Sie hatten dieselbe mit der nördlichen
+Oeffnung des Meerbusens von Paria verwechselt, dem man,
+wie denn Uebertreibungen der Art bei den Seefahrern jener
 Zeit so häufig vorkommen, eine ungeheure Masse süßen Wassers
-zuschrieb. Vicente Yaf1ez Pincon,"nachdem· er die Mündung
-des Mo Maragnon entdeckt, war auch der Grste,· der die
-Mündung des Or-inoco sah (1500). Er nannte diesen Strom
-Mo du1ce, welcher Name sich seit Nil-ero lange auf den
-Karten erhalten hat und zuweilen irrthitmlich dem Maroni
-und dem Essequebo beigelegt wurde« "
-Der große See Parime«erscheint auf den Karten erst
+zuschrieb. Vicente Yañez Pinçon, nachdem er die Mündung
+des Rio Maragnon entdeckt, war auch der Erste, der die
+Mündung des Orinoco sah (1500). Er nannte diesen Strom
+<i>Rio dulce</i>, welcher Name sich seit Ribero lange auf den
+Karten erhalten hat und zuweilen irrthümlich dem Maroni
+und dem Essequebo beigelegt wurde.^[S. Seite 54.]
+
+Der große See Parime erscheint auf den Karten erst
 nach Raleghs erster Reise. Jodocus Hondius war der Mann,
 der mit dem Jahr 1599 den Vorstellungen der Geographen
 eine bestimmte Richtung gab und das Innere von spanisch
-Guyana als ein völlig bekanntes Land darstellte. Der Jsthmus
-zwischen dem Rio Vranco und dem Rio Rupunuwini (einem
-Nebensluß des Essequebo) wird von ihm in·den 200 Meilen
-langen, 40 Meilen breiten See Rupunuwini, Carinie oder
-Dorado, zwischen dem 1 0 45« südlikher und dem 20 nördlicher
-Breite verwandelt. Dieses Binnenmeer, größer als das caspi-
-sche Meer, wird bald mitten in ein gebirgigtes Land, ohne
+Guyana als ein völlig bekanntes Land darstellte. Der Isthmus
+zwischen dem Rio Branco und dem Rio Rupunuwini (einem
+Nebenfluß des Essequebo) wird von ihm in den 200 Meilen
+langen, 40 Meilen breiten See <b>Rupunuwini</b>, <b>Carime</b> oder
+<b>Dorado</b>, zwischen dem 1°45′ südlicher und dem 2° nördlicher
+Breite verwandelt. Dieses Binnenmeer, größer als das caspische
+Meer, wird bald mitten in ein gebirgigtes Land, ohne
 Verbindung mit irgend einem andem Fluß, hineingezeichnet,
-bald läßt man den Rio Oyapol (Waiapago, Joapoc, Vin-
-poco) und den Rio de Cayana daraus entspringen. Der
+bald läßt man den Rio Oyapok (Waiapago, Joapoc, Vinpoco)
+und den Rio de Cayana daraus entspringen. Der
 erstere Fluß wurde im achten Artikel des Utrechter Vertrags
-mit dem Rio de Vicente Pincon (Rio Calsoene oder Maha-
-cari?) verwechselt und blieb bis zum legten Wiener Congreß
-der Gegenstand endloser Streitigkeiten zwischen den sranzösischen
+mit dem Rio de Vicente Pinçon (Rio Calsoene oder Mayacari?)
+verwechselt und blieb bis zum letzten Wiener Congreß
+der Gegenstand endloser Streitigkeiten zwischen den französischen
 und den portugiesischen Diplomaten. Der letztere ist eine
 chimärische Verlängerung des Tonnegrande, oder aber des
-Oyac (Wia?). Das Binnenmeer (Laguna Pakime) wurde
-« S. Bd. -V1. Seite 54. «
-
-M «
-anfangs so gestellt, daß sein tvestliches Ende ·in den Meridian
-des« Zusammenflusses des Apure und des Orinoco siel;" all-
-mählig aber schob man es nach Ost vor, so daß das west-
-ltche Ende südlich von den Mündungen des Orinoeo zu liegen
+Oyac (Wia?). Das Binnenmeer (<i>Laguna Parime</i>) wurde
+anfangs so gestellt, daß sein westliches Ende in den Meridian
+des Zusammenflusses des Apure und des Orinoco fiel; allmählig
+aber schob man es nach Ost vor, so daß das westliche
+Ende südlich von den Mündungen des Orinoco zu liegen
 kam. Dieser Wechsel zog auch Abänderungen in der respektiven
-Lage des Sees P-arime und des Sees Cassipa, so wie« in der
+Lage des Sees Parime und des Sees Cassipa, so wie in der
 Richtung des Laufs des Orinoco nach sich. Diesen großen Strom
 läßt man von seiner Mündung bis über den Meta hinauf,
 gleich dem Magdalenenstrom, von Süd nach Nord laufen. Die
-Nebenflüsse, die man aus dem See C-assipa kommen ließ, der
-Earony, der Arui und der Caura, laufen damit in der Rich-
-tung eines Parallels, —tväl)rend sie in der Wirklichkeit in der
+Nebenflüsse, die man aus dem See Cassipa kommen ließ, der
+Carony, der Arui und der Caura, laufen damit in der Richtung
+eines Parallels, während sie in der Wirklichkeit in der
 Richtung eines Meridians liegen. Außer dem Parime und dem
-Ca"ssipa gab man auf den Karten einen dritten See an, aus
+Cassipa gab man auf den Karten einen dritten See an, aus
 dem man den Aprouague (Apurwaca) kommen ließ. Es war
 damals bei den Geographen allgemeiner Brauch, alle Flüsse
 mit großen Seen in Verbindung zu bringen. Auf diese Weise
 verband Ortelius den Nil mit dem Zaire oder Rio Congo, die
 Weichsel mit der Wolga und dem Dnieper. Im nördlichen
-Mexiko, in den angeblichen Königreichen Guivira und-Cibola,
-die durch die Lügen des Mönchs Marcos de Niza berühmt ge-
-worden, hatte man ein großes Binnenmeer eingezeichnet, aus
-dem man den californischen Rio Colorado entspringen ließ.I
+Mexiko, in den angeblichen Königreichen Guivira und Cibola,
+die durch die Lügen des Mönchs Marcos de Niza berühmt geworden,
+hatte man ein großes Binnenmeer eingezeichnet, aus
+dem man den californischen Rio Colorado entspringen ließ.^[Es
+ist dieß der mexicanische Dorado, wo man auf den Küsten
+Schiffe voll Waaren aus Catayo (China) gefunden haben wollte, und wo
+Fray Marcos (wie Hutten im Lande der Omaguas) die vergoldeten Dächer
+einer großen Stadt, einer der <i>Siete Ciudades</i>,
+<b>von weitem sah</b>. Die
+Einwohner haben große Hunde,
+<i>en los quales quando se mudan cargan
+su menage</i>. Spätere Entdeckungen lassen
+übrigens keinen Zweifel, daß
+dieser Landstrich früher ein Mittelpunkt der Cultur war.]
 Vom Rio Magdalena lief ein Arm in den See Maracaybo,
-« Es ist dieß der mexicanische Dorado, wo man aus den Küsten
-Schiffe voll Waaren aus Catayo (Ehina) gesunden haben wollte, und wo
-Frass Marter (wie Hatten im Lande der Omaguas) die vergoldeten Dücher
-einer großen Stadt, einer der sie« cin(1cdes, von weitem sah. Die
-Einwohner haben große Hunde, en los qun1es quan(1o se ma(1sn Organ
-in wen·-ge. Spätere Entdeckungen lassen übrigens keinen Zweifel, daß
-dieser Landstrich früher ein Mittelpunkt der Cultur war.
-
-» As
-und der See Xarayes, in dessen Nähe man einen südlichen
-Dorado setzte, stand mit dem Amazouenstroni, mit dem Miari
-(Mearh) und dem Rio- San Francisco in Verbindung. Die
+und der See Xarayes, in dessen Nähe man einen <b>südlichen
+Dorado</b> setzte, stand mit dem Amazonenstrom, mit dem Miari
+(Meary) und dem Rio San Francisco in Verbindung. Die
 meisten dieser hydrographischen Träume sind verschwunden;
-nur die Seen Cassipa und Dorado haben sich lange ·nebeu
-einander auf unsern Karten erhalten. »
-Verfolgt man die Geschichte der Geographie, so si.eht man
+nur die Seen Cassipa und Dorado haben sich lange neben
+einander auf unsern Karten erhalten.
+
+Verfolgt man die Geschichte der Geographie, so sieht man
 den Cassipa, der als ein rechtwinklichtes Viereck dargestellt wird,
 sich allmählig auf Kosten des Dorado vergrößern. Letzterer
-wurde zuweilen ganz weggelassen, aber nie wagte«man es, sich
-am ersteren zu vergreifen, der nichts ist, als der durch perio-
-dische Ueberschwemmungen geschwellte Rio Paragua (ein Neben-
-flusz des Carony). Als d’AnvilIe durch Solanos Ex·pedition in
+wurde zuweilen ganz weggelassen, aber nie wagte man es, sich
+am ersteren zu vergreifen, der nichts ist, als der durch periodische
+Ueberschwemmungen geschwellte Rio Paragua (ein Nebenfluß
+des Carony). Als d’AnvilIe durch Solanos Expedition in
 Erfahrung brachte, daß der Orinoco seine Quellen keineswegs
 westwärts am Abhang der Anden von Pasto habe, sondern von
-Osten her von den Gebirgen der Parime herablomme, nahm
+Osten her von den Gebirgen der Parime herabkomme, nahm
 er in der zweiten Ausgabe seiner schönen Karte von Amerika
-(1760) die Laguna Parime wieder auf und ließ sie ganz
-willk1«irlich durch den Mazuruni und den Cuyuni mit drei
-Flüssen (dem Orinoco, dem Rio Vranco und dem Essequebo)
-in Verbindung stehen. Er verlegte sie unter den 344. Grad
-nördlicher Breite, wohin man bisher den See C-assipa gefetzt hatte.
+(1760) die <b>Laguna Parime</b> wieder auf und ließ sie ganz
+willkürlich durch den Mazuruni und den Cuyuni mit drei
+Flüssen (dem Orinoco, dem Rio Branco und dem Essequebo)
+in Verbindung stehen. Er verlegte sie unter den 3—4. Grad
+nördlicher Breite, wohin man bisher den See Cassipa gesetzt hatte.
+
 Der spanische Geograph la Cruz Olmedilla (1775) folgte
 d’Anvilles Vorgang. Der alte, unter dem Aequator gelegene
 See Parime war vom Orinoco ganz unabhängig; der neue,
 der an der Stelle des Cassipa und wieder in der Gestalt
 eines Vierecks austrat, dessen längsten Seiten von Süd nach
-Nord laufen,1 zeigt die seltsamsten hydraulischen Verbindungen.
-« Die große Achse des eigentlichen Sees Parime war von Ost nach
-West gerichtet·
-
-299
-Bei la Cruz entspringt der Or,-inoco, unter dem«Namen Pa-
-rime und Puruma (Xuruma?) im gebirgigten Lande zwischen
-den Qnellen des Ventuari und des Caura (unter dem 5. Grad
+Nord laufen,^[Die große Achse des eigentlichen Sees Parime
+war von Ost nach West gerichtet]
+zeigt die seltsamsten hydraulischen Verbindungen.
+Bei la Cruz entspringt der Orinoco, unter dem Namen Parime
+und Puruma (Xuruma?) im gebirgigten Lande zwischen
+den Quellen des Ventuari und des Caura (unter dem 5.&nbsp;Grad
 der Breite im Meridian der Mission Esmeralda) aus einem
-Reinen See, der Jpava heißt. Dieser See läge auf meiner
-Reisekarte .nordöstlich von den Granitbergen von Cunevo,
+kleinen See, der <b>Ipava</b> heißt. Dieser See läge auf meiner
+Reisekarte nordöstlich von den Granitbergen von Cunevo,
 woraus zur Genüge hervorgeht, daß wohl ein Nebenfluß des
-Nin Braue-o oder des Orinvco daraus entspringen könnte,
-nicht aber der Orinoco selbst. Dieser Rio Parime oder Pu-
-ruma nimmt nach einem Laus von 40 Meilen gegen Ost-
-NorkxOst und von So Meilen gegen Südost den Rio -Mahu
-aus, den wir bereits als einen der Hauptzweige des Mo
-Brauen kennen; darauf läuft er in den See Parime, den
+Rio Branco oder des Orinoco daraus entspringen könnte,
+nicht aber der Orinoco selbst. Dieser Rio Parime oder Puruma
+nimmt nach einem Lauf von 40 Meilen gegen Ost-Nord-Ost
+und von 60 Meilen gegen Südost den Rio Mahu
+auf, den wir bereits als einen der Hauptzweige des Rio
+Branco kennen; darauf läuft er in den See Parime, den
 man 30 Meilen lang und 20 Meilen breit macht. Aus
-diesem See entspringen unmittelbar drei Flüsse, der Mo
-Ucamu (Ocamo), der Mo Jdapa (Siapa) und der Rio Branca
+diesem See entspringen unmittelbar drei Flüsse, der Rio
+Ucamu (Ocamo), der Rio Idapa (Siapa) und der Rio Branco.
 Der Orinoco oder Puruma ist als unterirdische Durchsickerung
-am Westabhang der Sierra Mei, welche den See oder das
-weiße Meer gegen Westen begrenzt, gezeichnet. Diese zweite
-O,uelle des Orinoco liegt unter dem zweiten Grad nördlicher
-Breite und :-IV, Grad ostwärts vom Meridian von Esmeralda.
+am Westabhang der <b>Sierra Mei</b>, welche den See oder das
+<b>weiße Meer</b> gegen Westen begrenzt, gezeichnet. Diese zweite
+Quelle des Orinoco liegt unter dem zweiten Grad nördlicher
+Breite und 3½ Grad ostwärts vom Meridian von Esmeralda.
 Nachdem der neue Fluß 50 Meilen gegen West-Nord-West
 gelaufen, nimmt er zuerst den Ucamu auf, der aus dem
 See Parime kommt, sodann den Rio Maquiritari (Padamo),
-der zwischen dem See Jpava und einem andern Alpsee, von
-la Cruz Laguna Cavija genannt, entspringt. Da See
-maypurisch Cavia heißt, so bedeutet das Wort Laguna
-Eavia, wie Laguna Parime, nichts als Wasserbecken, Ia-
-guua de usw. Diese seltsame Flußzeichnung ist nun das
+der zwischen dem See Ipava und einem andern Alpsee, von
+la Cruz <b>Laguna Cavija</b> genannt, entspringt. Da <b>See</b>
+maypurisch <b>Cavia</b> heißt, so bedeutet das Wort <b>Laguna
+Cavia</b>, wie Laguna Parime, nichts als Wasserbecken, <i>laguna
+de agua</i>. Diese seltsame Flußzeichnung ist nun das
 Vorbild fast für alle neueren Karten von Guyana geworden.
-
-wo .
--
-Ein Mißverständniß, das aus.-der Unkenntniß des Spanischen
-entsprang, hat der Karte des la Eruz, aus der richtige An-
-gaben mit systematischen, den alten Karten entnommenen Vor-
-stellungen vermengt sind, vollends großes Ansehen verschafft
+Ein Mißverständniß, das aus der Unkenntniß des Spanischen
+entsprang, hat der Karte des la Cruz, auf der richtige Angaben
+mit systematischen, den alten Karten entnommenen Vorstellungen
+vermengt sind, vollends großes Ansehen verschafft.
 Eine punktirte Linie umgibt den Landstrich, über den Solano
 einige Erkundigung hatte einziehen können; diese Linie hielt
-man nun für den von Solano zuritckgelegten Weg,
-so daß dieser das südwestliche Ende des weißen Meeres ge-
-sehen haben müßte. Aus der Karte des la Eruz steht ge-
-schrieben: ,,Dieser Weg bezeichnet, was vom Statthalter von
+man nun für den <bvon Solano zurückgelegten Weg</b>,
+so daß dieser das südwestliche Ende des weißen Meeres gesehen
+haben müßte. Auf der Karte des la Cruz steht geschrieben:
+»Dieser Weg bezeichnet, was vom Statthalter von
 Caracas, Don Jose Solano, entdeckt und zur Ruhe gebracht
-worden ist." Nun weiß man aber- in den Missionen, daß
+worden ist.« Nun weiß man aber in den Missionen, daß
 Solano nie über San Fernando de Atabapo hinausgekommen
 ist, daß er den Orinoco ostwärts vom Einfluß des Guaviare
 gar nicht gesehen, und daß er seine Nachrichten über diese
 Länder nur von gemeinen Soldaten haben konnte, die der
 Sprachen der Eingeborenen unkundig waren. Das Werk des
 Pater Caulin, der ja der Geschichtschreiber der Expedition
-war, das Zeugnis; Don Apollinarios Diaz de la Fuente und
+war, das Zeugniß Don Apollinarios Diaz de la Fuente und
 Santos’ Reise thun zur Genüge dar, daß nie ein Mensch
 das weiße Meer des la Cruz gesehen hat, das, wie aus den
 Namen der sich darein ergießenden Flüsse hervorgeht, nichts
 ist als eine eingebildete Ausbreitung des westlichen Zweigs
-des Rio Vranco oberhalb des Einflusses des Tacutu und des
+des Rio Branco oberhalb des Einflusses des Tacutu und des
 Uraricuera oder Rio Parime. Ließe man aber auch Angaben
 gelten, deren Unrichtigkeit jetzt zur Genüge dargethan ist, so
-sähe man nach allgemein anerkannten hydrographischen Grund-
-sätzen nicht ein, mit welchem Recht der See .Jpava die Quelle
+sähe man nach allgemein anerkannten hydrographischen Grundsätzen
+nicht ein, mit welchem Recht der See Ipava die Quelle
 des Orinoco heißen könnte. Wenn ein Fluß in einen See
 fällt und von diesem selben Wasserbecken drei andere abgehen,
-
-« 3o1
-so weiß man- nicht, welchem von diesen man den Namen des
-ersteren beilegen soll. Noth viel weniger ist es zu rechtferti-
-gen, wenn der Geograph denselben Namen einem Flusse läßt,
+so weiß man nicht, welchem von diesen man den Namen des
+ersteren beilegen soll. Noch viel weniger ist es zu rechtfertigen,
+wenn der Geograph denselben Namen einem Flusse läßt,
 dessen Quelle durch eine hohe Bergkette vom See getrennt ist,
 und der durch Durchsickerung unterirdisch entstanden seyn soll.
-Vier Jahre nach der großen Karte von la Cruz Olme-
-dilla -erschien das Werk des Pater Caulin, der die Grenz-
-eg)edition mitgemacht hatte. Das Buch wurde 1759 am
-Ufer des Orinoco selbst geschrieben, und nur einige Anmer-
-kungen wurden später in Europa beigefügt. Der Verfasser,
+
+Vier Jahre nach der großen Karte von la Cruz Olmedilla
+erschien das Werk des Pater Caulin, der die Grenzexpedition
+mitgemacht hatte. Das Buch wurde 1759 am
+Ufer des Orinoco selbst geschrieben, und nur einige Anmerkungen
+wurden später in Europa beigefügt. Der Verfasser,
 ein Franciskaner von der Congregation der Observanten,
 zeichnet sich durch seine Aufrichtigkeit aus und an kritischem
 Geist ist er allen seinen Vorgångem überlegen. Er selbst ist
-nicht über den großen Katarakt bei Armes hinausgelommen,
-aber Alles, was Solano und Jturiaga Wahres und Schwan-
-kendes zusamniengebracht, stand zu seiner Verfügung. Zwei
+nicht über den großen Katarakt bei Atures hinausgekommen,
+aber Alles, was Solano und Ituriaga Wahres und Schwankendes
+zusammengebracht, stand zu seiner Verfügung. Zwei
 Karten, die Pater Caulin im Jahr 1756 entworfen, wurden
-von Sur"oille, einem Archivbeamten beim Staatssekretariat, in
-Eine zusammengezogen und nach angeblichen Entdeckungen ver-
-vollfttindigt (1778). Schon oben, als von unserem Aufenthalt
-in Esmeralda (dem den unbekannten O-uellen des Orinoco zu-
-nächst gelegenen Punkte) die Rede war, habe ich bemerkt, wie
+von Surville, einem Archivbeamten beim Staatssekretariat, in
+Eine zusammengezogen und nach angeblichen Entdeckungen vervollständigt
+(1778). Schon oben, als von unserem Aufenthalt
+in Esmeralda (dem den unbekannten Quellen des Orinoco zunächst 
+gelegenen Punkte) die Rede war, habe ich bemerkt, wie
 willkürlich man bei diesen Abänderungen zu Werke ging. Sie
-gründeten sich aus die lügenhaften Berichte, mit denen man die
-Leichtgläubigkeit des Statthalters Centurion und Don Apollina-
-rios Diaz de la F-uente, eines Kosmographen, der weder Instru-
-mente, noch Kenntnisse, noch Bücher hatte, Tag für Tag bediente.
+gründeten sich auf die lügenhaften Berichte, mit denen man die
+Leichtgläubigkeit des Statthalters Centurion und Don Apollinarios
+Diaz de la Fuente, eines Kosmographen, der weder Instrumente,
+noch Kenntnisse, noch Bücher hatte, Tag für Tag bediente.
+
 Das Tagebuch Pater Caulins steht mit der Karte, die
 demselben beigegeben ist, in fortwährendem Widerspruch. Der
 Verfasser setzt die Umstände aus einander, welche zu der
-
-MS .
-Fabel vom. See Parime Anlaß gegeben haben; aber die Karte
+Fabel vom See Parime Anlaß gegeben haben; aber die Karte
 bringt diesen See auch wieder, nur schiebt sie ihn weit weg
-von den Quellen des Orinoco, vst1vätts vom Rio Branca
-Nach Pater Caulin heißt der Orinoco Ri"o Maraguaca
-unter dem Meridian des Granitberges dieses Namens, de:
+von den Quellen des Orinoco, ostwärts vom Rio Branco.
+Nach Pater Caulin heißt der Orinoco Rio Maraguaca
+unter dem Meridian des Granitberges dieses Namens, der
 auf meiner Reisekarte gezeichnet ist. »Es ist vielmehr ein
-Bergstrom als ein Fluß; er. kommt zugleich mit dem Mo
-Qmaguaca und dem Macoma, unter W, Grad der Breite, aus
+Bergstrom als ein Fluß; er kommt zugleich mit dem Rio
+Omaguaca und dem Macoma, unter 2½ Grad der Breite, aus
 dem kleinen See Cabiya.« Dieß ist der See, aus dem la Cruz
 den Maquiritari (Padamo) entspringen läßt und den er unter
-51J-« Grad der Breite, nördlich vom See Jpava, seht. Die
-Existenz von Caulins Rio Macoma scheint sich auf ein ver-
-worrenes Bild der Flüsse Padamo, Ocamo und Matacona
+5½ Grad der Breite, nördlich vom See Ipava, setzt. Die
+Existenz von Caulins Rio <b>Macoma</b> scheint sich auf ein verworrenes
+Bild der Flüsse Padamo, Ocamo und Matacona
 zu gründen, von denen man vor meiner Reise glaubte, sie
 stehen mit einander in Verbindung. Vielleicht gab auch der
-See, aus dem der Madam kommt (etwas westlich vom Amei-
-guaca) Anlaß zu diesen Jrrthümern hinsichtlich des Ursprungs
-des Orinoco und der Quellen des Jdapa in der Nähe.
-Surville setzt unter 20 10« der Breite an die Stelle des
+See, aus dem der Mavaca kommt (etwas westlich vom Amaguaca)
+Anlaß zu diesen Irrthümern hinsichtlich des Ursprungs
+des Orinoco und der Quellen des Idapa in der Nähe.
+
+Surville setzt unter 2°10′ der Breite an die Stelle des
 Sees Parime des la Cruz einen andern See ohne Namen,
 der nach ihm die Quelle des Ucamu (Ocamo) ist. In der
 Nähe dieses Alpsees entspringen aus derselben Quelle
-der Orinoco und der Jdapa, ein Nebenfluß des Cassiquiare.
-Der See Amucu, die Quelle des« Mahu, wird zum Mar
-Dorado oder zur Laguna Parime erweitert. Der Nie
-Branca hängt nur noch durch zwei seiner schwächste1.t Neben-
-fcüsse mit dem Wasserbecken zusammen, aus dem der Ucamu
+der Orinoco und der Idapa, ein Nebenfluß des Cassiquiare.
+Der See Amucu, die Quelle des Mahu, wird zum <b>Mar
+Dorado</b> oder zur <b>Laguna Parime</b> erweitert. Der Rio
+Branca hängt nur noch durch zwei seiner schwächsten Nebenflüsse
+mit dem Wasserbecken zusammen, aus dem der Ucamu
 kommt. Aus dieser rein hypothetischen Anordnung ergibt sich,
-daß der Orinoco aus keinem See entspringt und daß die·
+daß der Orinoco aus keinem See entspringt und daß die
 Quellen desselben vom See Parime und dem Rio Branco
-
-N
-M .
-durchaus unabhängig find. Trotz der sich gabelnden Quelle
-ist das hydrographische System der SurvilIe’schen Karte nicht
-so abgeschmackt als das aus der Karte des la Cruz. Wenn
-die neueren Geographen sich so lange beharrlich an die spa-
-nischen Karten gehalten haben, ohne dieselben mit einander
-zu vergleichen, so erscheint es doch aussallend, daß »sie nicht
+durchaus unabhängig find. Trotz der <b>sich gabelnden Quelle</b>
+ist das hydrographische System der Surville’schen Karte nicht
+so abgeschmackt als das auf der Karte des la Cruz. Wenn
+die neueren Geographen sich so lange beharrlich an die spanischen
+Karten gehalten haben, ohne dieselben mit einander
+zu vergleichen, so erscheint es doch auffallend, daß sie nicht
 wenigstens der neuesten Karte den Vorzug gegeben haben, der
-Surville’schen, die aus königliche Kosten und auf Befehl des
-Minifters für Indien, Don Jose de Galvez, erschienen ist.
-Ja; hebe hie:nit, wie ich eben ungebändigt, die wechseln-
-den Gestalten enttvickelt, welche die geographischen Jrrthümer
-zu verschiedenen Zeiten angenommen. Ich habe auseinander-
-gesetzt, wie die Bodenbildung, der Lauf der Ströme, die
-Namen der Nebenslüsse und die zahlreichen Trageplätze zur
+Surville’schen, die auf königliche Kosten und auf Befehl des
+Ministers für Indien, Don Jose de Galvez, erschienen ist.
+
+Ich habe hiermit, wie ich eben ungebändigt, die wechselnden
+Gestalten entwickelt, welche die geographischen Irrthümer
+zu verschiedenen Zeiten angenommen. Ich habe auseinandergesetzt,
+wie die Bodenbildung, der Lauf der Ströme, die
+Namen der Nebenflüsse und die zahlreichen Trageplätze zur
 Annahme eines Binnenmeers im Herzen von Guyana führen
 konnten. So trocken Erörterungen der Art seyn mögen, für
 unnütz und unfruchtbar darf man sie nicht halten. Man
 ersieht daraus, was Alles die Reisenden noch zu entdecken
-haben; sie stellen uns vor Augen, welcher Grad von Zuver-
-låßigkeit lange Zeit wiederholten Behauptungen zukommt. Es
-very-at sich mit den Karten wie mit den Tafeln est«-no:ne
-scher Positionen in unsern für die Seefahrer bestimmten
-Ephe1neriden. Von lange her ist zu ihrer Entwerfung das
+haben; sie stellen uns vor Augen, welcher Grad von Zuverlåßigkeit
+lange Zeit wiederholten Behauptungen zukommt. Es
+verhält sich mit den Karten wie mit den Tafeln astronomischer 
+Positionen in unsern für die Seefahrer bestimmten
+Ephemeriden. Von lange her ist zu ihrer Entwerfung das
 verschiedenartigste Material zusammengetragen worden, und
 zöge man nicht die Geschichte der Geographie zu Rathe, so
 wäre später so gut wie gar nicht auszumitteln, auf welcher
 Autorität jede einzelne Angabe beruht.
+
 Ehe ich den Faden meiner Erzählung wieder aufnehme,
 habe ich noch einige allgemeine Bemerkungen über die
-goldhaltigen Gebirg-Bat-ten zwischen dem Amazonenstrom und
-·!
-
-so« .
+goldhaltigen Gebirgsarten zwischen dem Amazonenstrom und
 dem Orinoco beizubringen. Wir haben dargethan, daß der
-Mythu.s vom Dorado, gleich den berühmtesten Mythen der
-Völker der alten Welt, nach einander auf verschiedene Vert-
-lichkeiten bezogen worden ist» Wir haben denselben von Süd-
-west-nach Nordoft, vom Ostabhang der« Anden gegen die
+Mythus vom <b>Dorado</b>, gleich den berühmtesten Mythen der
+Völker der alten Welt, nach einander auf verschiedene Oertlichkeiten
+bezogen worden ist. Wir haben denselben von Südwest
+nach Nordost, vom Ostabhang der Anden gegen die
 Ebenen am Rio Branco und Essequebo vorrücken sehen, ganz
 in der Richtung, in der die Caraiben seit Jahrhunderten ihre
-Kriege- und Handelszüge machten. Man sieht leicht, wie das
+Kriegs- und Handelszüge machten. Man sieht leicht, wie das
 Gold von den Cordilleren von Hand zu Hand durch eine
-Menge Völkerschaften bis an das .Küstenland von Guhana
+Menge Völkerschaften bis an das Küstenland von Guyana
 gelangen konnte; waren doch, lange bevor der Pelzhandel
-englische, russische und amerikanische Schiffe an die Nordwest-
-küften von Amerika zog, eiserne Werkzeuge von Neumexico
-und Canada bis über die Noch) Mountains gewandert. In
-Folge eines Jrrthums in der Länge, dessen Spuren man auf
+englische, russische und amerikanische Schiffe an die Nordwestküsten
+von Amerika zog, eiserne Werkzeuge von Neumexico
+und Canada bis über die Rocky Mountains gewandert. In
+Folge eines Irrthums in der Länge, dessen Spuren man auf
 sämmtlichen Karten des sechzehnten Jahrhunderts begegnet,
-nahm man die goldführenden Gebirge von Pera und Neu-
-Grenada weit näher bei den Mündungen des Orinoco und
-des Amazoueustkome-s cis-, als sie in Wikkrichkeit sind. Es
+nahm man die goldführenden Gebirge von Peru und Neu-Grenada
+weit näher bei den Mündungen des Orinoco und
+des Amazonenstromes an, als sie in Wirklichkeit sind. Es
 ist einmal Sitte bei den Geographen, neu entdeckte Länder
 übermäßig zu vergrößern und ins Breite zu ziehen. Auf der
-Karte von Pera, welche Paulo di Forlani in Verona heraus-
-gab, liegt die Stadt Quito 400 Meilen von der Küste der
+Karte von Peru, welche Paulo di Forlani in Verona herausgab,
+liegt die Stadt Quito 400 Meilen von der Küste der
 Südsee unter dem Meridian von Cumana; die Cordillere
 der Anden füllt fast die ganze Oberfläche des spanischen,
 französischen und holländischen Guyana aus. Diese falsche
-Ansicht von der Breite der Linden ist ohne Zweifel im Spiel,
-wenn man den granitischen Ebenen am Ostabhang der-
-selben so große Wichtigkeit zugeschrieben hat. Da man die
-Nebenflüsse des Atnazonenstroms und des Orinoco-, oder (wie
-
-305
+Ansicht von der Breite der Anden ist ohne Zweifel im Spiel,
+wenn man den granitischen Ebenen am Ostabhang derselben
+so große Wichtigkeit zugeschrieben hat. Da man die
+Nebenflüsse des Amazonenstroms und des Orinoco, oder (wie
 Raleghs Unterbefehlshaber aus Schmeichelei für ihren Obern
-sagten) des Rio Raleana beständig verwechselte, so bezog
+sagten) des <b>Rio Raleana</b> beständig verwechselte, so bezog
 man auf diesen alle Sagen, die einem über den Dorado von
-Quixos, über die Qmagüas und Manoas" zu Ohren gekommen.
+Quixos, über die Omaguas und Manoas zu Ohren gekommen.
 Nach des Geographen Hondius Annahme lagen die durch ihre
 Chinawälder berühmten Anden von Loxa nur 20 Meilen vom
 See Parime und dem Ufer des Rio Branco. Bei dieser
-Nähe erschien die Kunde, daß· sich der Inca in die Wälder
-von Guyana geflüchtet,..und daß die Schätze aus Cuzco in
-die bstlichsten Striche von Guyana geschafft worden, glaub-"
-würdig. Fuhr man den Meta oder den Amazonenstrom hin-
-auf, so sah man allerdings zwischen dem Pur.uz, dem Ju.pura
-nnd dem Jquiari die Eingeborenen· civilisirter werden. Man
+Nähe erschien die Kunde, daß sich der Inca in die Wälder
+von Guyana geflüchtet, und daß die Schätze aus Cuzco in
+die östlichsten Striche von Guyana geschafft worden, glaubwürdig.
+Fuhr man den Meta oder den Amazonenstrom hinauf,
+so sah man allerdings zwischen dem Puruz, dem Jupura
+und dem Iquiari die Eingeborenen civilisirter werden. Man
 fand dort Amulette und kleine Götzenbilder aus gegossenem
 Gold, künstlich geschnitzte Stühle und dergleichen; aber von
-solchen Spuren einer aufkeimenden Cultur« zu den Städten
+solchen Spuren einer aufkeimenden Cultur zu den Städten
 und steinernen Häusern, wie Ralegh und seine Nachfolger sie
-beschreiben, ist ein großer Sprung. - Wir haben ostwärts von
-den Cordilleren, in der Provinz Jaen de Braeamoros, auf
+beschreiben, ist ein großer Sprung. Wir haben ostwärts von
+den Cordilleren, in der Provinz Jaen de Bracamoros, auf
 dem Wege von Loxa an den Amazonenstrom herab, die
-Trümmer großer Gebäude gezeirhnet; bis hieher waren die
+Trümmer großer Gebäude gezeichnet; bis hieher waren die
 Incas mit ihren Waffen, mit ihrer Religion und mit ihren
-.i!ünsten vorgedrungen. Die sich selbst überlassenen Einge-
-borenen am Orinoco waren vor der Eroberung etwas civili-
-sirter als jetzt die unabhängigen Horden. Sie hatten dem
-Flusse entlang volkreiche Dörser und standen mit südlicher
+Künsten vorgedrungen. Die sich selbst überlassenen Eingeborenen
+am Orinoco waren vor der Eroberung etwas civilisirter
+als jetzt die unabhängigen Horden. Sie hatten dem
+Flusse entlang volkreiche Dörfer und standen mit südlicher
 wohnenden Völkern in regelmäßigem Handelsverkehr; aber
-nithts weist darauf hin, daß sie je ein steinernes Gebäude
-errichtet hätten. Wir haben auf unserer ganzen Flußsahrt
+nichts weist darauf hin, daß sie je ein steinernes Gebäude
+errichtet hätten. Wir haben auf unserer ganzen Flußfahrt
 nie die Spur eines solchen gesehen.
-H-«--I-km, Reise. n-. W
 
-306
 Obgleich nun aber spanisch Guyana seinen Ruf, ein
-eiches Land zu seyn, großentheil-S seiner geographisehen Lage
-und den Jrrthümern der alten Karten zu danken hat, so ist
-man deßhalb doch nicht zu der Behauptung berethtigt,- daß
+eiches Land zu seyn, großentheils seiner geographisehen Lage
+und den Irrthümern der alten Karten zu danken hat, so ist
+man deßhalb doch nicht zu der Behauptung berechtigt, daß
 auf diesem Flächenraum von 82,000 Quadratmeilen zwischen
 dem Orinoco und dem Amazonenstrom, ostwärts von den
-Linden von Quito und Neu-Grenada, gar keine goldha1tige
+Anden von Quito und Neu-Grenada, gar keine goldha1tige
 Gebirgsart vorkomme. Soweit ich dieses Land zwischen dem
-Z. und 8. Grad der Breite und dem 66. und 71. Grad der
+2. und 8.&nbsp;Grad der Breite und dem 66. und 71.&nbsp;Grad der
 Länge kennen gelernt habe, besteht es durchgängig aus Granit
-und aus einem Gneiß, der in Glimmerschieser und Talk-
-schiefer übergeht. Diese Gebirgsarten kommen in den hohen
+und aus einem Gneiß, der in Glimmerschiefer und Talkschiefer
+übergeht. Diese Gebirgsarten kommen in den hohen
 Gebirgen der Parime, wie in den Niederungen am Atabapo
-und Cassiquiare zu Tage. Der Granit überwtegt über die
+und Cassiquiare zu Tage. Der Granit überwiegt über die
 andern Gebirgsarten, und wenn auch der Granit von alter
 Formation überall fast durchgängig keine Golderze enthält, so
 ist daraus doch nicht zu folgern, daß der Granit der Parime
-gar keinen Gang, keine Schicht goldhaltigen O-uarzes ein-
-schließe. Ostwärts vom Cassiquiare, den Quellen des Or-inoco
-zu, sahen wir dergleichen Schichten und Gänge häufiger auf-
-treten. Nach seinem Bau, nach der Veimischung von Horn-
-blende und andern gleich bedeutsamen geologisehen Merkmalen
-scheint mir der Granit in diesem Landstrich von neuerer For-
-mation zu seyn, vielleicht jünger als der Gneiß und analog
-den zinnhaltigen Grauiten, den Hyalomicten und Pegmatiten.
-Die jüngeren Granite sind nun aber nicht so arm an Me-
-tallen, und manche goldführende Flüsse und Bäche in den
+gar keinen Gang, keine Schicht goldhaltigen Quarzes einschließe.
+Ostwärts vom Cassiquiare, den Quellen des Orinoco
+zu, sahen wir dergleichen Schichten und Gänge häufiger auftreten.
+Nach seinem Bau, nach der Beimischung von Hornblende
+und andern gleich bedeutsamen geologischen Merkmalen
+scheint mir der Granit in diesem Landstrich von neuerer Formation
+zu seyn, vielleicht jünger als der Gneiß und analog
+den zinnhaltigen Graniten, den Hyalomicten und Pegmatiten.
+Die jüngeren Granite sind nun aber nicht so arm an Metallen,
+und manche goldführende Flüsse und Bäche in den
 Anden, im Salzburgschen, im Fichtelgebirge und auf der
-Hochebene beider Castilien machen es tvahrscheinlich, daß diese
+Hochebene beider Castilien machen es wahrscheinlich, daß diese
 Granite hin und wieder gediegenes Gold und in der ganzen
-
-307
-Gebirgsmasse goldhaltigen Schweselkies und Bleiglanz eing-
-sprengt enthalten, wie Zinn, Magneteisenstein und Eisen-
-glimmer. Der Bergstock der Parime, in dem mehrere Gipfel
-1300 Toisen Meere-3höhe erreichen, war vor unserer Reise
+Gebirgsmasse goldhaltigen Schwefelkies und Bleiglanz eingesprengt
+enthalten, wie Zinn, Magneteisenstein und Eisenglimmer.
+Der Bergstock der Parime, in dem mehrere Gipfel
+1300 Toisen Meereshöhe erreichen, war vor unserer Reise
 an den Orinoco fast ganz unbekannt, und doch ist er gegen
 hundert Meilen lang und achtzig breit, und wenn er auch
 überall, wo Bonpland und ich darüber gekommen sind, uns in
-seinem Bau sehr gleichsörmig schien, so läßt sich doch keines-
-wegs behaupten, daß nicht im Innern dieses gewaltigen Berg-
-stock-s sehr metallreiche Glimmerschiefer und Uebergangsgebirg-s-
-arten dem Granit aufgelagert seyn könnten.
+seinem Bau sehr gleichförmig schien, so läßt sich doch keineswegs
+behaupten, daß nicht im Innern dieses gewaltigen Bergstocks
+sehr metallreiche Glimmerschiefer und Uebergangsgebirgsarten
+dem Granit aufgelagert seyn könnten.
+
 Wie oben bemerkt, verdankt Guyana seinen hohen Ruf
 als metallreiches Land zum Theil dem Silberglanz des so
 häufig vorkommenden Glimmers. Der Spitzberg Calitamini,
 der jeden Abend bei Sonnenuntergang in röthlichtem Feuer
 strahlt, nimmt noch jetzt die Aufmerksamkeit der Einwohner
 von Maypures in Anspruch. Eilande aus Glimmerschiefer
-im See Amucu steigern, wie die Eingeborenen einem vorlägen,
-den Glanz der Nebelflecken am Südhimmel.I »Jeder Berg,«
-iagt Ralegh, ,,jeder Stein in den Wäldern am Orinoco glänzt
-gleich edlen Metallen; ist das kein Gold, so ist es doch mail-se
-del om.« Er versichert Stufen von weißem goldhaltigem
-Quarz charde wilde spat) mitgebracht zu haben, und zum
-Beweis, wie reich diese Erze seyen, bernst er sich auf die von
+im See Amucu steigern, wie die Eingeborenen einem vorlügen,
+den Glanz der Nebelflecken am Südhimmel. »Jeder Berg,«
+sagt Ralegh, »jeder Stein in den Wäldern am Orinoco glänzt
+gleich edlen Metallen; ist das kein Gold, so ist es doch <i>madre
+del oro</i>.« Er versichert Stufen von weißem goldhaltigem
+Quarz (<i>harde withe spar</i>) mitgebracht zu haben, und zum
+Beweis, wie reich diese Erze seyen, beruft er sich auf die von
 den Münzbeamten zu London angestellten Versuche. Ich habe
 keinen Grund zu vermuthen, daß die damaligen Scheidekünstler
-Königin Elisabeth täuschen wollten; ich will Raleghs Anden-
-ken keineswegs zu nahe treten und mit seinen Zeitgenossen
-« S. or-.»1v. Seite 294.
-
-« « :--o8
+Königin Elisabeth täuschen wollten; ich will Raleghs Andenken
+keineswegs zu nahe treten und mit seinen Zeitgenossen
 argwöhnen, der goldhaltige Quarz, den er mitgebracht, sey gar
 nicht in Amerika erhoben worden. Ueber Dinge, die in der
 Zeit so weit abliegen, läßt sich kein Urtheil stillen. Der Gneiß
 der Küstenkette enthält Spuren von edlen Metallen, und
-in den Gebirgen der Parime bei der Mission Gncarmnada
-hat man hin und wieder Goldkörner gesunden. Wie sollte
-man nach einem rein negativen Zeugnis, nach dein Umstand,
+in den Gebirgen der Parime bei der Mission Encaramada
+hat man hin und wieder Goldkörner gefunden. Wie sollte
+man nach einem rein negativen Zeugnis, nach dem Umstand,
 daß wir auf einer dreimonatlichen Reise keinen Gang gesehen,
-der am Ausgehenden goldhaltig gewesen wäre, auf die abso-
-lute Taubheit der Urgebirgsarten in Guyana schließen?
+der am Ausgehenden goldhaltig gewesen wäre, auf die absolute
+Taubheit der Urgebirgsarten in Guyana schließen?
+
 Um hier Alles zusammenzufassen, was die Regierung
-dieses Landes über einen so lange bestrittenen Punkt auszu-
-klären im Stande ist, mache ich einige allgemeinere geologische
-Bemerkungen. — Die Gebirge Brasiliens liefern, trotz der zahl-
-reichen Spuren von Erzlagem zwischen Samt Paul und Villa-
-rica, bis jetzt nur Waschgold. Von den 78,000 Mark Gold,!
+dieses Landes über einen so lange bestrittenen Punkt aufzuklären
+im Stande ist, mache ich einige allgemeinere geologische
+Bemerkungen. — Die Gebirge Brasiliens liefern, trotz der zahlreichen
+Spuren von Erzlagern zwischen Sanct Paul und Villarica,
+bis jetzt nur Waschgold. Von den 78,000 Mark
+Gold,^[Im Werth von 65,878,000 Francs.]
 welche zu Anfang des neunzehnten Jahrhunderts jährlich aus
 Amerika in den europäischen Handel geflossen sind, kommen
 mehr als sechs Siebentheile nicht aus der hohen Cordillere
-der Anden, sondern aus dem ausgeschwemmten Land östlich
-und westlich von den CordilIeren. Diese Strich- haben geringe
+der Anden, sondern aus dem aufgeschwemmten Land östlich
+und westlich von den Cordilleren. Diese Striche haben geringe
 Meereshöhe, wie die bei la Sonora (in Mexico), bei Choco
 und Barbacoas (in Neu-Grenada), oder das Alluvium liegt
-auf Hochebenen, wie im Innern Vrasiliens.2 Jst es nun
+auf Hochebenen, wie im Innern Brasiliens.^[Billarica liegt
+650 Toisen hoch,
+aber das große Plateau der Capitania
+Minas Geraes nur 300.] Ist es nun
 nicht wahrscheinlich, daß andere goldhaltige Anschwemmungen
-der nördlichen Halbkugel zu, bis an die Ufer des obern Ori-
-noco und des Rio Negro, streichen, deren Becken ja mit dem
-« Im Werth von 65,878,000 France.
-« Villarica liegt 65() Toisen hoch, aber das große Piateau der Cupi-
-tania Minas Geraes nur 300.
-
-- 309
+der nördlichen Halbkugel zu, bis an die Ufer des obern Orinoco
+und des Rio Negro, streichen, deren Becken ja mit dem
 des Amazonenstroms zusammenfällt? Als vom Dorado de
-Canelas, von dem der. Omaguas und am Jquiare die Rede
+Canelas, von dem der Omaguas und am Iquiare die Rede
 war, bemerkte ich, daß alle Flüsse, welche von West her
 kommen, reichlich Gold führen, und zwar sehr weit von den
-Cordilleren weg. Von Loxa bis Popayan bestehen die Cor-
-dilleren abwechselnd ans Trachyt und aus 1Irgebirge. Die
-Ebenen bei Zamora, Logrof1o und Macas (Sevilla del Oro), der
-große Mo Napo mit seinen Nebenflüssen (dem Ansupi und dem
+Cordilleren weg. Von Loxa bis Popayan bestehen die Cordilleren
+abwechselnd aus Trachyt und aus Urgebirge. Die
+Ebenen bei Zamora, Logroño und Macas (Sevilla del Oro), der
+große Rio Napo mit seinen Nebenflüssen (dem Ansupi und dem
 Coca in der Provinz Quixos), der Caqueta von Mocoa bis zum
-Einfluß des Fragua, endlich alle-s Land zwischen Jaen de
-Bracamoros und dem Gnaviare behaupten noch immer ihren
+Einfluß des Fragua, endlich alles Land zwischen Jaen de
+Bracamoros und dem Guaviare behaupten noch immer ihren
 alten Ruf großen Metallreichthums. Weiter gegen Ost, zwischen
-den Quellen des Guainia (Rio Negro), des 11aupes, Jquiari
-und Jurnbesh finden wir ein anderes unstreitig goldhaltiges
-Gebiet. Hieher setzen Acuf1a und Pater Fritz ihre I«aguna.
-del oro, und Manches, was ich in San Carlos aus dem.
-Munde der portugiesischen Amerikaner vernommen, macht voll-
-kommen erklärlsch, was La Condamine von den Goldblechen
+den Quellen des Guainia (Rio Negro), des Uaupes, Iquiari
+und Jurubesh finden wir ein anderes unstreitig goldhaltiges
+Gebiet. Hieher setzen Acuña und Pater Fritz ihre <i>Laguna
+del oro</i>, und Manches, was ich in San Carlos aus dem
+Munde der portugiesischen Amerikaner vernommen, macht vollkommen
+erklärlich, was La Condamine von den Goldblechen
 erzählt, die bei den Eingeborenen gefunden worden. Gehen
-wir vom Jquiari auf das linke Ufer des Rio Negro, so be-
-treten wir ein völlig unbekanntes Land zwischen dem Rio
+wir vom Iquiari auf das linke Ufer des Rio Negro, so betreten
+wir ein völlig unbekanntes Land zwischen dem Rio
 Branco, den Quellen des Essequebo und den Gebirgen von
-portugiesisch Guyana. Acuf1a spricht vom Golde, das die
-nördlichen Nebenslüsse des Amazonenstroms führen, wie der
-Mo Trombetas (Oriximina), der Curupatuba und der Güti-
-pape (Nio de Paru). Alle diese Flüsse, und dieser Umstand
+portugiesisch Guyana. Acuña spricht vom Golde, das die
+nördlichen Nebenflüsse des Amazonenstroms führen, wie der
+Rio Trombetas (Oriximina), der Curupatuba und der Sitipape
+(Rio de Paru). Alle diese Flüsse, und dieser Umstand
 scheint mir bemerkenswerth, kommen von derselben Hochebene
 herab, auf deren nördlichem Abhang der See Amucu, der
-Dorado Raleghs und der Holländer, der Jsthmus zwischen
+<b>Dorado</b> Raleghs und der Holländer, der Isthmus zwischen
 dem Rupunuri (Rupunuwini) und dem Rio Mahu liegen.
-
-310
-Nichts streitet wider die Annahme, daß aufgeschtvemmtes gold-
-haltiges Land weit von den Cordilleren der Anders nördlich
+Nichts streitet wider die Annahme, daß aufgeschwemmtes goldhaltiges
+Land weit von den Cordilleren der Anden nördlich
 vom Amazonenstrom vorkommt, wie südlich von demselben in
-den Gebirgen Brasiliens. Die Caraiben am Caronh, Cuyuni
+den Gebirgen Brasiliens. Die Caraiben am Carony, Cuyuni
 und Essequebo haben von jeher im aufgeschwemmten Land
 Goldwäscherei im Kleinen getrieben. Das Becken des Orinoco,
 des Rio Negro und des Amazonenstroms wird nordwärts von
 den Gebirgen der Parime, südwärts von denen von Minas
-Geraes und Matogrosso begrenzt. Häufig stimmen die ein-
-ander gegenüberliegenden Abhange desselben Thales im geolo-
-gischen Verhalten überein. « -
-Ich habe in diesem Bande die großen Provinzen Vene-
-zuela und spanisch Guyana beschrieben. Die Untersuchung
+Geraes und Matogrosso begrenzt. Häufig stimmen die einander
+gegenüberliegenden Abhange desselben Thales im geologischen
+Verhalten überein.
+
+Ich habe in diesem Bande die großen Provinzen Venezuela
+und spanisch Guyana beschrieben. Die Untersuchung
 ihrer natürlichen Grenzen, ihrer klimatischen Verhältnisse und
-ihrer Produkte hat mich dazu geführt, den Einfluß der Boden-
-bildung auf den Ackerbau, den Handel und den mehr oder
+ihrer Produkte hat mich dazu geführt, den Einfluß der Bodenbildung
+auf den Ackerbau, den Handel und den mehr oder
 weniger langsamen Gang der gesellschaftlichen Entwicklung zu
 erörtern. Ich habe nach einander die drei Zonen durchwandert,
 die von Nord nach Süd, vom Mittelmeer der Antillen bis
@@ -9872,28 +9725,27 @@ kommen die von Hirtenvölkern bewohnten Steppen. Diese
 Steppen sind wiederum begrenzt von der Waldregion, wo der
 Mensch, ich sage nicht der Freiheit, die immer eine Frucht
 der Cultur ist, aber einer wilden Unabhängigkeit genießt. Die
-Grenze dieser zwei letzteren Zonen ist gegenwärtig der Schau-
-platz des Kampfes, der über die Unabhängigkeit und das Wohl
-Amerika-S entscheiden soll. Die Umwandlungen, die bevor-
-stehen, können den -eigenthümlichen Charakter jeder Region
-
-- 3»11
+Grenze dieser zwei letzteren Zonen ist gegenwärtig der Schauplatz
+des Kampfes, der über die Unabhängigkeit und das Wohl
+Amerikas entscheiden soll. Die Umwandlungen, die bevorstehen,
+können den eigenthümlichen Charakter jeder Region
 nicht verwischen; aber die Sitten und die ganzen Zustände
-der Einwohner müssM sich gleichförmiger färben. Durch diese
-R1·icksicht mag eine zu Anfang des neunzehnten Jahrhunderts
+der Einwohner müssen sich gleichförmiger färben. Durch diese
+Rücksicht mag eine zu Anfang des neunzehnten Jahrhunderts
 unternommene Reise einen Reiz weiter erhalten. Gerne sieht
 man wohl in Einem Bilde neben einander die Schilderung
-der civilisirten Völker am Meere-sufer und der schwachen Ueber-
-reste der Eingeborenen am Orinoco, die von keinem andern
+der civilisirten Völker am Meeresufer und der schwachen Ueberreste
+der Eingeborenen am Orinoco, die von keinem andern
 Gottesdienste wissen, außer der Verehrung der Naturkräfte,
-und, gleich den Germanen des Tacitus, dem-um »nominib«us
-app(-l1ant se-oretum i1lu(1, quo(1 s0la reverentia vident-.
-.j -,j—-
+und, gleich den Germanen des Tacitus, <i>deorum nominibus
+appellant secretum illud, quod sola reverentia vident</i>.
 
--Seit)-zundzwanzigsieo Kapitel.
-Die Llanog del Pay oder des ösllichen Stricke der Steppen von Benezuela.
-— Missionen der Caraiben. — Letzter Aufenthalt aus den Küsten von
+# Sechsundzwanzigstes Kapitel.
+
+Die Llanos del Pao oder des östlichen Strichs der Steppen von Venezuela.
+— Missionen der Caraiben. — Letzter Aufenthalt auf den Küsten von
 Nueva Barcelona, Cumana und Araya.
+
 Es war bereits Nacht, als wir zum letztenmal über das
 Bett des Orinoco fuhren. Wir wollten bei der Schanze Sau
 Rafael übernachten und dann mit Tages Anbruch die Reise

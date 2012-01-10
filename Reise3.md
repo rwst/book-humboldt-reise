@@ -5,10 +5,10 @@
 
     
 
-
+<div class="sc">
 San Fernando de Apure. — Verschlingungen und Gabeltheilungen der
 Flüsse Apure und Arauca. — Fahrt auf dem Rio Apure.
-
+</div>
 
 
 Bis in die zweite Hälfte des achtzehnten Jahrhunderts
@@ -6867,7 +6867,7 @@ am Platze wäre.
 Es ist hier der Ort, von der 
 **geographischen Vertheilung**
 dieser Insekten aus der Familie der 
-**Tipu1ae** zu
+**Tipulae** zu
 sprechen, die ganz merkwürdige Erscheinungen darbietet. Dieselbe
 scheint keineswegs bloß von der Hitze, der großen Feuchtigkeit
 und den dichten Wäldern abzuhängen, sondern auch

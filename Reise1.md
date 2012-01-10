@@ -8413,7 +8413,7 @@ spanischen Colonien den sonderbaren Titel: »neue Philosophie,«
 *nueva filosofia* führen. Die Halbgelehrten sahen mit einer
 gewissen Geringschätzung auf uns herab, wenn sie hörten,
 daß sich unter unsern Büchern weder das 
-*spectac1e de la
+*spectacle de la
 nature* vom Abbé Pluche, noch der 
 *cours de physique* von
 Sigand la Fond, noch das Wörterbuch von Valmont de Bomare

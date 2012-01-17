@@ -9747,126 +9747,119 @@ Die Llanos del Pao oder des östlichen Strichs der Steppen von Venezuela.
 Nueva Barcelona, Cumana und Araya.
 
 Es war bereits Nacht, als wir zum letztenmal über das
-Bett des Orinoco fuhren. Wir wollten bei der Schanze Sau
+Bett des Orinoco fuhren. Wir wollten bei der Schanze San
 Rafael übernachten und dann mit Tages Anbruch die Reise
 durch die Steppen von Venezuela antreten. Fast sechs Wochen
-waren seit unserer Ankunft in Angostura verslossen; wir sehn-
-ten uns nach der Küste, um entweder in Cumana oder in
+waren seit unserer Ankunft in Angostura verflossen; wir sehnten
+uns nach der Küste, um entweder in Cumana oder in
 Nueva Barcelona ein Fahrzeug zu besteigen, das uns auf
 die Insel Cuba und von dort nach Mexico brächte. Nach
 den Beschwerden, die wir mehrere Monate lang in engen
 Canoes auf von Mücken wimmelnden Flüssen durchgemacht,
-hatte der Gedanke an eine lange Seereise für unsere C·inbil-
-dungskraft einen gewissen Reiz. Wir gedachten nicht mehr
+hatte der Gedanke an eine lange Seereise für unsere Einbildungskraft
+einen gewissen Reiz. Wir gedachten nicht mehr
 nach Südamerika zurückzukommen. Wir brachten die Anden
-von Peru dem noch so wenig bekannten Archipel der Philip-
-pinen zum Opfer und beharrten bei unserem alten Plan, uns
+von Peru dem noch so wenig bekannten Archipel der Philippinen
+zum Opfer und beharrten bei unserem alten Plan, uns
 ein Jahr in Neuspanien aufzuhalten, mit der Galione von
 Acapulco nach Manilla zu gehen und über Basora und Aleppo
 nach Europa zurückzukehren. Wir dachten, wenn wir einmal
-die spanischen Besitzungen in Amerika im Rilcken hätten, könnte
-
-313
+die spanischen Besitzungen in Amerika im Rücken hätten, könnte
 der Sturz eines Ministeriums, dessen großherzigem Vertrauen
-ich so unbeschränkte Vefugnisse zu danken hatte, der Durch-
-führung unseres Unternehmens nicht mehr hinderlich werden.
+ich so unbeschränkte Befugnisse zu danken hatte, der Durchführung 
+unseres Unternehmens nicht mehr hinderlich werden.
 Lebhaft bewegten uns diese Gedanken während der einförmigen
 Reise durch die Steppen. Nichts hilft so leicht über die kleinen
 Widerwärtigkeiten des Lebens weg, als wenn der Geist mit
 der bevorstehenden Ausführung eines gewagten Unternehmens
-I-eschüfü-it ist. »
-Unsere Maulthiere warteten unser am linken ·Ufer des
-Orinoeo. Durch die Pflanzensammlungen und die geologischen
+beschäftigt ist.
+
+Unsere Maulthiere warteten unser am linken Ufer des
+Orinoco. Durch die Pflanzensammlungen und die geologischen
 Suiten, die wir seit Esmeralda und dem Rio Negro mit uns
 führten, war unser Gepäck bedeutend stärker geworden. Da
-es mißlich gewesen wäre, uns von unsern Herbarien zu tren-
-nen, so mußten wir uns auf eine sehr langsame Reise durch
-die Llanos gefaßt machen. Durch das Zurückprallen der Son-
-nenstrahlen vom fast» pslanzenlosen" Boden war die Hitze unge-
-mein stark. Indessen stand der hunderttheilige Thermometer
-bei T«-g"dych nur auf so bis 34, bei- Nacht auf 27 bis 28
+es mißlich gewesen wäre, uns von unsern Herbarien zu trennen,
+so mußten wir uns auf eine sehr langsame Reise durch
+die Llanos gefaßt machen. Durch das Zurückprallen der Sonnenstrahlen
+vom fast pflanzenlosen Boden war die Hitze ungemein
+stark. Indessen stand der hunderttheilige Thermometer
+bei Tag doch nur auf 30 bis 34, bei Nacht auf 27 bis 28
 Grad. Wie fast überall unter den Tropen war es daher
-nicht sowohl der absolute Hitzegrad als das Andauern der-
-selben, was widrig auf unsere Organe wirkte. Wir brauchten
+nicht sowohl der absolute Hitzegrad als das Andauern derselben,
+was widrig auf unsere Organe wirkte. Wir brauchten
 dreizehn Tage, um über die Steppen zu kommen, wobei wir
 uns in den Missionen der Caraiben und in der kleinen Stadt
-Pao etwas aufhielten. .Ich habe oben « das physische Gemälde
-dieser unermeßlichen Ebenen entworfen, die zwischen den 
-dern von Guyana und der Küstenkette liegen. Der östliche
+Pao etwas aufhielten. Ich habe oben^[S. Bd. II. Seite 366ff.]
+das physische Gemälde
+dieser unermeßlichen Ebenen entworfen, die zwischen den Wäldern
+von Guyana und der Küstenkette liegen. Der östliche
 Strich der Llanos, über den wir von Angostura nach Nueva
-Bareelona kamen, bietet denselben öden Anblick wie der westliche,
-- S. Bd. u. Seite see is.
-
-ZU
-über den wir von den Thälern von slragua nach San Fer-
-nando am Apure gegangen waren. In der trockenen Jahres-
-zeit, welche hier Sommer heißt, obgleich dann die Sonne
+Barcelona kamen, bietet denselben öden Anblick wie der westliche,
+über den wir von den Thälern von Aragua nach San Fernando
+am Apure gegangen waren. In der trockenen Jahreszeit,
+welche hier <b>Sommer</b> heißt, obgleich dann die Sonne
 in der südlichen Halbkugel ist, weht der Seewind in den
-Steppen von Cumana weit stärker als in denen von Earacas;
-denn diese weiten Ebenen bilden, gleich den angebauten Fluten
-der Lombardei, ein nach Oft offenes, nach Nord, Süd und
+Steppen von Cumana weit stärker als in denen von Caracas;
+denn diese weiten Ebenen bilden, gleich den angebauten Fluren
+der Lombardei, ein nach Ost offenes, nach Nord, Süd und
 West durch hohe Urgebirgsketten geschlossenes Becken. Leider
-kam uns dieser erfrischende Wind, von dem die .L1aneros
+kam uns dieser erfrischende Wind, von dem die Llaneros
 (die Steppenbewohner) mit Entzücken sprechen, nicht zu gute.
 Nordwärts vom Aequator war Regenzeit; in den Llanos selbst
-regnete es freilich nicht, aber durch den Wechsel in der Ab-
-weichung der Sonne hatte das Spiel der Polarströmungen
+regnete es freilich nicht, aber durch den Wechsel in der Abweichung
+der Sonne hatte das Spiel der Polarströmungen
 längst aufgehört. In diesen Landstrichen am Aequator, wo
 man sich nach dem Zug der Wolken orientiren kann, und wo
 die Schwankungen des Quecksilbers im Barometer fast wie
 eine Uhr die Stunde weisen, ist Alles einem regelmäßigen,
-gleichförmigen Typus unterworfen. Das Aufhören der See-
-winde, der Eintritt der Regenzeit und die Häufigkeit elek-
-trischer Entladungen sind durch Unabänderliche Gesetze ver-
-knüpfte Erscheinungen. -
-» Beim Einfluß des Apure in den Orinoco, am Berge Sa-
-cuima, hatten wir einen französischen Landwirth getroffen, der
-unter seinen Heerden in völliger Abgeschiedenheit lebte.1 Es
-war das der Mann, der in seiner Einfalt glaubte, die po-
-litischen Revolutionen in der alten Welt und die daraus ent-
-sprungenen Kriege rühren nur ,,vom langen Widerstande der
-Qbservanten« her. Kaum hatten wir die Llanos von Neu-
-. « S. Bd. IV. Seite 192.
+gleichförmigen Typus unterworfen. Das Aufhören der Seewinde,
+der Eintritt der Regenzeit und die Häufigkeit elektrischer
+Entladungen sind durch unabänderliche Gesetze verknüpfte
+Erscheinungen.
 
-315
-Barcelona betreten, so brachten wir die erste Nacht wieder
+Beim Einfluß des Apure in den Orinoco, am Berge Sacuima,
+hatten wir einen französischen Landwirth getroffen, der
+unter seinen Heerden in völliger Abgeschiedenheit lebte.^[S.
+Seite 192.] Es
+war das der Mann, der in seiner Einfalt glaubte, die politischen
+Revolutionen in der alten Welt und die daraus entsprungenen
+Kriege rühren nur »vom langen Widerstande der
+Observanten« her. Kaum hatten wir die Llanos von Neu-Barcelona
+betreten, so brachten wir die erste Nacht wieder
 bei einem Franzosen zu, der uns mit der liebenswürdigsten
 Gastfreundlichkeit aufnahm. Er war aus Lyon gebürtig, hatte
 das Vaterland in früher Jugend verlassen und schien sich um
 Alles, was jenseits des atlantischen Meeres, oder, wie man
 hier für Europa ziemlich geringschätzig sagt, »auf der andern
-Seite der großen Lache« (de1 0tro lade del eher(-o) vor-
-geht, sehr wenig zu kümmern. Wir sahen unsern Wirth be—
-schäftigt, große Holzftücke mittelst eines Leims, der Guayca
-heißt, an einander zu fügen. Dieser Stoff, desseic sich auch
-die Tischler in Angoftura bedienen, gleicht dem besten aus
+Seite der großen Lache« (<i>del otro lado del charco</i>)
+vorgeht, sehr wenig zu kümmern. Wir sahen unsern Wirth beschäftigt,
+große Holzstücke mittelst eines Leims, der <b>Guayca</b>
+heißt, an einander zu fügen. Dieser Stoff, dessen sich auch
+die Tischler in Angostura bedienen, gleicht dem besten aus
 dem Thierreich gewonnenen Leim. Derselbe liegt ganz fertig
-zwischen Rinde und Splint einersLiane aus der Familie der
-Eombretaceen.« Wahrscheinlich kommt er in seinem chemischen
-Verhalten nahe überein mit dem Vogelleim, einem vegetabi-
-lischen Stoff, der aus den Beeren der Mistel und der innern-
+zwischen Rinde und Splint einer Liane aus der Familie der
+Combretaceen.^[<i>Combretum
+guayca</i>] Wahrscheinlich kommt er in seinem chemischen
+Verhalten nahe überein mit dem Vogelleim, einem vegetabilischen
+Stoff, der aus den Beeren der Mistel und der innern
 Rinde der Stechpalme gewonnen wird. Man erstaunt, in
 welcher Masse dieser klebrigte Stoff ausfließt, wenn man die
-rankenden Zweige des Vejuco de Guayca abschneidet. So
+rankenden Zweige des <b>Vejuco de Guayca</b> abschneidet. So
 findet man denn unter den Tropen in reinem Zustand und
-in besondern Organen abgelagert, was man sich in der ge-
-mäßigten Zone nur auf künstlichem Wege verschaffen kanns«
-"Erft am dritten Tage kamen wir in die caraibischen
-Missionen am Eari. Wir fanden hier den Boden durch die
+in besondern Organen abgelagert, was man sich in der gemäßigten
+Zone nur auf künstlichem Wege verschaffen kann.^[S. Bd. III. Seite 331.]
+
+Erst am dritten Tage kamen wir in die caraibischen
+Missionen am Cari. Wir fanden hier den Boden durch die
 Trockenheit nicht so stark aufgesprungen wie in den Llanos
-von Calabozo. Ein paar Regengtisse hatten der Vegetation
+von Calabozo. Ein paar Regengüsse hatten der Vegetation
 neues Leben gegeben. Kleine Grasarten und besonders jene
 krautartigen Sensitiven, von denen das halbwilde Vieh so
-« c0mbretum G-uoyca.
-« S. Bd. lII. Seite 331.
-
-s
-. 3l6
 fett wird, bildeten einen dichten Rasen. Weit auseinander
-standen hie und da Stämme der Fächerpalme (cokyx-hu
-tec·ior«um), der Rhopala (Chaparro) und Malpighia mit
-lederartigen, glänzenden Blättern. Die feuchten Stellen er-
-kennt man von weitem an den Büschen von Mauritia, welche
+standen hie und da Stämme der Fächerpalme (<i>Corypha
+tectorum</i>), der Rhopala (Chaparro) und Malpighia mit
+lederartigen, glänzenden Blättern. Die feuchten Stellen erkennt
+man von weitem an den Büschen von Mauritia, welche
 der Sagobaum dieses Landstrichs ist. Auf den Küsten ist diese
 Palme das ganze Besitzthum der Guaraons-Indianer, und,
 was ziemlich auffallend ist, wir haben sie 160 Meilen weiter
@@ -9879,9 +9872,10 @@ schmeckt wie überreife Apfel. Die Thiere saßen zwischen
 unserem Gepäck auf dem Rücken der Maulthiere und strengten
 sich gewaltig an, um der über ihren Köpfen hängenden Büschel
 habhaft zu werden. Die Ebene schwankte wellenförmig in
-Folge der Luftspiegelung,I und als wir nach einer Stunde
+Folge der Luftspiegelung,^[S. Bd. I. Seite 198, 216. II. 87, 389.]
+und als wir nach einer Stunde
 Wegs diese Palmstämme, die sich am Horizont wie Masten
-ausnahmen, erreichten, sahen wir mit Ueberraschung, ·wie
+ausnahmen, erreichten, sahen wir mit Ueberraschung, wie
 viele Dinge an das Daseyn eines einzigen Gewächses geknüpft
 sind. Die Winde, vom Laub und den Zweigen im raschen
 Zuge aufgehalten, häufen den Sand um den Stamm auf.
@@ -9890,57 +9884,53 @@ weitem die Zugvögel her, die sich gern auf den Wedeln der
 Palme wiegen. Ringsum vernimmt man ein leises Rauschen.
 Niedergedrückt von der Hitze, gewöhnt an die trübselige Stille
 der Steppe, meint man gleich einige Kühlung zu spüren,
-« S. Bd. 1. Seite 198. 21c3. II. 87. 389. «
-
-3l7
 wenn sich das Laub auch nur ein wenig rührt. Untersucht
-man den Boden an der Seite abwärts vom Winde, so sindet
+man den Boden an der Seite abwärts vom Winde, so findet
 man ihn noch lange nach der Regenzeit feucht. Insekten und
-W1"irmer,· sonst in den Llanos so selten, ziehen sich hieher
-und pflanzen sich fort» So verbreitet ein einzeln stehender,
+Würmer^[Zu welcher Gattung gehören die Würmer (arabisch Loul), welche
+Capitän Lyon, der Reisebegleiter meines muthigen, unglücklichen Freundes
+Ritchie, in der Wüste Fezzan in Lachen gesunden, die von den Arabern
+gegessen werden und wie Caviar schmecken? Sollten es nicht Insekteneier
+seyn, ähnlich dem <b>Aguautle</b>, den ich in Mexico auf dem Markt habe
+verkaufen sehen und der an der Oberfläche des Sees Tezcuco gefischt
+wird?], sonst in den Llanos so selten, ziehen sich hieher
+und pflanzen sich fort. So verbreitet ein einzeln stehender,
 häufig verkrüppelter Baum, den der Reisende in den Wäldern
 am Orinoco gar nicht beachtete, in der Wüste Leben um
-sich her—
-Wir langten am 13. Juli im Dorfe Cari2 an, der
+sich her.
+
+Wir langten am 13. Juli im Dorfe Cari^[<i>Nuestra Señora del Socorro
+del Cari</i>, gegründet im Jahr 1761.] an, der
 ersten der caraibischen Missionen, die unter den Mönchen von
 der Congregation der Observanten aus dem Collegium von
-Piritu3 stehen. Wir wohnten, wie gewöhnlich, im Kloster,
+Piritu^[Diese Missionäre nennen sich <i>Padres Missioneros Observantes
+del Colegio de la purissima Conception de propaganda fide en la Nueva
+Barcelona</i>.] stehen. Wir wohnten, wie gewöhnlich, im <b>Kloster</b>,
 das heißt beim Pfarrer. Wir hatten, außer den Pässen des
-Generalcapitäns der Provinz, Empfehlungen der Vischöfe und
+Generalcapitäns der Provinz, Empfehlungen der Bischöfe und
 des Gardians der Missionen am Orinoco. Von den Küsten
-von NewCalisornien bis Valdivia und an die Mündung des
-Mo de la Plata, auf einer Strecke von 2000 Meilen, lassen
+von Neu-Californien bis Valdivia und an die Mündung des
+Rio de la Plata, auf einer Strecke von 2000 Meilen, lassen
 sich alle Schwierigkeiten einer langen Landreise überwinden,
-wenn man des Schutzes der amerikanischen Geistlichkeit ge-
-nießt. Die Macht, welche diese Körperschaft im Staate aus-
-übt, isi zu fest begründet, als daß sie in einer neuen Ord-
-nung der Dinge so bald erschüttert werden könnte. Unserem
-« Zu welcher Gattung gehören die Würmer (arabisch Loul), welche
-Eapitün Loou, der Reisebegleiter meines muthigen, unglücklichen Freundes
-iIütchie, in der Wüste Fezzan in Lachen gesunden, die von den Ae(-lsern
-gegessen werden und wie Caviar schmeckcn? Si-llten es nicht Insekteneier
-seyn, ähnlich dem Aguautle, den ich in Mexico auf dem Markt habe
-verkaufen sehen und der an der Oberfläche des Sees Tezcuco gesischt wird?
-« Nuestra se-stored del soc0n«o del Carl, gegründet im Jahr 1761.
-« Diese Missionäre nennen sich Poch-es II-lissioae1·0s 0bsen-armes del
-Col-gio de la pas-issima conceptioa de propaga1)du fide en la Nasen
-Bat-celons.
-
-3l8
-Wirth war unbegreiflich, ,,wie Leute aus dem nördlichen
+wenn man des Schutzes der amerikanischen Geistlichkeit genießt.
+Die Macht, welche diese Körperschaft im Staate ausübt,
+ist zu fest begründet, als daß sie in einer neuen Ordnung
+der Dinge so bald erschüttert werden könnte. Unserem
+Wirth war unbegreiflich, »wie Leute aus dem nördlichen
 Europa von den Grenzen von Brasilien her, über Rio Negro
-und Orinoco, und nicht auf dem Wege von Eumana her
+und Orinoco, und nicht auf dem Wege von Cumana her
 zu ihm kamen.« Er behandelte uns ungemein freundlich,
 verläugnete indessen keineswegs die etwas lästige Neugier,
 welche das Erscheinen eines nicht spanischen Europäers in
-Südamerika immer rege macht.· Die Mineralien, die wir
-gesammelt, mußten Gold enthalten; so sorgfältig getrock-
-nete Pflanzen konnten nur Arzneigewächse seyn. Hier, wie
-in so vielen Ländern in Europa, meint man, die Wissen-
-schast sey nur dann eine würdige Beschäftigung für den Geist,
+Südamerika immer rege macht. Die Mineralien, die wir
+gesammelt, mußten Gold enthalten; so sorgfältig getrocknete
+Pflanzen konnten nur Arzneigewächse seyn. Hier, wie
+in so vielen Ländern in Europa, meint man, die Wissenschaft
+sey nur dann eine würdige Beschäftigung für den Geist,
 wenn dabei für die Welt ein materieller Nutzen herauskomme.
+
 Wir fanden im Dorfe Cari über 500 Caraiben und in
-den Missionen umher sahen wir ihrer noch vieles Es ist
+den Missionen umher sahen wir ihrer noch viele. Es ist
 höchst merkwürdig, ein Volk vor sich zu haben, das, früher
 nomadisch, erst kürzlich an feste Wohnsitze gefesselt worden
 und sich durch Körper- und Geisteskraft von allen andern
@@ -9948,95 +9938,17 @@ Indianern unterscheidet. Ich habe nirgends anderswo einen
 ganzen so hochgewachsenen (5 Fuß 6 Zoll bis 5 Fuß 10 Zoll)
 und so colossal gebauten Volksstamm gesehen. Die Männer,
 und dieß kommt in Amerika ziemlich häufig vor, sind mehr
-bekleidet als die Weiber. Diese tragen nur den Gnayu ro
+bekleidet als die Weiber. Diese tragen nur den <b>Guayuco</b>
 oder Gürtel in Form eines Bandes, bei den Männern ist
 der ganze Untertheil des Körpers bis zu den Hüften in ein
-Stück dunkelblauen, fast schwarzen Tuches gehüllt. Diese Be-
-kleidung ist so weit, daß die Caraiben, wenn gegen Abend
+Stück dunkelblauen, fast schwarzen Tuches gehüllt. Diese Bekleidung
+ist so weit, daß die Caraiben, wenn gegen Abend
 die Temperatur abnimmt, sich eine Schulter damit bedecken.
-Da ihr Körper mit Onot o bemalt ist, so gleichen ihre großen,
+Da ihr Körper mit <b>Onoto</b> bemalt ist, so gleichen ihre großen,
 malerisch drapirten Gestalten von weitem, wenn sie sich
 in der Steppe vom Himmel abheben, antiken Broncestatuen.
-
-», .». . —-. - ..» .- .- -»· »- - -
-». -.- --.... -- ...- - -
-— H - — —
-»: .-..... - - -. -.. -.. ... . - -
-.O — -T -H ·«--- . - . -—- -. - .-
-— ·« · H- - ---- - --
-...-.- . -. -... -
-»--·-- ·- .-.-- -..«-- . . — --- -
-:'-- -- -H -.-. J --..- - — « -
-r--..«. - - - I· -..- - - .. .- -. - -
-k-.·.--·.- -..· -.- --.-— -- . - --- .
-'.,'..-.--·--k"--- I ------ — -.-
-:.L: .- .- -·-- -?- ------ - -- — - - - -  .
-- - . · . -.-- - . . -:.. . .-- -
-,.»,,......·- . « · ·» .-
-...--.-. -.. -.. - -- - - . -... - ... . . »
-. - -. -
--. -.-«·-«.-. -,.. -.-- -—----· . .. . ·. -
--... - - --. -... .......- . .·. .. -..... . -.. .. . .. .
-I»-.·, -.;-.-» «. -..- - - - · . .. -»» - -..... ...— .
-D-- H-—--1- - -- F- - -- - -· H« --- - - -H »- «- -
-W- -.......- - ....«.,. ---.....---... »·-,-»« ·
-se- U---- - ---· ---.«-.-.·-- - --.-- . H -
-sub :-..:.·5  :--··--T :i:·-.. . .— -; -. —, —
-7ckcn L·-Ei :-E: IT:-:-.«.r.·· I.-: I»-.;·.--I: :.. -.-:..-»F« - — z
-Ge5cbick:7.fre-.E-:: :-: L-:.«-.-: :·:· .::: :-?:s.·:7 E--.--—
-5chrieben. 3ll:e c:"«I·.:·::? :·.;·«·-:-S E::::-;—:2 di «: ·« ;k -
-Fahrt auf dem 1:n:e:-.-. L::::-:: ::.-.: :: d.«:  -« :-K 
-Piritu gesehen, nun-rickeiren s":.i- :«::: dir: :·:r:,.: .·’.—::  —
-nicht allein durch ihren beben W1:cl-L-. T«-ndcr:: .-.::.2« d:.:-ed
-THIS 'kSgSlMO"!ßigEU ZEIT- J!-sc Nase ist nickt To du-:: -:i:d
-platt, ihre Backenknochen springen nicht so stark vor. F»
-ganze Geficht-3aus8druck ist weniger mongolifc1i. Blicks its:-»«
-Augen, die schmärzer sind als bei den andern .Lwk-pp» H»
-GUyCM«, fP1’kcht Vekst(U1d, faft möchte man sag«-It Nachdeuk-
-lichten. Die Caraiben haben etwas Ernstes in ihrem I
-nehmen und etwas SchIvermüthiges im Blick, wie die M·
-z«bl der Ureinn.sohner der neuen Welt. Der emsig Ausp-
-iI,7tet Züge wird nvch bedeutend dCdutch gestkigkkk Haß
-ei- A-,z1-kam mit dem S«-it des Saum- »z,tm  »
-I
-·E.LI.l11.Ss"te!P-3. «
-
-3l8
-Wirth war unbegreiflich, ,,wie Leute ans dem nördlichen
-Europa von den Grenzen von Brasilien her, über Rio Negro
-und Orinoco, und nicht auf dem Wege von Emnana her
-zu ihm kamen.« Er behandelte uns ungemein freundlich,
-verläugnete indessen keineswegs die etwas lästige Neugier,
-welche das Erscheinen eines nicht spanischen Guropäers in
-Südamerika immer rege mai-ht.« Die Mineralien, die wir
-gesammelt, mußten Gold enthalten; so sorgfältig getrock-
-nete Pflanzen konnten nur Arzneigewächse seyn. Hier, wie
-in so vielen Ländern in Europa, meint man, die Wissen-
-schaft sey nur dann eine würdige Beschäftigung für den Geist,
-wenn dabei für die Welt ein materieller Nutzen herauskomme.
-Wir fanden im Dorfe Cari über 500 Caraiben und in
-den Missionen umher sahen wir ihrer noch viele( Es ist
-höchst merkwürdig, ein Volk vor sich zu haben, das, früher
-nomadisch, erst kürzlich an feste Wohnsitze gefesselt worden
-und sich durch Körper- und Geistes-kraft von allen andern
-Indianern unterscheidet. Ich habe nirgends anderswo einen
-ganzen so hochgewachsenen (5 Fuß 6 Zoll bis 5 Fuß 10 Zoll)
-und so colossal gebauten Volksstamm gesehen. Die Männer,
-und dies; kommt in Amerika ziemlich häufig vor, sind mehr
-bekleidet als die Weiber. Diese tragen nur den Guayuco
-oder Gürtel in Form eines Bandes, bei den Männern ist
-der ganze Untertheil des Körpers bis zu den Hüften in ein
-Stück dunkelblauen, fast schwarzen Tuches gehüllt. Diese B-
-kleidung ist so weit, daß die Caraiben, wenn gegen Abend
-die Temperatur abnimmt, sich eine Schulter damit bedecken.
-Da ihr Körper mit Quote bemalt ist, so gleichen ihre großen,
-malerisch drapirten Gestalten von weitem, wenn sie sich
-in der Steppe vom Himmel abheben, antiken Broncestatuen.
-
-O
-" « » 319
-Bei den Männern ist das Haar sehr charakteristisch verschnit-
-ten, nämlich wie bei den Mönchen oder den Chorknaben. Die
+Bei den Männern ist das Haar sehr charakteristisch verschnitten,
+nämlich wie bei den Mönchen oder den Chorknaben. Die
 Stirne ist zum Theil glatt geschoren, wodurch sie sehr hoch
 erscheint. Ein starker, kreisrund geschnittener Haarbüschel
 fängt erst ganz nahe am Scheitel an. Diese Aehnlichkeit der
@@ -10046,10 +9958,10 @@ behauptet hat, daher, daß es die Eingeborenen ihren Herren
 und Meistern, den Patres Franciskanern, gleich thun wollen.
 Die Stämme, die zwischen den Quellen des Carony und des
 Rio Branco in wilder Unabhängigkeit verharren, zeichnen
-sich durch eben diesen (-et-qujlIo de t’re«j1es ans, den
+sich durch eben diesen <i>cerquillo de frailes</i> aus, den
 schon bei der Entdeckung von Amerika die frühesten spanischen
-Geschichtschreiber den Völkern von caraibischem Stamme zu-
-schrieben. Alle Glieder dieses Stammes, die wir bei unserer
+Geschichtschreiber den Völkern von caraibischem Stamme zuschrieben.
+Alle Glieder dieses Stammes, die wir bei unserer
 Fahrt auf dem untern Orinoco und in den Missionen von
 Piritu gesehen, unterscheiden sich von den übrigen Indianern
 nicht allein durch ihren hohen Wuchs, sondern auch durch
@@ -10057,155 +9969,146 @@ ihre regelmäßigen Züge. Ihre Nase ist nicht so breit und
 platt, ihre Backenknochen springen nicht so stark vor, der
 ganze Gesichtsausdruck ist weniger mongolisch. Aus ihren
 Augen, die schwarzer sind als bei den andern Horden in
-Guyana, spricht Verstand, fast möchte man sagen Nachdenk-
-lichkeit. Die Caraiben haben etwas Ernstes in ihrem Be-
-nehmen und etwas Sehwermüthiges im Blick, wie die Mehr-
-zahl der Ureinwohner der neuen Welt. Der ernste Ausdruck
+Guyana, spricht Verstand, fast möchte man sagen Nachdenklichkeit.
+Die Caraiben haben etwas Ernstes in ihrem Benehmen
+und etwas Schwermüthiges im Blick, wie die Mehrzahl
+der Ureinwohner der neuen Welt. Der ernste Ausdruck
 ihrer Züge wird noch bedeutend dadurch gesteigert, daß sie
-die Aughrauen mit dem Saft des Caruto« färben, sie stärker
-« S. Bd. I11. Seite 95.
-
-320
-machen und zusammenlausen lassen; häufig mack)en sie fah
+die Augbrauen mit dem Saft des Caruto^[S. Bd. III. Seite 95.] färben,
+sie stärker
+machen und zusammenlaufen lassen; häufig machen sie fast
 im ganzen Gesicht schwarze Flecke, um grimmiger auszusehen.
-Die Gemeindebeamten, der Governador und -die Alcalde"n,
-die allein das Necht haben, lange Sti5cke·zu tragen, machten
-uns ihre Aufwartung. Es waren junge Indianer von acht-
-zehn, zwanzig Jahren darunter; denn ihre Wahl hängt einzig
-vom Gutditnken des Missionärs ab. Wir wanderten uns
-nicht wenig, als uns an diesen mit Quote bemalten Caraiben
+Die Gemeindebeamten, der Governador und die Alcalden,
+die allein das Recht haben, lange Stöcke zu tragen, machten
+uns ihre Aufwartung. Es waren junge Indianer von achtzehn,
+zwanzig Jahren darunter; denn ihre Wahl hängt einzig
+vom Gutdünken des Missionärs ab. Wir wunderten uns
+nicht wenig, als uns an diesen mit Onoto bemalten Caraiben
 das wichtig thuende Wesen, die gemessene Haltung, das kalte,
 herabsehende Benehmen entgegentraten, wie man sie hin und
-wieder bei Beamten in der alten Welt findet. Die caraibi-
-schen Weiber sind nicht so kräftig und häßlicher als die Män-
-ner. Die Last der häuslichen Geschäfte und der Feldarbeit
-liegt fast ganz auf ihnen. Sie baten uns dringend um Steck-
-nadeln, die sie in Ermanglung von Taschen unter die Unter-
-lippe steckten; sie durchstechen damit die Haut so, daß der
+wieder bei Beamten in der alten Welt findet. Die caraibischen
+Weiber sind nicht so kräftig und häßlicher als die Männer.
+Die Last der häuslichen Geschäfte und der Feldarbeit
+liegt fast ganz auf ihnen. Sie baten uns dringend um Stecknadeln,
+die sie in Ermanglung von Taschen unter die Unterlippe
+steckten; sie durchstechen damit die Haut so, daß der
 Kopf der Nadel im Munde bleibt. Diesen Brauch haben sie
-aus ihrem wilden Zustand mit hen'ibergenommen. Die jungen
+aus ihrem wilden Zustand mit herübergenommen. Die jungen
 Mädchen sind roth bemalt und außer dem Guayuco ganz
 nackt. Bei den verschiedenen Völkern beider Welten ist der
 Begriff der Nacktheit nur ein relativer. In einigen Ländern
-Asiens ist es einem Weibe nicht gestattet, auch nur die Finger-
-spitzen sehen zu lassen, während eine Indianerin von carai-
-bischem Stamme sich gar nicht für nackt hält, wenn sie einen
-zwei Zoll breiten Guahuco trägt. Dabei gilt noch diese Leib
-binde für ein weniger wesentliches Kleidungsstück als die
+Asiens ist es einem Weibe nicht gestattet, auch nur die Fingerspitzen
+sehen zu lassen, während eine Indianerin von caraibischem
+Stamme sich gar nicht für nackt hält, wenn sie einen
+zwei Zoll breiten Guahuco trägt. Dabei gilt noch diese Leibbinde
+für ein weniger wesentliches Kleidungsstück als die
 Färbung der Haut. Aus der Hütte zu gehen, ohne mit
-Onoto gefärbt zu seyn, wäre ein Verstoß gegen allen carai-
-bischen Anstand.
-Die .Indianer in den Missionen von Piritu nahmen
-»
+Onoto gefärbt zu seyn, wäre ein Verstoß gegen allen caraibischen
+Anstand.
 
-. ZU
+Die Indianer in den Missionen von Piritu nahmen
 unsere Aufmerksamkeit umso mehr in Anspruch, als sie einem
-Volke angehören, das durch seine Kühnheit, durch seine Kriegs-
-züge und seinen Handelsgeist auf die weite Landstrecke zwischen
-dem Aequator und den Nordk1·isien bedeutenden Einfluß geübt
+Volke angehören, das durch seine Kühnheit, durch seine Kriegszüge
+und seinen Handelsgeist auf die weite Landstrecke zwischen
+dem Aequator und den Nordküsten bedeutenden Einfluß geübt
 hat. Aller Orten am Orinoco hatten wir das Andenken an
-jene feindlichen Einfülle der Caraiben lebendig gefunden; die-
-selben erstreckten sich früher von den O-uellen des Carony und
-des Erevato bis zum Ventuari, Atacavi und Rio Negro.1
+jene feindlichen Einfälle der Caraiben lebendig gefunden; dieselben
+erstreckten sich früher von den Quellen des Carony und
+des Erevato bis zum Ventuari, Atacavi und Rio Negro.^[S. Bd. III. Seite 275, 378.]
 Die caraibische Sprache ist daher auch eine der verbreitetsten
 in diesem Theile der Welt; sie ist sogar (wie im Westen der
 Alleghanis die Sprache der Lenni-Lenepas oder Algonkins und
 die der Natchez oder Muskoghees) auf Völker übergegangen,
 die nicht desselben Stammes sind.
+
 Ueberblickt man den Schwarm von Völkern, die in Süd-
-und Nordamerika ostwärts »von den Cordilleren der Anden
+und Nordamerika ostwärts von den Cordilleren der Anden
 hausen, so verweilt man vorzugsweise bei solchen, die lange
 über ihre Nachbarn geherrscht und auf dem Schauplatz der
-Welt eine wichtigere Rolle gespielt haben. Der Geschicht-
-schreibeV fühlt das Bedürfniß, die Ereignisse zu gruppiren,
-Massen zu sondern, zu den gemeinsamen O-uellen so vieler
-Bewegungen und Wanderungen im Leben der Völker zurück-
-zugeben. Große Neiche, eine förmlich organisirte priesterliche
-Hierarchie und eine Cultur, wie sie auf den ersten Entwick-
-lungsstufen der Gesellschaft durch eine solche Organisation ge-
-fördert wird, fanden sich nur auf den Hochgebirgen im Westen.
+Welt eine wichtigere Rolle gespielt haben. Der Geschichtschreiber
+fühlt das Bedürfniß, die Ereignisse zu gruppiren,
+Massen zu sondern, zu den gemeinsamen Quellen so vieler
+Bewegungen und Wanderungen im Leben der Völker zurückzugehen.
+Große Reiche, eine förmlich organisirte priesterliche
+Hierarchie und eine Cultur, wie sie auf den ersten Entwicklungsstufen
+der Gesellschaft durch eine solche Organisation gefördert
+wird, fanden sich nur auf den Hochgebirgen im Westen.
 In Mexico sehen wir eine große Monarchie, die zerstreute
-kleine Nepubliken einschließt, in Cundinamarca und Peru
+kleine Republiken einschließt, in Cundinamarca und Peru
 wahre Priesterstaaten. Befestigte Städte, Straßen und große
-« S. Bd. I1I. Seite 275. 378.
-os«-ivpm,N«cs-. n-. 2l
-
-?-B
-steinerne Gebäude, ein merkwürdig enttvickeltes Lehen-ssystem,
+steinerne Gebäude, ein merkwürdig enttvickeltes Lehenssystem,
 Sonderung der Kasten, Männer- und Frauenklöster, geistliche
-Brüderschaften mit mehr oder minder. strenger Regel, sehr
-verwickelte Zeiteintheilungen, die mit den Ka«lendern, den
+Brüderschaften mit mehr oder minder strenger Regel, sehr
+verwickelte Zeiteintheilungen, die mit den Kalendern, den
 Thierkreisen und der Astrologie der cultivirten asiatischen
 Völker Verwandtschaft haben, all das gehört in Amerika nur
-einem einzigen Landstrich an, dem langen und schmalen Strei-
-fen Alpenland, der sich vom so. Grad nördlicher bis zum
-25.-s1·idlicher Breite erstreckt. In der alten Welt ging der
+einem einzigen Landstrich an, dem langen und schmalen Streifen
+Alpenland, der sich vom 30.&nbsp; Grad nördlicher bis zum
+25.&nbsp;südlicher Breite erstreckt. In der alten Welt ging der
 Zug der Völker von Ost nach West; nach einander traten
-Basken oder Iberier, Kelten, Germanen und Pela.sger auf.
+Basken oder Iberier, Kelten, Germanen und Pelasger auf.
 In der neuen Welt gingen ähnliche Wanderungen in der
 Richtung von Nord nach Süd. In beiden Halbkugeln richtete
 sich die Bewegung der Völker nach dem Zug der Gebirge;
 aber im heißen Erdstrich wurden die gemäßigten Hochebenen
 der Cordilleren von bedeutenderem Einfluß auf die Geschicke
 des Menschengeschlechts, als die Gebirge in Centralasien und
-Europa. Da nun nur civilisirte Völker eine eigentliche Ge-
-schichte haben, so geht die Geschichte der Amerikaner in der
-Geschichte einiger weniger Gebirg-svölker auf. Tiefes Dunkel
+Europa. Da nun nur civilisirte Völker eine eigentliche Geschichte
+haben, so geht die Geschichte der Amerikaner in der
+Geschichte einiger weniger Gebirgsvölker auf. Tiefes Dunkel
 liegt auf dem unermeßlichen Lande, das sich vom Ostabhang
 der Cordilleren zum atlantischen Ocean erstreckt, und gerade
-deßhalb nimmt Alle-S, was in diesem Lande auf das Ueber-
-geIvicht einer Nation über die andere, auf weite Wanderzüge,
+deßhalb nimmt Alles, was in diesem Lande auf das Uebergewicht
+einer Nation über die andere, auf weite Wanderzüge,
 auf physiognomische, fremde Abstammung verrathende Züge
-deutet, unser Interesse so lebhaft in Anspruch. »
-Mitten auf den Niederungen von Nordamerika hat ein
-mächtiges ausgestorbenes Volk kreisrunde, viereckigte, acht-
-eckigte Festung-Swerke gebaut, Mauern, 6000 Toisen lang,
-Erdhügel von 600—700 Fuß Durchmesser und 140 Fuß
+deutet, unser Interesse so lebhaft in Anspruch.
 
-323
+Mitten auf den Niederungen von Nordamerika hat ein
+mächtiges ausgestorbenes Volk kreisrunde, viereckigte, achteckigte
+Festungswerke gebaut, Mauern, 6000 Toisen lang,
+Erdhügel von 600—700 Fuß Durchmesser und 140 Fuß
 Höhe, die bald rund sind, bald mehrere Stockwerke haben
-und Tausende von Skeletten enthalten. Diese Skelette ge-
-hörten Menschen an, die nicht so hoch gewachsen, untersetzter
+und Tausende von Skeletten enthalten. Diese Skelette gehörten
+Menschen an, die nicht so hoch gewachsen, untersetzter
 waren als die gegenwärtigen Bewohner dieser Länder. Andere
-Gebeine, in Gewebe gehüllt, »die mit denen auf den Sand-
-wich-s- und Fidji-Inseln Aehnlichkeit haben, sindet man in
-natürlichen Höhlen in .Kentucky. Was ist aus jenen Völkern
-in Louisiana geworden, die vor den Lenni-Lenapas, den Sha-
-warmes im Lande saßen, vielleicht sogar vor den Sionx (Na-·
-dowessier, Narcota) am Missouri, die stark ,,mongolisirt« sind
+Gebeine, in Gewebe gehüllt, die mit denen auf den Sandwichs-
+und Fidji-Inseln Aehnlichkeit haben, findet man in
+natürlichen Höhlen in Kentucky. Was ist aus jenen Völkern
+in Louisiana geworden, die vor den Lenni-Lenapas, den Shawanoes
+im Lande saßen, vielleicht sogar vor den Sioux (Nadowessier,
+Narcota) am Missouri, die stark »mongolisirt« sind
 und von denen man, nach ihren eigenen Sagen, annimmt,
 daß sie von den asiatischen Küsten herübergekommen? Auf
-den Niedetungen von Südamerika trifft man, wie oben be-
-merkt, kaum ein paar künstliche Hügel ((:ekkos l1ech0s a
-warm) an, nirgends Befestigungen wie am Ohio. Auf einem
-sehr großen L-andstrich, am untern Orinoco wie am Cassi-
-quiare und zwischen den Quellen des Essequebo und Rio
-Branco, findet man indessen Granitfelsen, die mit symboli-
-schen Bildern bedeckt sind. Diese Bildwerke weisen darauf
-hin, daß die ausgestorbenen Geschlechter andern Völkern an-
-gehörten, als die jetzt diese Länder bewohnen. Im Westen,
-auf dem Rücken der Cordillere der Anden erscheinen die Ge-
-schichte von Mexico und die von Cundinamarca und Peru
+den Niederungen von Südamerika trifft man, wie oben bemerkt,
+kaum ein paar künstliche Hügel (<i>cerros hechos a
+mano</i>) an, nirgends Befestigungen wie am Ohio. Auf einem
+sehr großen Landstrich, am untern Orinoco wie am Cassiquiare
+und zwischen den Quellen des Essequebo und Rio
+Branco, findet man indessen Granitfelsen, die mit symbolischen
+Bildern bedeckt sind. Diese Bildwerke weisen darauf
+hin, daß die ausgestorbenen Geschlechter andern Völkern angehörten,
+als die jetzt diese Länder bewohnen. Im Westen,
+auf dem Rücken der Cordillere der Anden erscheinen die Geschichte
+von Mexico und die von Cundinamarca und Peru
 ganz unabhängig von einander; aber auf den Niederungen
 gegen Osten zeigt eine kriegerische Nation, die lange als die
-herrschende aufgetreten, in den Gesichtszügen und dem Kör-
-perbau Spnren fremder Abstammung. Die Caraiben haben
+herrschende aufgetreten, in den Gesichtszügen und dem Körperbau
+Spuren fremder Abstammung. Die Caraiben haben
 noch Sagen, die auf einen Verkehr zwischen beiden Hälften
-Imerikas in alter Zeit hinzudeuten scheinen. Eine solche Er-
-scheinung verdient ganz besondere Aufmerksamkeit; sie verdient
-
-. . see «
-solche, wie tief auch die Versunkenheit und die Barba-·ei
-seyn mag, in der die Euros)äer am Ende des fünfzehnten
-Jahrhunderts alle Völker des neuen Continents mit Aus-
-nahme der Gebirgsvölker antrafen. Wenn es wahr ist, daß
-die meisten Wilden, wie ihre Sprachen, ihre iosmogonischen
-Mythen und so viele andere Merkmale dar-zuthun scheinen, nur
-ver»-ikdeue Gesch1echtek sind, Trümmer, die einen: große«
+Amerikas in alter Zeit hinzudeuten scheinen. Eine solche Erscheinung
+verdient ganz besondere Aufmerksamkeit; sie verdient
+solche, wie tief auch die Versunkenheit und die Barbarei
+seyn mag, in der die Europäer am Ende des fünfzehnten
+Jahrhunderts alle Völker des neuen Continents mit Ausnahme
+der Gebirgsvölker antrafen. Wenn es wahr ist, daß
+die meisten Wilden, wie ihre Sprachen, ihre kosmogonischen
+Mythen und so viele andere Merkmale darzuthun scheinen, nur
+verwilderte Gesch1echter sind, Trümmer, die einem großen
 gemeinsamen Schiffbruch entgangen, so wird es doppelt von
-Wichtigkeit, zu untersuchen, auf welchen Wegen diese Trüm-
-mer aus einer Halbkugel in die andere geworfen worden sind.
-Das schöne Voll der Caraiben bewohnt heutzutage nur
+Wichtigkeit, zu untersuchen, auf welchen Wegen diese Trümmer
+aus einer Halbkugel in die andere geworfen worden sind.
+
+Das schöne Volk der Caraiben bewohnt heutzutage nur
 einen kleinen Theil der Länder, die es vor der Entdeckung
 von Amerika inne hatte. Durch die Greuel der Europäer ist
 dasselbe auf den Antillen und auf den Küsten von Darien
@@ -10216,317 +10119,284 @@ Caraiben, die in den Llanos von Piritu und am Carony
 und Cuyuni wohnen, auf mehr als 35,000 veranschlagen.
 Rechnete man dazu die unabhängigen Caraiben, die westwärts
 von den Gebirgen von Cayenne und Pacaraimo zwischen den
-Quellen des Essequebo und des Nin Branco hausen, so käme
+Quellen des Essequebo und des Rio Branco hausen, so käme
 vielleicht eine Gesammtzahl von 40,000 Köpfen von einer,
-mit andern eingeborenen Stämmen nicht gemischten Rate
+mit andern eingeborenen Stämmen nicht gemischten Race
 heraus. Ich lege auf diese Angaben um so mehr Gewicht,
 als vor meiner Reise in vielen geographischen Werken von
 den Caraiben nur wie von einem ausgestorbenen Volksstamm
 die Rede war. Da man vom Innern der spanischen Colonien
 auf dem Festland nichts wußte, setzte man voraus, die
-kleinen Inseln Dominica, Guadeloupe und St. Vincent seyen
-
-325 »
-der Hanptwohnsitz dieses Volkes gewesen, und von demselben
-bestehe (ans allen östlichen Antillen) nichts mehr, als verstei-
-nerte oder vielmehr in einem Madreporenkalk eingeschlossene
-Skelette.« Nach dieser Voranssetzung wären die Caraiben in
-Amerika an-sgestorben, wie die Guanchen auf dem Archipel
+kleinen Inseln Dominica, Guadeloupe und St.&nbsp;Vincent seyen
+der Hauptwohnsitz dieses Volkes gewesen, und von demselben
+bestehe (auf allen östlichen Antillen) nichts mehr, als versteinerte
+oder vielmehr in einem Madreporenkalk eingeschlossene
+Skelette.^[Diese Skelette wurden im Jahr 1805 von Cortes gefunden. Sie
+sind in einer Madreporen-Breccie
+eingeschlossen, welche die Neger sehr naiv
+<i>maçonne bon Dieu</i> nennen, und die,
+neuer Formation wie der italienische
+Travertin, Topfscherben und andere
+Produkte der Menschenhand enthält.
+Dauxiou Lavaysse und Dr. König machten
+in Europa zuerst diese Erscheinung
+bekannt, die eine Zeit lang die
+Aufmerksamkeit der Geologen in Anspruch nahm] Nach
+dieser Voraussetzung wären die Caraiben in
+Amerika ausgestorben, wie die Guanchen auf dem Archipel
 der Canarien.
-Stämme, welche, demselben Volke angehörig, sich ge-
-meinsamen Ursprung zuschreiben, werden auch mit denselben
+
+Stämme, welche, demselben Volke angehörig, sich gemeinsamen
+Ursprung zuschreiben, werden auch mit denselben
 Namen bezeichnet. Meist wird der Namen einer einzelnen
 Herde von den benachbarten Völkern allen andern beigelegt;
-zuweilen werden auch Ortsnamen zu Volksnainen, oder letztere
-entspringen aus Spottnamen oder aus der zufälligen Ver-
-drehung eines Wortes in Folge schlechter Aussprache. Das
-Wort ,,Caribes,« das ich znerst in einem Briese des Peter
-Marthe d’Anghiera sinde, kommt von Calina und Caripuna,
-wobei ans l und p r und b wurden. Ja es ist sehr merk-
-würdig, daß dieser Name, den Columbus aus dem Munde
+zuweilen werden auch Ortsnamen zu Volksnamen, oder letztere
+entspringen aus Spottnamen oder aus der zufälligen Verdrehung
+eines Wortes in Folge schlechter Aussprache. Das
+Wort »Caribes«, das ich zuerst in einem Briefe des Peter
+Martyr d’Anghiera finde, kommt von Calina und Caripuna,
+wobei aus l und p r und b wurden. Ja es ist sehr merkwürdig,
+daß dieser Name, den Columbus aus dem Munde
 der haitischen Völker hörte, bei den Caraiben auf den Inseln
-nnd bei denen auf dem Festland zugleich vorkam. Aus Ca-
-rina oder Calina machte man Galibi (Caribi), wie in fran-
-zösisch Gnyana eine Völkerschast heißt, die Von weit kleine-
-rem Wachse ist als die Einwohner am C-ari, aber eine der
+und bei denen auf dem Festland zugleich vorkam. Aus Carina
+oder Calina machte man Galibi (Caribi), wie in französisch
+Guyana eine Völkerschaft heißt, die Von weit kleinerem
+Wuchse ist als die Einwohner am Cari, aber eine der
 zahlreichen Mundarten der caraibischen Sprache spricht. Die
 Bewohner der Inseln nannten sich in der Männersprache
-« Diese Skelette wurden im Jahr 1805 von Eortes gefunden. Sie
-sind in einer Madreporen-Breccie eingeschlossen, welche die Neger sehr naiv
-a-s9oøae bot: Vier: nennen, und die, neuer Formation wie der italienische
-Trave1.-tin, Topsscherben und andere Produkte der Menschenhand enthält.
-Danxiou Lavaysse und Dr. König machten in Europa zuerst diese Erschei-
-nung bekam1t, die eine Zeit lang die Aufmerksamkeit der Geologen in An-
-sptIsch MU-
-
-· see
-(-Ialinago, in der Weibersprache Callip"in·an. Dieser Unterschied
-zwischen beiden Geschlechtern in der Spreehweise ist bei den
-Völkern von caraibischem Stamm ausfallender als bei andern
-amerikanischen Nationen (den Dmaguas, Guaranis und Chi-
-quitos), bei welchen derselbe nur wenige Begriffe betrifft, wie
-z. B. die Worte Mutter und Kind. Es begreift sich, wie
-die Weiber bei ihrer abgeschlossenen Lebensweise sich Redens-
-arten bilden, welche die. Männer nicht annehmen mögen. Schon
-Cicero! bemerkt, daß die alten Sprachformen sich vorzugsweise
-im Munde der Weiber erhalten, weil sie.bei ihrer Stellung
+Calinago, in der Weibersprache Callipinan. Dieser Unterschied
+zwischen beiden Geschlechtern in der Sprechweise ist bei den
+Völkern von caraibischem Stamm auffallender als bei andern
+amerikanischen Nationen (den Omaguas, Guaranis und Chiquitos),
+bei welchen derselbe nur wenige Begriffe betrifft, wie
+z.&nbsp;B. die Worte Mutter und Kind. Es begreift sich, wie
+die Weiber bei ihrer abgeschlossenen Lebensweise sich Redensarten
+bilden, welche die Männer nicht annehmen mögen. Schon
+Cicero^[<i>Cicero de oratore. Lib. III. c. 12.</i> ] bemerkt,
+daß die alten Sprachformen sich vorzugsweise
+im Munde der Weiber erhalten, weil sie bei ihrer Stellung
 in der Gesellschaft nicht so sehr den Lebenswechseln (dem Wechsel
-von Wohnort und Beschäftigung) ansgesetzt sind, wodurch bei
+von Wohnort und Beschäftigung) ausgesetzt sind, wodurch bei
 den Männern die ursprüngliche Reinheit der Sprache leicht
 leidet. Bei den caraibischen Völkern ist aber der Unterschied
 zwischen den Mundarten beider Geschlechter so groß und
-auffalIend, daß man zur befriedigenden Erklärung desselben
+auffallend, daß man zur befriedigenden Erklärung desselben
 sich nach einer andern Quelle umsehen muß. Diese glaubte
-man nun in dem barbarischen Brauche zu sinden, die männ-
-lichen Gefangenen zu tödten und die Weiber der Besiegten
-als Sklaven fortzuschleppen. Als die Caraiben in den Ar-
-chipel der kleinen Antillen einsielen, kamen sie als eine kri-
-gerische Horde, nicht als CoIonisten, die ihre Familien bei
+man nun in dem barbarischen Brauche zu finden, die männlichen
+Gefangenen zu tödten und die Weiber der Besiegten
+als Sklaven fortzuschleppen. Als die Caraiben in den Archipel
+der kleinen Antillen einfielen, kamen sie als eine kriegerische
+Horde, nicht als Colonisten, die ihre Familien bei
 sich hatten. Die Weibersprache bildete sich nun im Maße,
-als die Sieger fich mit fremden Weibern verbanden. Damit
-kamen neue Elemente herein, Worte, wefentlich verschieden
-von den caraibischen Worten,2 die sich im F-rauengemach von
-« Cis-pro de on-tara. Lil). 1ll. c. 12.
-« Ich gebe hier einige Beispiele von diesem Unterschied zwischen der
-Sprache der Männer (li1) und der Weiber(W): Jus ei oubao chl), sc-ers
-(W); Mensch oueke1li (li1), e)-et-i (W); Mais jeher: (b1)., ais(-n (W).
-
-327
-Geschlecht zu Geschlecht fortrflanzten, doch so, daß der Bau,
-die Combinationen und die grammatischen Formen der Männer-
-sprache Einfluß darauf äußerten. So vollzog sich hier in einem
+als die Sieger sich mit fremden Weibern verbanden. Damit
+kamen neue Elemente herein, Worte, wesentlich verschieden
+von den caraibischen Worten,^[Ich gebe hier
+einige Beispiele von diesem Unterschied zwischen der
+Sprache der Männer (M) und der Weiber (W):
+<b>Insel</b> <i>oubao</i> (M), <i>acaera</i>
+(W); <b>Mensch</b> <i>ouekelli</i> (M), <i>eyeri</i> (W);
+<b>Mais</b> <i>ichen</i> (M), <i>atica</i> (W).] die
+sich im Frauengemach von
+Geschlecht zu Geschlecht fortpflanzten, doch so, daß der Bau,
+die Combinationen und die grammatischen Formen der Männersprache
+Einfluß darauf äußerten. So vollzog sich hier in einem
 beschränkten Verein von Individuen, was wir an der ganzen
-Vülkergruppe des neuen Continents beobachten. Völlige Ver-
-schiedenheit hinsichtlich der Worte neben großer Aehnlichkeit
-im Bau, das ist die Eigenthilmlichkeit der amerikanischen
-Sprachen von der Hudsonsbai bis zur Magellanschen Meer-
-enge. Es ist verschiedenes Material in ähnlichen Formen.
+Völkergruppe des neuen Continents beobachten. Völlige Verschiedenheit
+hinsichtlich der Worte neben großer Aehnlichkeit
+im Bau, das ist die Eigenthümlichkeit der amerikanischen
+Sprachen von der Hudsonsbai bis zur Magellanschen Meerenge.
+Es ist verschiedenes Material in ähnlichen Formen.
 Bedenkt man nun, daß die Erscheinung fast von einem Pol
 zum andern über die ganze Hälfte unseres Planeten reicht,
 betrachtet man die Eigenthümlichkeiten in den grammatischen
-Combinationen (die Formen für die Genera bei den drei Per-
-sonen des Zeitworts, die Reduplicationen, die Frequentative,
-die Duale), so kann man sich nicht genug wundern, wie ein-
-förmig bei einem so beträchtlichen Bruchtheil des Menschen-
-geschlechts der Enttvicklungsgang in Geist und Sprache ist.
+Combinationen (die Formen für die Genera bei den drei Personen
+des Zeitworts, die Reduplicationen, die Frequentative,
+die Duale), so kann man sich nicht genug wundern, wie einförmig
+bei einem so beträchtlichen Bruchtheil des Menschengeschlechts
+der Entwicklungsgang in Geist und Sprache ist.
+
 Wir haben gesehen, daß die Mundart der caraibischen
 Weiber auf den Antillen Reste einer ausgestorbenen Sprache
 enthält. Was war dieß für eine Sprache? Wir wissen es
 nicht. Einige Schriftsteller vermuthen, es könnte die Sprache
 der Ygneris oder der Ureinwohner der caraibischen Inseln
-seyn, von denen sich schwache Ueberreste auf Guadeloupe er-
-halten haben; andere fanden darin Aehnlichkeit mit der alten
+seyn, von denen sich schwache Ueberreste auf Guadeloupe erhalten
+haben; andere fanden darin Aehnlichkeit mit der alten
 Sprache von Cuba oder mit den Sprachen der Aruacas und
 Apalachiten in Florida; allein alle diese Annahmen gründen
 sich auf eine höchst mangelhafte Kenntniß der Mundarten,
 die man zu vergleichen unternommen.
-Liest man die spanischen Schriftsteller des sechzehnten
-Jahrhunderts mit Aufmerksamkeit, so sieht man, das; die
 
-sitz«
-caraibischen Völkerschasten damals aus einer Strecke von 18
-bis 19 Breitegraden, von den Jungsraneninseln ostwärts von
-Portorico bis zu den Mündungen des Amazonenstronks aus-
-gebreitet waren.· Daß ihre Wohnsitze auch gegen West, längs
+Liest man die spanischen Schriftsteller des sechzehnten
+Jahrhunderts mit Aufmerksamkeit, so sieht man, daß die
+caraibischen Völkerschaften damals aus einer Strecke von 18
+bis 19&nbsp;Breitegraden, von den Jungfraueninseln ostwärts von
+Portorico bis zu den Mündungen des Amazonenstroms ausgebreitet
+waren. Daß ihre Wohnsitze auch gegen West, längs
 der Küstenkette von Santa Martha und Venezuela sich erstreckt,
-erscheint weniger gewiß. Indessen nennen Lopep de Gomara
-und die ältesten Geschichtschreiber Caribana nicht, wie seit-
-dem geschehen, das Land zwischen den Quellen des Orinoco
-und den Gebirgen von sranzösisch Guyan·a,« sondern die sum-
-psigten Niederungen zwischen den Mündungen des Mo Atrato
-und des Nio Sinn. Ich war, als ich von der Havana nach
+erscheint weniger gewiß. Indessen nennen Lopez de Gomara
+und die ältesten Geschichtschreiber <b>Caribana</b> nicht, wie seitdem
+geschehen, das Land zwischen den Quellen des Orinoco
+und den Gebirgen von französisch Guyana,^[Karte des
+Hondius von 1599, die der lateinischen Ausgabe von
+Raleghs Reisebeschreibung beigegeben ist.
+In der holländischen Ausgabe
+heißen die Llanos von Caracas zwischen
+den Gebirgen von Merida und dem
+Rio Pao »Caribana.« Man sieht hier
+wieder, was so oft in der Geschichte
+der Geographie vorkommt, daß eine
+Benennung allmählig von West nach
+Ost gerückt wurde.] sondern die sumpfigten
+Niederungen zwischen den Mündungen des Rio Atrato
+und des Rio Sinu. Ich war, als ich von der Havana nach
 Portobelo wollte, selbst auf diesen Küsten und hörte dort, das
 Vorgebirge, das den Meerbusen von Darien oder Uraba gegen
 Ost begrenzt, heiße noch jetzt Punta Caribana. Früher war so
 ziemlich die Ansicht herrschend, die Caraiben der antillischen
 Inseln stammen von den kriegerischen Völkern in Darien ab,
-und haben sogar den Namen von ihnen. ,,In(1e Urahns: ab
-0kjenta1i prehen(Iit org, quam appe1lant indigenae Cari-
-bana, unde ca:-ibes insnla1-es 0riginem habe:-e nomenque
-retine1-e di(-us-tu:-.« So drückt sich Anghiera in den Oceanica
-aus. Ein Nefse Amerigos Vespucci hatte ihm gesagt, von dort
-bis zu den Schneegebirgen von Santa Martha seyen alle Ein-
-geboTenen ,,e gener-e ca:-ibium sit-so Canibs«1jum.« Ich
-ziehe nicht in Abrede, daß Lichte Cataiben am Meerbnsen von
+und haben sogar den Namen von ihnen. »<i>Inde Uraban ab
+orienta1i prehendit ora, quam appellant indigenae Caribana,
+unde Caribes insulares originem habere nomenque
+retinere dicuntur.</i>« So drückt sich Anghiera in den Oceanica
+aus. Ein Neffe Amerigos Vespucci hatte ihm gesagt, von dort
+bis zu den Schneegebirgen von Santa Martha seyen alle Eingeborenen
+»<i>e genere Caribium sive Canibalium.</i>« Ich
+ziehe nicht in Abrede, daß ächte Caraiben am Meerbusen von
 Darien gehaust haben können, und daß sie durch die östlichen
-« Karte des .Vondius von 1599, die der lateinischen Ausgabe von
-Raleghs Reisebeschreibung beigegeben ist. Ja der hollündischen Ausgabe
-heißen die Llanos von Earacas zwischen den Gebirgen von Merida und dem
-Rio Pao ,,Earibana.« Man sieht hier wieder, was so oft in der Geschichte
-der Geographie vorkommt, daß eine Benennung allmählig von West nach
-Ost gerückt wurde.
-
-329
 Strömungen dahin getrieben worden seyn mögen; es kann aber
 eben so gut seyn, daß die spanischen Seefahrer, die auf die
 Sprachen wenig achteten, jede Völkerschaft von hohem Wuchs
-und wilder Gemüthsart Caribe und Canibale nannten. Jeden-
-falls erscheint es sehr unwahrscheinlich, daß das caraibische
+und wilder Gemüthsart Caribe und Canibale nannten. Jedenfalls
+erscheint es sehr unwahrscheinlich, daß das caraibische
 Volk auf den Antillen und in der Parime sich selbst nach dem
 Lande, in dem es ursprünglich lebte, genannt haben sollte.
 Ostwärts von den Anden und überall, wohin die Cultur noch
-nicht gedrungen ist, geben vielmehr die Völker den Land-
-strichen, wo sie sich niedergelassen, die Ranken. Wir haben
-schon mehrmals Gelegenheit gehabt— zu bemerken, daß die
-Worte Caribes und Canibales bedeutsam zu seyn scheinen,
-das; es wohl Beinamen sind, die auf Muth und Kraft, selbst
-auf Geiftesüberlegenheit anspielen! Es ist sehr bemerkens-
-werth, daß die Brasilianer, als die Portugiesen ins Land
-kamen, ihre Zauberer gleichfalls Caraib es nannten. Wir
+nicht gedrungen ist, geben vielmehr die Völker den Landstrichen,
+wo sie sich niedergelassen, die Namen. Wir haben
+schon mehrmals Gelegenheit gehabt zu bemerken, daß die
+Worte <b>Caribes</b> und <b>Canibales</b> bedeutsam zu seyn scheinen,
+daß es wohl Beinamen sind, die auf Muth und Kraft, selbst
+auf Geistesüberlegenheit anspielen^[Vespucci sagt:
+<i>Se eorum lingua Charaibi, hoc est magnae
+sapientiae viros vocantes.</i>] Es ist sehr bemerkenswerth,
+daß die Brasilianer, als die Portugiesen ins Land
+kamen, ihre Zauberer gleichfalls <b>Caraibes</b> nannten. Wir
 wissen, daß die Caraiben in der Parime das wanderlustigste
 Volk in Amerika waren; vielleicht spielten schlaue Köpfe in
-diesem umherziehenden Volk dieselbe Rolle wie die Chaldäer
-in der alten Welt. Völkernamen hängen sich leicht an ge
-wisse Gewerbe, und als unter den Cäsaren so viele Formen
+diesem umherziehenden Volk dieselbe Rolle wie die <b>Chaldäer</b>
+in der alten Welt. Völkernamen hängen sich leicht an gewisse
+Gewerbe, und als unter den Cäsaren so viele Formen
 des Aberglaubens aus dem Orient in Italien eindrangen,
 kamen die Chaldaer so wenig von den Ufern des Euphrat,
-als die Menschen, die man in Frankreich I«Jgyptieus und
-Bol16mie11s nennt Cdie einen indischen Dialekt reden, Zigeuner),
+als die Menschen, die man in Frankreich <i>Egyptiens</i> und
+<i>Bohémiens</i> nennt (die einen indischen Dialekt reden, Zigeuner),
 vom Nil und von der Elbe.
+
 Wenn eine und dieselbe Nation auf dem Festland und auf
 benachbarten Inseln lebt, so hat man die Wahl zwischen zwei
-« Bespuoci sagt: se eokam längst- 0hst·ajhi, hoc- est maximo
-upient.ice viros soc-wes.
-
-330
 Annahmen: sie sind entweder von den Inseln auf den Continent,
-oder vom Continent auf die Inseln gewandert. Diese Streit-
-frage erhebt sich auch bei den Jberiern (Ba-3ken), die sowohl
-in Spanien als auf den Inseln im Mittelnieer ihre WohnsiCe
-hatten;-! ebenso bei den Malayen, die auf der Halbinsel Ma-
-laca und im Diftrikt Menangkabao auf der Insel Sumatra
-Autochthonen zu seyn scheinen. V Der Archipel der großen und
-der kleinen Antillen hat die Gestalt einer schmalen, zerrissenen
-Landzunge, die der Landenge von P-anama parallel läuft und
-nach der Annahuie mancher Geographen einst Florida mit dem
-nordöstlichen Ende von Südamerika verband. Es ist gleichsam
-das östliche Ufer eines Binnenmeeres, das man ein Becken mit
-mehreren Ansgängen nennen kann. Diese sonderbare Bildung
-des Landes hat den verschiedenen Wandersystemen, nach denen
-man die Niederlassung der caraibischen Völker auf den Inseln
-nnd ans dem benachbarten Festland zu erklären suchte, zur Stütze
-gedient. Die Caraiben des Festlandes behaupten, die kleinen
-Antillen sen(-n vor Zeiten von den Aruacas bewohnt gewesen,
-einer l’riegeriscben Nation, deren Hauptmasse noch jetzt an den
-ungesnnden Ufern des Surinam und des Verbinde lebt. Diese
-Brunetto sollen, mit 9lnsnabIne der
-die von den Mfindnnncn des Orinoeo
-lieb answer-ottet worden seyn, und
-heüung dieser Sage auf die
-der S1rnaeaS und der
-mnß aber bedenken, das
-« B. n
-Wegs
-S-·-the
-andern
-· Wnlselnr de
-Ren
-der
-
-3Z0
-Annahmen: sie sind entweder von den Inseln aus den Eontinent,
-oder vom Continent auf die Inseln gewandert. Diese Streit-
-frage erhebt sich auch bei den Jberiern (Basken), die sowohl
+oder vom Continent auf die Inseln gewandert. Diese Streitfrage
+erhebt sich auch bei den Iberiern (Basken), die sowohl
 in Spanien als auf den Inseln im Mittelmeer ihre Wohnsitze
-hatten ;-! ebenso bei »den Malaven, die aus der Halbinsel Ma-
-laea und im Distrikt Menangkabao aus der Insel Sumatra
-Autochthonen zu seyn scheinen. « Der Archipel der. großen und
-der kleinen Antillen hat die Gestalt einer schmalen ; zerrissenen
+hatten;^[Wilhelm von Humboldt: »Urbewohner Hispaniens«, Seite 167.]
+ebenso bei den Malayen, die auf der Halbinsel Malaca
+und im Distrikt Menangkabao auf der Insel Sumatra
+Autochthonen zu seyn scheinen.^[Wenn ich
+das Wort Autochthone brauche, so will ich damit keineswegs
+aussprechen, daß die Völker hier
+<b>geschaffen</b> worden, was gar nicht
+Sache der Geschichte ist, sondern nur
+so viel sagen, daß wir von keinem
+andern Volke wissen, das älter wäre als das autochthone.] Der
+Archipel der großen und
+der kleinen Antillen hat die Gestalt einer schmalen, zerrissenen
 Landzunge, die der Landenge von Panama parallel läuft und
 nach der Annahme mancher Geographen einst Florida mit dem
 nordöstlichen Ende von Südamerika verband. Es ist gleichsam
 das östliche Ufer eines Binnenmeeres, das man ein Becken mit
 mehreren Ausgängen nennen kann. Diese sonderbare Bildung
 des Landes hat den verschiedenen Wandersystemen, nach denen
-man die Niederlassung der caraibischen Völker aus den Inseln
+man die Niederlassung der caraibischen Völker auf den Inseln
 und auf dem benachbarten Festland zu erklären suchte, zur Stütze
 gedient. Die Caraiben des Festlandes behaupten, die kleinen
 Antillen seyen vor Zeiten von den Aruacas bewohnt gewesen,
 einer kriegerischen Nation, deren Hauptmasse noch jetzt an den
 ungesunden Ufern des Surinam und des Berbice lebt. Diese
-Aruacas s ollen, mit Ausnahme der Weiber, von den Caraiben,
-die von den Mündungen des Orinoco hinübergekommen, sämmt-
-lich ausgerottet worden seyn, und sie berufen sich zu Bewahr-
-heitung dieser Sage aus die Aehnlichkeit zwischen der Sprache
+Aruacas sollen, mit Ausnahme der Weiber, von den Caraiben,
+die von den Mündungen des Orinoco hinübergekommen, sämmtlich
+ausgerottet worden seyn, und sie berufen sich zu Bewahrheitung
+dieser Sage auf die Aehnlichkeit zwischen der Sprache
 der Aruacas und der Weibersprache bei den Caraiben. Man
 muß aber bedenken, daß die Aruacas, wenn sie gleich Feinde
-« Wilhelm von Humboldt: »Urbewohner Hispaniens««, Seite 167.
-« Wenn ich das Wort Autochthone brauche, so lvill ich damit keines-
-wegs aussprechen, daß die Völker hier geschaffen worden, was gar nicht
-Sache der Geschichte ist, sondern nur so viel sagen, daß wir von keinem
-andcrn Volke wissen, das älter wäre als das autochthone.
-
-331
-der Caraiben sind, doch mit" ihnen zur selben Völkerfamilie
+der Caraiben sind, doch mit ihnen zur selben Völkerfamilie
 gehören, und daß das Aruakische und das Caraibische einander
-so nahe stehen wie Griechisch und Persisch, Deutsch und Sans-
-krit. Nach einer andern Sage sind die Caraiben auf den
+so nahe stehen wie Griechisch und Persisch, Deutsch und Sanskrit.
+Nach einer andern Sage sind die Caraiben auf den
 Inseln von Süden hergekommen, nicht als Eroberer, sondern
 aus Guyana von den Aruacas vertrieben, die ursprünglich
-über alle benachbarten Völker das Uebergen)icht hatten. End-
-lich eine dritte, weit verbreiteter·e und auch wahrscheinlichere
+über alle benachbarten Völker das Uebergewicht hatten. Endlich
+eine dritte, weit verbreitetere und auch wahrscheinlichere
 Sage läßt die Caraiben aus Nordamerika, namentlich aus
-Florida kommen. Ein Reisender, der sich rühmt, Alles zu-
-sammengebracht zu haben, was ans diese Wanderungen von
+Florida kommen. Ein Reisender, der sich rühmt, Alles zusammengebracht
+zu haben, was auf diese Wanderungen von
 Nord nach Süd Bezug hat, Bristok, behauptet, ein Stamm
 der Confachiqui habe lange mit den Apalachiten im Kriege
-gelegen;» diese haben jenem Stamm den fruchtbaren Distrikt
+gelegen; diese haben jenem Stamm den fruchtbaren Distrikt
 Amana abgetteten und sofort ihre neuen Bundesgenossen
-Caribes (d. h. tapfere Fremdlinge) genannt; aber in
-Folge eines Ztvistes über den Gotte-sdienst seyen die Confa-
-chiqui-Caribes aus Florida vertrieben worden. Sie gingen
+Caribes (d.&nbsp;h. <b>tapfere Fremdlinge</b>) genannt; aber in
+Folge eines Zwistes über den Gottesdienst seyen die Confachiqui-Caribes
+aus Florida vertrieben worden. Sie gingen
 zuerst in ihren kleinen Canoes auf die Yucayas oder die
-lucayisshen Inseln (auf Cigateo und die zunächst liegenden
+lucayischen Inseln (auf Cigateo und die zunächst liegenden
 Inseln), von da nach Ayay (Hayhay, heutzutage Santa Cruz)
-und auf die kleinen Antillen, endlich auf.das Festland von
+und auf die kleinen Antillen, endlich auf das Festland von
 Südamerika. Dieß, glaubt man, sey gegen das Jahr 1100
-unserer Zeitrechnung geschehen; allein bei dieser Schätzun"g
-nimmt man an (wie bei manchen orientalischen Mythen), ,,bei
-der Mlißigkeit und Sitteneinfalt der Wilden« könne die mittlere
-Dauer einer Generation I80 bis 200 Jahre betragen haben,
+unserer Zeitrechnung geschehen; allein bei dieser Schätzung
+nimmt man an (wie bei manchen orientalischen Mythen), »bei
+der Mäßigkeit und Sitteneinfalt der Wilden« könne die mittlere
+Dauer einer Generation 180 bis 200 Jahre betragen haben,
 wodurch dann eine bestimmte Zeitangabe als völlig aus der
-Lust gegriffen erscheint. Auf dieser ganzen langen Wanderung
+Luft gegriffen erscheint. Auf dieser ganzen langen Wanderung
 hatten die Caraiben die großen Antillen nicht berührt, wo
-
-332 -
-indessen die Eingeborenen gleichsalls aus Florida zu stammen
-glaubten. Die Infulaner aus Cuba, Haiti und Borriken
+indessen die Eingeborenen gleichfalls aus Florida zu stammen
+glaubten. Die Insulaner aus Cuba, Haiti und Borriken
 (Portorico) waren nach der einstimmigen Aussage der ersten
-Conquistadoren von den Caraiben völlig versthieden;'ja bei der
+Conquistadoren von den Caraiben völlig verschieden; ja bei der
 Entdeckung von Amerika waren diese bereits von der Gruppe
 der kleinen lucayischen Inseln abgezogen, auf denen, wie in
-allen von Schiffbrüchigen und Flüchtlinge! bewohnten Ländern,
+allen von Schiffbrüchigen und Flüchtlingen bewohnten Ländern,
 eine erstaunliche Mannigfaltigkeit von Sprachen herrschte.
+
 Die Herrschaft, welche die Caraiben so lange über einen
 großen Theil des Festlandes ausgeübt, und das Andenken an
-ihre alte Größe gaben ihnen ein Gefühl von Würde und na-
-tionaler Ueberlegenheit, das in ihrem Benehmen und ihren
-Aeußerungen zu Tage kommt. ,,Nur wir sind ein Volk,«
-sagen sie sprüchwörtlich, »die andern Menschen (oqui1i) sind
-dazu da, uns zu dienen. « Die Caraiben sehen auf ihre alten
+ihre alte Größe gaben ihnen ein Gefühl von Würde und nationaler
+Ueberlegenheit, das in ihrem Benehmen und ihren
+Aeußerungen zu Tage kommt. »Nur wir sind ein Volk,«
+sagen sie sprüchwörtlich, »die andern Menschen (<i>oquili</i>) sind
+dazu da, uns zu dienen.« Die Caraiben sehen auf ihre alten
 Feinde so hoch herab, daß ich ein zehnjähriges Kind vor Wuth
-schäumen sah, weil man es einen Cabre oder Cavere nannte.
+schäumen sah, weil man es einen <b>Cabre</b> oder <b>Cavere</b> nannte.
 Und doch hatte es in seinem Leben keinen Menschen dieses
-unglücklichen Volkes! gesehen, von dem die Stadt Cabruta
+unglücklichen Volkes^[S.Bd. III. Seite 261. 275. 278. IV. 218.]
+gesehen, von dem die Stadt Cabruta
 (Cabritu) ihren Namen hat und das von den Caraiben fast
 völlig ausgerottet wurde. Ueberall, bei halb barbarischen
-Horden, wie bei den civilisirteften Völkern in Europa, finden
-wir diesen eingewurzelten Haß und die Namen feindlüher
+Horden, wie bei den civilisirtesten Völkern in Europa, finden
+wir diesen eingewurzelten Haß und die Namen feindlicher
 Völker als die gröbsten Schimpfworte gebraucht.
-Der Missionär führte uns in mehrere indianische Hütten,
-wo Ordnung und die größte Neinlichkeit herrschten. Mit Ver-
-druß sahen wir hier, wie die caraibischen Mütter schon die
-kleinsten Kinder quälen, um ihnen nicht nur die Waden größer
-« S. Bd. I11. Seite 261. 275. 278. IV. 18.
 
-333
+Der Missionär führte uns in mehrere indianische Hütten,
+wo Ordnung und die größte Reinlichkeit herrschten. Mit Verdruß
+sahen wir hier, wie die caraibischen Mütter schon die
+kleinsten Kinder quälen, um ihnen nicht nur die Waden größer
 zu machen, sondern am ganzen Bein vom Knöchel bis oben
-am Schenkel das Fleisch stellenweise he-rvorzutreiben. Bänder
-von Leder oder- BaumwolIenzeug werden 2 bis Z ·8oll von
-einander fest umgelegt und immer stärker angezogen, so das;
+am Schenkel das Fleisch stellenweise hervorzutreiben. Bänder
+von Leder oder Baumwollenzeug werden 2 bis 3&nbsp;Zoll von
+einander fest umgelegt und immer stärker angezogen, so daß
 die Muskeln zwischen zwei Bandstreifen überquellen. Unsere
 Kinder im Wickelzeug haben lange nicht so viel zu leiden als
-die Kinder bei den caraibischen Völkern, bei einer Nation·,
+die Kinder bei den caraibischen Völkern, bei einer Nation,
 die dem Naturzustand noch so viel näher seyn soll. Umsonst
 arbeiten die Mönche in den Missionen, ohne Rousseaus Werke
 oder auch nur den Namen des Mannes zu kennen, diesem
@@ -10534,605 +10404,605 @@ alten System des Kinderaufziehens entgegen; der Mensch, der
 eben aus den Wäldern kommt, an dessen Sitteneinfalt wir
 glauben, ist keineswegs gelehrig, wenn es sich von seinem
 Putz und von seinen Vorstellungen von Schönheit und Anstand
-handelt. Ich"" wunderte mich übrigens, daß der Zwang, dem
+handelt. Ich wunderte mich übrigens, daß der Zwang, dem
 man die armen Kinder unterwirft, und der den Blutumlauf
 hemmen sollte, der Muskelbewegung keinen Eintrag thut. Es
 gibt auf der Welt kein kräftigeres und schnellfüßigeres Volk
 als die Caraiben.
+
 Wenn die Weiber ihren Kindern Beine und Schenkel
 modeln, um Wellenlinien hervorzubringen, wie die Maler es
 nennen, so unterlassen sie es in den Llanos wenigstens ihnen
 von der Geburt an den Kopf zwischen Kissen und Brettern
 platt zu drücken. Dieser Brauch, der früher auf den Inseln
 und bei manchen caraibischen Stämmen in der Parime und
-in sranzösisch Guyana so verbreitet war, kommt in den Mis-
-»stonen., die wir besucht haben, nicht vor. Die Leute haben
-dort gewölbtere Stirnen als die Chaymas, Ototnacos, Macos,
+in französisch Guyana so verbreitet war, kommt in den Missionen,
+die wir besucht haben, nicht vor. Die Leute haben
+dort gewölbtere Stirnen als die Chaymas, Otomacos, Macos,
 Maravitanos und die meisten Eingeborenen am Orinoco. Nach
-svstematischem Begriffe sind ihre Stirnen, wie sie ihren geistigen
-
-ZU
-Fähigkeiten entsprechen. Diese. Beobachtung überraschte uns
-um so mehr, da die in manchen anatomischen Werken abg-
-bildeten Caraibetischädels sich von allen Menschenschädeln durch
-die· niedrigste Stirne und den kleinsten Gesichtswinkel unter-
-scheiden. Man hat aber in unsern osteologisthen Sammlungen
-Kunstprodukte mit Naturbildungen vertvechselt. Die ,,fast
-stirnlosen« sogenannten Caraibenschädel von der Insel Samt
-Vincent sind zwischen Brettern gemodelte Köpfe von Zambo-S
-(schwarzen Caraiben), Abkömmlingen von Negern und wirk-
-lichen Caraiben. Der barbarische Brauch, die Stirne platt
+systematischem Begriffe sind ihre Stirnen, wie sie ihren geistigen
+Fähigkeiten entsprechen. Diese Beobachtung überraschte uns
+um so mehr, da die in manchen anatomischen Werken abgebildeten
+Caraibenschädel sich von allen Menschenschädeln durch
+die niedrigste Stirne und den kleinsten Gesichtswinkel unterscheiden.
+Man hat aber in unsern osteologischen Sammlungen
+Kunstprodukte mit Naturbildungen verwechselt. Die »fast
+stirnlosen« sogenannten Caraibenschädel^[Ich führe
+als Beispiel nur eine vom berühmten Pater Camper gezeichnete
+Tafel an: <i>Viri adulti cranium ex Caraibensium insula Sancti
+Vicenti in Museo Clinii asservatum, 1785.</i>] von der Insel Sanct
+Vincent sind zwischen Brettern gemodelte Köpfe von Zambos
+(schwarzen Caraiben), Abkömmlingen von Negern und wirklichen
+Caraiben. Der barbarische Brauch, die Stirne platt
 zu drücken, kommt übrigens bei mehreren Völkern vor, die
-nicht desselben Stammes sind; man hat denselben in nenester
+nicht desselben Stammes sind; man hat denselben in neuester
 Zeit auch in Nordamerika angetroffen; aber der Schluß von
-einer gewissen Uebereinstimmung in Sitten und Gebrauchen
+einer gewissen Uebereinstimmung in Sitten und Gebräuchen
 auf gleiche Abstammung ist sehr gewagt.
+
 Reist man in den caraibischen Missionen, so sollte man
 bei dem daselbst herrschenden Geiste der Ordnung und des
-Gehorsam-S gar nicht glauben, daß man sich unter C-anibalen
+Gehorsams gar nicht glauben, daß man sich unter Canibalen
 befindet. Dieses amerikanische Wort von nicht ganz sicherer
 Bedeutung stammt wahrscheinlich aus der Sprache von Hain
-oder Portorico. Es ist schon zu Ende des fünfzehnten Jahr-
-hunderts, als gleichbedentend mit Menschensresser, in die
-europäischen Sprachen übergegangen. ,,Bda(-es hum-.narum
-(-s.k11ium novi antl11«0p0pl1agi, qu0s diximus cui-ibes,
-alias 0auiba1es appel1a1-j,·« sagt Anghiera in der dritten
-Decade seiner Papst Leo X. gewidmeten Qceanica. .Ich be-
-zweifle keineswegs, daß die Inselcaraiben als eroberndes Volk
-« Ich sühre als Beispiel nur eine vom berühmten Pater Carus,-er ge-
-zeichnete Tafel an: Vü-i adulti er-miam ex ca1·oibeusiam iasuln s-ncü
-Vioentü in L1useo C1ic1ji ssservotnm, :1785.
-
-· 335
+oder Portorico. Es ist schon zu Ende des fünfzehnten Jahrhunderts,
+als gleichbedentend mit Menschenfresser, in die
+europäischen Sprachen übergegangen. »<i>Edaces humanarum
+carnium novi anthropophagi, quos diximus Caribes,
+alias Canibales appellari</i>«, sagt Anghiera in der dritten
+Decade seiner Papst Leo X. gewidmeten Oceanica. Ich bezweifle
+keineswegs, daß die Inselcaraiben als eroberndes Volk
 die Ygneris oder alten Bewohner der Antillen, die schwach
 und unkriegerisch waren, grausam behandelt haben; dennoch
-ist, anzunehmen, daß diese Grausamkeiten von den ersten Rei-
-senden, welche nur Völker hörten, die von jeher Feinde der
+ist anzunehmen, daß diese Grausamkeiten von den ersten Reisenden,
+welche nur Völker hörten, die von jeher Feinde der
 Caraiben gewesen, übertrieben wurden. Nicht immer werden
-nur die· Besiegten von den Zeitgenossen verläurndet; auch am
-Uebermuth des Siegers rächt man sich, indem man das Re-
-gister seiner Gräuel vergrößert.
+nur die Besiegten von den Zeitgenossen verläumdet; auch am
+Uebermuth des Siegers rächt man sich, indem man das Register
+seiner Gräuel vergrößert.
+
 Alle Missionäre am Carony, am untern Orinoco und
-in den l-Ianos del ca:-i, die wir zu befragen Gelegenheit
+in den <i>Llanos del Cari</i>, die wir zu befragen Gelegenheit
 gehabt, versichern, unter allen Völkern des neuen Continents
-seyen die Caraiben vielleicht am wenigsten Menschensresser;
-nnd solches behaupten sie sogar von den unabhängigen «Hor-
-den, die ostwärts von Esmeralda zwischen den Quelle»n des
-Rio Branco und des Essequebo umherziehen. Es begreift sieh,
+seyen die Caraiben vielleicht am wenigsten Menschenfresser;
+und solches behaupten sie sogar von den unabhängigen Horden,
+die ostwärts von Esmeralda zwischen den Quellen des
+Rio Branco und des Essequebo umherziehen. Es begreift sich,
 daß die verzweifelte Erbitterung, mit der sich die unglücklichen
 Caraiben gegen die Spanier wehrten, nachdem im Jahr 1504
 ein königliches Ausschreiben sie für Sklaven erklärt hatte, sie
-vollends in den Ruf der Wildheit brachte, in dem sie stehen.«
+vollends in den Ruf der Wildheit brachte, in dem sie stehen.^[<i>Dati
+erant in preaedam Caribes
+ex diplomate regio. Missus
+est Johannes Poncius, qui Caribum
+terras depopuletur et in servitutem
+obscoenos hominum voratores
+redigat.</i> Anghiera, Decas. I. Lib. 1. Dec. III. Lib. 6.]
 Der erste Gedanke, diesem Volke zu Leibe zu gehen und es
 seiner Freiheit und seiner natürlichen Rechte zu berauben,
 rührt von Christoph Columbus her, der die Ansichten des
 fünfzehnten Jahrhunderts theilte und durchaus nicht immer
 so menschlich war, als man im achtzehnten aus Haß gegen
-seine Zzerkleinerer behauptete. Später wurde der Licenciat Ro-
-drigo de Figueroa vom Hofe beauftragt (1520), auszumachen,
-· ·Dsti erkor in p1-aedcm cakibeS ex (1iplo-ists t-egio. Mosis«
-est Johannes P0ncias, qui ca:-ibiua terms r1epopuletur et. in Servi-
-tatem obs(-or-no- bomim1m vor-tot-es 1-e(ligct.. Anghics-a, Deo-s. I.
-l«ib. 1. Deo. III. l-ih. C.
-
-- Z.-c
--1-T?
--
-w«-Iche Vi-1kekschaften in S-as«-mit« fix: «-aibüch-« «-de:
-canibalischen Stammes gelten könnten, und welche Gua-
-tiaos wären, das heißt ftiedliche, von lange her mit den
-Castilianern befreundete« Indianer. Dieses ethnographische
-Actenstück, ,,el auto de Pigu81·on« ge1mtmt, ist eine der
-merkwürdigsten Urkunden sitt die Barbarei der ersten Con-
-quistadoren. Rio hatte Systemsucht so trefflich- dazu gedient,
+seine Verkleinerer behauptete. Später wurde der Licenciat Rodrigo
+de Figueroa vom Hofe beauftragt (1520), auszumachen,
+welche Völkerschaften in Südamerika für caraibischen oder
+<b>canibalischen</b> Stammes gelten könnten, und welche <b>Guatiaos</b>
+wären, das heißt friedliche, von lange her mit den
+Castilianern befreundete Indianer. Dieses ethnographische
+Actenstück, »el auto de Figueroa« genannt, ist eine der
+merkwürdigsten Urkunden für die Barbarei der ersten Conquistadoren.
+Nie hatte Systemsucht so trefflich dazu gedient,
 die Leidenschaften zu beschönigen. Unsere Geographen gehen
-nicht willkürlicher zu Werke, wenn sie in Eentralasien mon-
-golische und tartarische Völker unterscheiden, als Figueroa,
+nicht willkürlicher zu Werke, wenn sie in Centralasien mongolische
+und tartarische Völker unterscheiden, als Figueroa,
 wenn er zwischen Canibalen und Guatiaos die Grenze zog.
-Ohne auf die Sprachverwandtschast zu achten, erklärte man
-willki·irlich alle Horden, denen man Schuld geben konnte,
+Ohne auf die Sprachverwandtschaft zu achten, erklärte man
+willkürlich alle Horden, denen man Schuld geben konnte,
 daß sie nach dem Gefechte einen Gefangenen verzehrt, für
-caraibisch. Die Einwohner von Uriapari (der Halbinsel Pa-
-ria) wurden Caraiben, die Urinacos (die Uferbeivohner am
-untern Orinoco oder Urinucu) Guatiao-s genannt. Alle
+caraibisch. Die Einwohner von Uriapari (der Halbinsel Paria)
+wurden Caraiben, die Urinacos (die Uferbewohner am
+untern Orinoco oder Urinucu) Guatiaos genannt. Alle
 Stämme, die Figueroa als Caraiben bezeichnete, waren der
 Sklaverei verfallen; man konnte sie nach Belieben verkaufen
-oder niedermachen» In diesen blutigen Kämpfen wehrten sich
+oder niedermachen. In diesen blutigen Kämpfen wehrten sich
 die caraibischen Weiber nach dem Tode ihrer Männer mit so
 verzweifeltem Muthe, daß man sie, wie Anghiera sagt, für
-Amazonenvölker hielt. Die gehäsfigen Declamationen eines
+Amazonenvölker hielt. Die gehässigen Declamationen eines
 Dominicanermönchs (Thomas Hortiz) trugen dazu bei, den
-Jammer zu verlängern, der auf ganzen Völkern lastete. In-
-dessen, und man spricht es mit Vergnügen aus, gab es auch
-beherzte Männer, die mitten in den an den Caraiben ver-
-übten Greueln die Stimme der Menschlichkeit und Gerechtig-
-keit hören ließen. Manche Geistliche sprachen sich in ent-
-gegengesetztem Sinne aus, als sie Anfangs gethan. In einem
-
-337
+Jammer zu verlängern, der auf ganzen Völkern lastete. Indessen,
+und man spricht es mit Vergnügen aus, gab es auch
+beherzte Männer, die mitten in den an den Caraiben verübten
+Greueln die Stimme der Menschlichkeit und Gerechtigkeit
+hören ließen. Manche Geistliche sprachen sich in entgegengesetztem
+Sinne aus, als sie Anfangs gethan. In einem
 Jahrhundert, in dem man nicht hoffen durfte, die öffentliche
 Freiheit auf bürgerliche Einrichtungen zu gründen, suchte man
-wenigstens die persönliche Freiheit zu vertheidigen. »Es ists«
-sagt Gomara im Jahr 1551, ,,ein heiliges Gesetz (lex saue-
-tissima.), durch das unser Kaiser verboten hat, die Indianer
-zu Sklaven zu machen. Es ist gerecht, das; die Menschen,
-die alle frei zur Welt kommen, nicht einer des andern Skla-
-ven werden« .
+wenigstens die persönliche Freiheit zu vertheidigen. »Es ist,«
+sagt Gomara im Jahr 1551, »ein heiliges Gesetz (<i>lex
+sanctissima</i>), durch das unser Kaiser verboten hat, die Indianer
+zu Sklaven zu machen. Es ist gerecht, daß die Menschen,
+die alle frei zur Welt kommen, nicht einer des andern Sklaven
+werden.«
+
 Bei unserem Aufenthalt in den caraibischen Missionen
-überkt.Ischte es uns, mit welcher Gewandtheit junge, achtzehn-,
-zwanzigjührige Indianer, wenn sie zum Amte eines Algua-
-til oder Fiscal herangebildet sind, stundenlange Anreden
-an die Gemeinde -halten. Die Betonung, die ernste Haltung,
+überraschte es uns, mit welcher Gewandtheit junge, achtzehn-,
+zwanzigjährige Indianer, wenn sie zum Amte eines <b>Alguatil</b>
+oder <b>Fiscal</b> herangebildet sind, stundenlange Anreden
+an die Gemeinde halten. Die Betonung, die ernste Haltung,
 die Geberden, mit denen der Vortrag begleitet wird, Alles
-verrc·ith ein begabtes, einer hohen Culturentwicklung fähiges
+verräth ein begabtes, einer hohen Culturentwicklung fähiges
 Volk. Ein Franciskaner, der so viel caraibisch verstand, daß
 er zuweilen in dieser Sprache predigen konnte, machte uns
-daraus aufmerksam, wie lang und gehäuft die S-ätze in den
-Reden der Indianer sind, und doch nie verworren und un-
-klar werden. Eigenthümliche Flexionen des Verbums bezeich-
-nen zum voraus die Beschassenheit des regierten Worts, je
+darauf aufmerksam, wie lang und gehäuft die Sätze in den
+Reden der Indianer sind, und doch nie verworren und unklar
+werden. Eigenthümliche Flexionen des Verbums bezeichnen
+zum voraus die Beschaffenheit des regierten Worts, je
 nachdem es belebt ist oder unbelebt, in der Einzahl oder in
-der Mehrzahl. Durch kleine angehängte- Formen (Suffixe)
+der Mehrzahl. Durch kleine angehängte Formen (Suffixe)
 wird der Empfindung ein eigener Ausdruck gegeben, und
 hier, wie in allen auf dem Wege ungehemmter Entwicklung
 entstandenen Sprachen, entspringt die Klarheit aus dem
-ordnenden Instinct,! der auf den verschiedensten Stufen der
-· Wilhelm von Humboldt, ,,über das ver-gleichende Sprachstadium in
-Beziehung auf die verfchiedenen Truhen der-Sprachentwicklung.« (S. 13).
-S. auch Bd. 11. Seite 28—47.
-«(---is·-tu, wie. n-. 2:2
-
-.33"8.
--
-Varbarei und der Eultur als das eigentliche Wesen der
+ordnenden Instinct,^[Wilhelm von Humboldt, »über das
+vergleichende Sprachstadium in
+Beziehung auf die verschiedenen Epochen
+der Sprachentwicklung.« (S. 13).
+S. auch Bd. II. Seite 28—47.] der auf den verschiedensten Stufen der
+Barbarei und der Cultur als das eigentliche Wesen der
 menschlichen Geiste-skraft erscheint. An Festtagen versammelt
 sich nach der Messe die ganze Gemeinde vor der Kirche. Die
-jungen Mädchen legen zu den Füßen des Missionärs Holz-
-bündel, Mais, Bananenbtischel und andere Lebensmittel nie-
-der, deren er in seinem Haushalt bedarf. Zugleich treten der
-Governador, der Fiscal und die GeIneindebeamten, lau-
-ter Indianer, aus, ermahnen die Eingeborenen zum Fleiß,
+jungen Mädchen legen zu den Füßen des Missionärs Holzbündel,
+Mais, Bananenbüschel und andere Lebensmittel nieder,
+deren er in seinem Haushalt bedarf. Zugleich treten der
+<b>Governador</b>, der <b>Fiscal</b> und die Gemeindebeamten, lauter
+Indianer, auf, ermahnen die Eingeborenen zum Fleiß,
 theilen die Arbeiten, welche die Woche über vorzunehmen sind,
-aus, geben den Trägen Beweise, und — es soll nicht
-verschwiegen werden — prügeln die Unbotmäßigen unbarm-
-herzig durch. Die Stockstreiche werden so kaltbliltig hinge-
-nommen als ausgetheilt. Diese Arie der vollziehenden Justiz
+aus, geben den Trägen Verweise, und — es soll nicht
+verschwiegen werden — prügeln die Unbotmäßigen unbarmherzig
+durch. Die Stockstreiche werden so kaltblütig hingenommen
+als ausgetheilt. Diese Acte der vollziehenden Justiz
 kommen dem Reisenden, der von Angostura an die Küste über
 die Llanos geht, sehr gedehnt vor und allzu sehr gehäuft.
 Man sähe es lieber, wenn der Priester nicht vom Altar weg
 körperliche Züchtigungen verhängte, man wünschte, er möchte
 es nicht im priesterlichen Gewande mit ansehen, wie Männer
-und Weiber abgestrast werden; aber dieser Mißbrauch, oder,
+und Weiber abgestraft werden; aber dieser Mißbrauch, oder,
 wenn man will, dieser Verstoß gegen den Anstand fließt aus
 dem Grundsatz, auf dem das ganze seltsame Missionsregiment
 beruht. Die willkürlichste bürgerliche Gewalt ist mit den
 Rechten, welche dem Geistlichen der kleinen Gemeinde zustehen,
 völlig verschmolzen, und obgleich die Caraiben so gut wie keine
-Canibalen sind, und so sehr man wünschen mag, daß sie
+<b>Canibalen</b> sind, und so sehr man wünschen mag, daß sie
 mit Milde und Vorsicht behandelt werden, so sieht man doch
 ein, daß es zuweilen etwas kräftiger Mittel bedarf, um in
 einem so jungen Gemeinwesen die Ruhe aufrecht zu erhalten.
-Die Caraiben sind um so schwerer an feste Wohnsiße zu
-fesseln, da sie seit Jahrhunderten aus den Flüssen Handel
 
-« 339
+Die Caraiben sind um so schwerer an feste Wohnsitze zu
+fesseln, da sie seit Jahrhunderten auf den Flüssen Handel
 getrieben haben. Wir haben dieses rührige Volk, ein Volk
-von H0tdelsleuten und von Kriegern, schon oben kennen ge-
-lernt, I wie es Sklavenhandel trieb und mit seinen Waaren
-von den Kusten von hoMtndiseh Guyana bis in das Becken
-des Amazonenftromes zog. Die tvandernden Caraiben waren
-die Bukharen des t»ropischen Amerika, und so hatte sie denn
-auch das tägliche Veditrfniß, die Gegenstände ihres kleinen
+von Handelsleuten und von Kriegern, schon oben kennen gelernt,^[S.
+Bd. III. Seite 275. 378. 393.]
+wie es Sklavenhandel trieb und mit seinen Waaren
+von den Küsten von holländisch Guyana bis in das Becken
+des Amazonenstromes zog. Die wandernden Caraiben waren
+die Bukharen des tropischen Amerika, und so hatte sie denn
+auch das tägliche Bedürfniß, die Gegenstände ihres kleinen
 Handels zu berechnen und einander Nachrichten mitzutheilen,
-dazu gebracht, die Handhabung der O«uipvos, oder, wie
-man in den Missionen sagt, der cok(i0noj11os con nudos,
+dazu gebracht, die Handhabung der <b>Quippos</b>, oder, wie
+man in den Missionen sagt, der <i>cordoncillos con nudos</i>,
 zu verbessern und zu erweitern. Diese Quippos oder Schnüre
-kommen in Canada, in Mexiko (wo Voturini welche bei den
-Tlascalteken bekam), in Pera, auf den Niederungen von
-Guhana, in Centralasien, in China und in Indien vor. Als
+kommen in Canada, in Mexiko (wo Boturini welche bei den
+Tlascalteken bekam), in Peru, auf den Niederungen von
+Guyana, in Centralasien, in China und in Indien vor. Als
 Rosenkränze wurden sie in den Händen der abendländischen
-Christen Werkzeuge der Andacht; als Suampan dienten sie
-zu den Grissen der palpabeln oder Handarithmetik der
-Chinesen, Tartaren und Rassen. ·« Die unabhängigen Caraiben,
-’ S..Bd. 11I. Seite 276. 378. 393.
-« Die O«uippo8 oder Schnüre der Völker im obern Louisiana heißen
-Wampum. Anghiera (Deo. IIl. I«jb. 9.) erzählt einen sehr merkwür-
-digen Fall, aus dem hervorzugehen scheint, daß die umherziehenden Cami-
-ben mit gebundenen Büchern, wie denen der Mexicaner und den unsern,
-nicht ganz unbekannt waren. Der interessanten Entdeckung von Bilder-
-heftet! bei den Panos·Indiauern am Ucahale habe ich anderswo gedacht
-(Vues des cocdil1eres; T. I. pag. 72). Auch die Peruaner hatten neben
-den O«uis-pp« hieroglyphische Malereien, ähnlich den mexicanischen, nur roher.
-BeInalter Blätter bedienten sie sich seit der Eroberung zum Beiehten in der
-Kirche. Vielleicht hatte der Caraibe, der, nach Anghieras Erzählung, tief
-aus dem Lande nach Darien kam, Gelegenheit gehabt in O-uiw oder Cundi-
-ncnnarea ein peruanisches Blieb zu sehen. Ich brauche, wie die ersten spa-
-nischen Reisenden, das Wort Buch, weil dasselbe keineswegs den Gebrauch
-einer Buchsiabenschr-ist voraussetst.
-
-Z-M)
+Christen Werkzeuge der Andacht; als <b>Suampan</b> dienten sie
+zu den Griffen der <b>palpabeln</b> oder Handarithmetik der
+Chinesen, Tartaren und Russen.^[Die Quippos oder Schnüre der
+Völker im obern Louisiana heißen
+<b>Wampum</b>. Anghiera (<i>Dec. III. Lib. 9.</i>)
+erzählt einen sehr merkwürdigen
+Fall, aus dem hervorzugehen scheint,
+daß die umherziehenden Caraiben
+mit gebundenen Büchern, wie denen
+der Mexicaner und den unsern,
+nicht ganz unbekannt waren. Der
+interessanten Entdeckung von Bilderheften
+bei den Panos-Indianern am Ucayale
+habe ich anderswo gedacht
+(<i>Vues des cordilleres; T. I. pag. 72</i>).
+Auch die Peruaner hatten neben
+den Quippos hieroglyphische Malereien,
+ähnlich den mexicanischen, nur roher.
+Bemalter Blätter bedienten sie sich seit
+der Eroberung zum Beichten in der
+Kirche. Vielleicht hatte der Caraibe, der,
+nach Anghieras Erzählung, tief
+aus dem Lande nach Darien kam, Gelegenheit
+gehabt in Quito oder Cundinamarca
+ein peruanisches Buch zu sehen.
+Ich brauche, wie die ersten spanischen
+Reisenden, das Wort Buch, weil dasselbe
+keineswegs den Gebrauch
+einer Buchstabenschrift voraussetzt.] Die unabhängigen Caraiben,
 welche in dem noch so wenig bekannten Lande zwischen den
-Quellen des Orinoco und den Flüssen Cssequebo, Ca.ronh und
-Parime (Rio Branco oder Mo de s.gues dIs.ve-as) hausen,
-theilen sich is? Stamme; ich-i1ich des: Völkern— am Missouri,
-in Chili und im alten Germanien bilden sie eine Art politi-
--scher V1Mdesgenvssenichaft» Eine solche Vetfcss1mg sagt tm
-besten der Freiheit-sliebe dieser kriegerisrhen Horden zu, die
-gesellschaftliche Bande nur dann vortheilhast sinden, wenn es
+Quellen des Orinoco und den Flüssen Essequebo, Carony und
+Parime (Rio Branco oder <i>Rio de aguas blancas</i>) hausen,
+theilen sich in Stämme; ähnlich den Völkern am Missouri,
+in Chili und im alten Germanien bilden sie eine Art politischer
+Bundesgenossenschaft. Eine solche Verfassung sagt am
+besten der Freiheitsliebe dieser kriegerischen Horden zu, die
+gesellschaftliche Bande nur dann vortheilhaft finden, wenn es
 gemeinsame Vertheidigung gilt. In ihrem Stolze sondern sich
-die Caraiben von allen andern Stämmen ab, selbst von sol-
-chen, die der Sprache nach ihnen verwandt sind. Auf dieser
+die Caraiben von allen andern Stämmen ab, selbst von solchen,
+die der Sprache nach ihnen verwandt sind. Auf dieser
 Absonderung bestehen sie auch in den Missionen. Diese sind
-selten gediehen, wenn man den Versuch gemacht hat, Cami-
-ben gemischten Gemeinden einzuverleiben, das heißt solchen,
+selten gediehen, wenn man den Versuch gemacht hat, Caraiben
+gemischten Gemeinden einzuverleiben, das heißt solchen,
 wo jede Hütte von einer Familie bewohnt ist, die wieder
 einem andern Volke angehört und eine andere Mundart hat.
-Bei den unabhängigen Caraiben vererbt sich die Häuptlings-
-würde vom Vater auf den Sohn, nicht durch die Schwester-
-kinder. Letztere Erbfolge beruht auf einem grundsätzlichen
+Bei den unabhängigen Caraiben vererbt sich die Häuptlingswürde
+vom Vater auf den Sohn, nicht durch die Schwesterkinder.
+Letztere Erbfolge beruht auf einem grundsätzlichen
 Mißtrauen, dass eben nicht für große Sittenreinheit spricht;
 dieselbe herrscht in Indien, bei den Ashantees in Asrika, und
-bei mehreren wilden Horden in Nordamerika.1 Bei den
-« Bei den -Buronen (Wiandots) und Natchez vererbt sah die oberste
-Würde in«der weiblichen Linie; nicht der Sohn ist der Nachsolger, sondern
-der Sohn der Schwester oder der nächste Verwandte von weiblirher Seite.
-Bei dieser Erbsolge ist man sicher, daß die oberste Gewalt beim Blute des
-letzten -Düuptlings bleibt; der Brauch ist eine Gewähr für die Legitimitüt.
-Ich habe bei den königlichen Dvnastien aus den Antillen alte Spuren dieser
-in Afrika und Ostindien sehr verbreiteten Erbsolge gesunden. ,,la resea-
-meatis gutem qnam feine sese habe-not, inieltiggmus: ex soc-are
-print- P:-imogenitnm, Si iusit, 1-eliqunat regnet-um bae1·odem; sit:
-minus, ex altem, T-ei ten-tin, Si ex se(-notice Prolog (1esit: qui- s
-
-, km
+bei mehreren wilden Horden in Nordamerika.^[Bei den Huronen
+(Wiandots) und Natchez vererbt sich die oberste
+Würde in der weiblichen Linie; nicht
+der Sohn ist der Nachfolger, sondern
+der Sohn der Schwester oder der nächste
+Verwandte von weiblicher Seite.
+Bei dieser Erbfolge ist man sicher, daß
+die oberste Gewalt beim Blute des
+letzten Häuptlings bleibt; der Brauch
+ist eine Gewähr für die Legitimität.
+Ich habe bei den königlichen Dynastien
+auf den Antillen alte Spuren dieser
+in Afrika und Ostindien sehr verbreiteten
+Erbfolge gefunden. »<i>In testamentis
+autem quam fatue sese habeant,
+intelligamus: ex sorore
+prima primogenitum, si insit,
+reliquunt regnorum haeredem; sin
+minus, ex altera, vel tertia, si ex
+secunda proles desit: quia a
+suo sanguine creatam sobolem eam
+certum est. Filios autem uxorum
+suarum pro non legitimis habent.
+Uxores ducunt quotquot placet.
+Ex uxoribus cariores cum regulo
+sepeliri patiuntur.</i> (Anghiera,
+<i>Decas III. Lib. 9.</i>)] Bei den
 Caraiben müssen die jungen Häuptlinge, wie die Jünglinge,
-die heirathen wollen; fasten und sich den feltsamsten Büßungen
-unterziehen( Man purgirt sie mit der Frucht gewisser Eu-
-phorbien, man läßt sie in Kasten schwitzen und gibt ihnen
-von den Marirris oder Piaches bereitete Mittel ein, die
-in den Landstrichen jenseits der A1leghanis Krieg-3tränke,
-Tranke zum Muthmachen (wak-phisicks) heißen. Die
+die heirathen wollen, fasten und sich den seltsamsten Büßungen
+unterziehen. Man purgirt sie mit der Frucht gewisser Euphorbien,
+man läßt sie in Kasten schwitzen und gibt ihnen
+von den <b>Marirris</b> oder <b>Piaches</b> bereitete Mittel ein, die
+in den Landstrichen jenseits der Alleghanis <b>Kriegstränke</b>,
+<b>Tränke zum Muthmachen</b> (<i>war-phisicks</i>) heißen. Die
 caraibischen Marirris sind die berühmtesten von allen; sie
-find Priester, Gaukler und Aerzte in Einer Person und ihre
-Lehre, ihre Kunstgriffe und ihre Arzneien vererben sich. Letz-
-tere werden unter Auflegen der Hände gereicht und mit ver-
-fchiedenen geheimnißvollen Geberden oder Handlungen, wie
+sind Priester, Gaukler und Aerzte in Einer Person und ihre
+Lehre, ihre Kunstgriffe und ihre Arzneien vererben sich. Letztere
+werden unter Auflegen der Hände gereicht und mit verschiedenen
+geheimnißvollen Geberden oder Handlungen, wie
 es scheint, von Uralters her bekannte Manipulationen des
 thierischen Magnetismus. Ich hatte Gelegenheit, mehrere
 Leute zu sprechen, welche die verbündeten Caraiben genau
 hatten beobachten können, ich konnte aber nicht erfahren, ob
-die Marirris eine C-aste für sich bilden. In Nordamerika
-hat man gefunden, daß bei den Shawanoe-s, die in mehrere
+die <b>Marirris</b> eine Caste für sich bilden. In Nordamerika
+hat man gefunden, daß bei den Shawanoes, die in mehrere
 Stämme zerfallen, die Priester, die die Opfer vornehmen
 (wie bei den Hebräern), nur aus Einem Stamme, dem der
-Me·quachakes, seyn dürfen. Wie mir dünkt, muß Alles, was
-man noch in Amerika über die Spuren einer alten Priester-
-raste ausfindig macht, von bedeutenden: Interesse seyn, wegen
-jener Priesterkönige in Peru, die sich Söhne der Sonne nann-
-ten, und jener Sonnenkönige bei den Natchez, bei denen
+Mequachakes, seyn dürfen. Wie mir dünkt, muß Alles, was
+man noch in Amerika über die Spuren einer alten Priestercaste
+ausfindig macht, von bedeutendem Interesse seyn, wegen
+jener Priesterkönige in Peru, die sich Söhne der Sonne nannten,
+und jener <b>Sonnenkönige</b> bei den Natchez, bei denen
 man unwillkürlich an die Heliaden der ersten östlichen Colonie
-sue ausging et-erstem sobolem cum certnm est. Fi1ios gutem worum
-warum pro von 1egitjmis h·abent. Uxot-es due-u1t qnotquot pl«-et.
-E«-( nxokibns ca:-io1·es cum kegUlo sepe1iki patiuntu1·. (Inghiera,
-Dem M. I«ib. 9.)
-
-ZU .
-von Rhodus denke- um Sitten und Gevkciu«che des ·-arge
-oischen Volke-s ooukommen kamen zu I-me:-, -uns-te um die
-Missionen in den Llanos, die am Caronh und dies Savanen
-südlich von den Gebirgen von Paearaimo zugleich besuchen.
-.Je mehr man sie kennen lernt, ver-sichern die Franei.skaner,
-desto mehr müssen die Vorurtheile" schwinden, die man gegen
+von Rhodus denkt.^[Diodorus Siculus. <i>Lib. V.</i> §. 56.] Um Sitten
+und Gebräuche des caraibischen
+Volkes vollkommen kennen zu lernen, müßte man die
+Missionen in den Llanos, die am Carony und die Savanen
+südlich von den Gebirgen von Pacaraimo zugleich besuchen.
+Je mehr man sie kennen lernt, versichern die Franciskaner,
+desto mehr müssen die Vorurtheile schwinden, die man gegen
 sie in Europa hat, wo sie für wilder, oder, um mich des
 naiven Ausdrucks eines Herrn von Montmartin zu bedienen,
-sur weit weniger liberal gelten, als andere Völkerschaften
-in Guyana.2 Die Sprache der Caraiben auf dem Festlande
+für weit weniger <b>liberal</b> gelten, als andere Völkerschaften
+in Guyana.^[»Die Caraiben sind ziemlich hübsch gewachsen
+und fleischigt; sie sind
+aber nicht sehr liberal, denn sie
+essen gern Menschenfleisch, Eidechsen und
+Krokodile.« (<i>Description générale de
+l’Amérique par Pierre d’Avity,
+Seigneur de Montmartin, 1660</i>).] Die Sprache
+der Caraiben auf dem Festlande
 ist dieselbe von den Quellen des Rio Branco bis zu den
 Steppen von Cumana. Ich war so glücklich, in Besitz einer
-Handschrift zu gelangen, die einen Auszug des Paters S-
-bastian Garcia aus der ,,Gkrammatioa. de la leugnet 0akibe
-del P. Is’erne.ndo Ximenez« enthielt. Diese werthvolle Hand-
-schrift wurde bei Vaters8 und meines Bruders, Wilhelm von
+Handschrift zu gelangen, die einen Auszug des Paters Sebastian
+Garcia aus der »<i>Grammatica de la lengua Caribe
+del P. Fernando Ximenez</i>« enthielt. Diese werthvolle Handschrift
+wurde bei Vaters^[Mithridates, Bd. III. Seite 685.] und 
+meines Bruders, Wilhelm von
 Humboldt, nach noch weit umfassenderem Plane angelegten
 Untersuchungen über den Bau der amerikanischen Sprachen
 benützt.
-Als wir von der Mission Cari ausbrechen wollten, ge-
-riethen wir in einen Wortwechsel mit unsern indianischen
+
+Als wir von der Mission Cari aufbrechen wollten, geriethen
+wir in einen Wortwechsel mit unsern indianischen
 Maulthiertreibern. Sie hatten, zu unserer nicht geringen
 Verwunderung, ausfindig gemacht, daß wir Skelette aus der
-Höhle von Ataruipe mit uns führten,«« und sie waren fest
-« Diodorus Siculus· Lib. V. §. Z6.
-« »Die Earaiben sind ziemlich hübsch gewachsen und sieischigt; sie find
-aber nicht sehr liberal, denn sie essen gern Menschensieisch, Eidechscn und
-Krokodile.« (Description geriet-als de l’AmCkique pur Pier-to (i’Avit.y,
-seigaeu1· de Uontmaktia, 1660).
-« Mithridates, Bd. lll. Seite 685.
-« S. Bd. lV. Seite l48 ff.
-
-343 -
+Höhle von Ataruipe mit uns führten, und sie waren fest
 überzeugt, daß das Lastthier, das »die Körper ihrer alten
 Verwandten« trug, auf dem Wege zu Grunde gehen müsse.
-Alle unsere Vorsichtsmaß-regeln, um die Skelette zu verbergen,
-waren vergeblich; nichts entgeht dem Scharfsinn und dein
-Geruch eines Ca·raiben, und es brauchte das ganze Ansehen
+Alle unsere Vorsichtsmaßregeln, um die Skelette zu verbergen,
+waren vergeblich; nichts entgeht dem Scharfsinn und dem
+Geruch eines Caraiben, und es brauchte das ganze Ansehen
 des Missionärs, um unser Gepäck in Gang zu bringen. Ueber
-den Nio Cari mußten wir im Boote fahren, über den Ri()
-de agua data waten, fast könnte ich sagen schwimmen.
+den Rio Cari mußten wir im Boote fahren, über den <i>Rio
+de agua clara</i> waten, fast könnte ich sagen schwimmen.
 Wegen des Triebsands am Boden ist letzterer Uebergang bei
 Hochwasser sehr beschwerlich. Man wundert sich, daß in einem
-so ebenen Lande die Strömung so stark ist; die Steppenslüsse
+so ebenen Lande die Strömung so stark ist; die Steppenflüsse
 drängen aber auch, um mich eines ganz richtigen Ausdrucks
-des jüngeren Plinius zu bedienen, ,,nicht sowohl wegen des
+des jüngeren Plinius zu bedienen, »nicht sowohl wegen des
 Bodenfalls, als wegen ihrer Fülle und wie durch ihr eigenes
-Gewicht vorwärts.«« Wir hatten, ehe wir in die kleine Stadt
+Gewicht vorwärts.«^[<i>Epistolae Lib. VIII. 8.
+Clitumnus non loci declivitate, sed
+ipsa sui copia et quasi pondere impellitur.</i>] Wir hatten,
+ehe wir in die kleine Stadt
 Pao kamen, zwei schlechte Nachtlager in Matagorda und los
-Niecietos. Ueberall dasselbe: kleine Rohrhütten mit Leder ge-
-deckt, berittene Leute mit Lanzen, die das Vieh hüten, halb
+Niecietos. Ueberall dasselbe: kleine Rohrhütten mit Leder gedeckt,
+berittene Leute mit Lanzen, die das Vieh hüten, halb
 wilde Hornviehherden von auffallend gleicher Färbung, die
 den Pferden und Maulthieren die Weide streitig machen.
 Keine Schafe, keine Ziegen auf diesen unermeßlichen Steppen!
 Die Schafe pflanzen sich in Amerika nur auf Plateaus, die
 über tausend Toisen hoch liegen, gut fort; nur dort wird
 die Wolle lang und zuweilen sehr schön. Im glühend heißen
-.Klima der Niederungen, wo statt der Wölfe die .Jaguars
-austreten, können sich diese kleinen wehrlosen und in ihren
+Klima der Niederungen, wo statt der Wölfe die Jaguars
+auftreten, können sich diese kleinen wehrlosen und in ihren
 Bewegungen schwerfälligen Wiederkäuer nicht in Masse halten.
-Am 15. Juli langten wir in der Fundacion oder
-« l«Jpist-alt-e. I«ib. VlII. 8. clitumm1s non loci dec1ivitste, soc!
-ists« sui ·-opic et quasi poadeke impe1lituk.
 
-!
-344
+Am 15. Juli langten wir in der <b>Fundacion</b> oder
 Villa del Pao an, die im«Jahr l744 gegründet wurde und
-fehr vortheilhaft gelegen ist, um zwischen Nneva Bartelona
+sehr vortheilhaft gelegen ist, um zwischen Nueva Barcelona
 und Angostura als Stapelplatz zu dienen. Ihr eigentlicher
-Name ist cost(-eptjon del Pao; Alcedo, la .Cruz·Olmedilla
+Name ist <i>Conception del Pao</i>; Alcedo, la Cruz Olmedilla
 und viele andere Geographen gaben ihre Lage falsch an, weil
-sie den Ort entweder mit San Juan Baptista del Pan in
-den Llanos von Caracas, oder mit el Balle del Pao am
-Zarate ver1vechselten. Trog des bedeckten Himmels erhielt ich
-einige Höhen von « im Centauren, nach denen sich die Breite
-des Orts bestimmen ließ. Dieselbe beträgt 80 37« 57«·«. Aus
-Sonnenhöhen ergab sich eine Länge von 670 8« 12«, Ange-
-stura unter 660 15« 21« angenommen. Die astronomischen
-Bestimmungen in Calabozo1 und in Conception del Pan sind
+sie den Ort entweder mit San Juan Baptista del Pao in
+den Llanos von Caracas, oder mit el Valle del Pao am
+Zarate verwechselten. Trotz des bedeckten Himmels erhielt ich
+einige Höhen von α im Centauren, nach denen sich die Breite
+des Orts bestimmen ließ. Dieselbe beträgt 8°37′57″. Aus
+Sonnenhöhen ergab sich eine Länge von 67°8′12″, Angostura
+unter 66°15′21″ angenommen. Die astronomischen
+Bestimmungen in Calabozo^[S. Bd. II. Seite 410.] und
+in Conception del Pao sind
 nicht ohne Belang für die Geographie dieser Landstriche, wo
-es inmitten der Grasfiuren durchaus an festen Punkten fehlt.
-In der Umgegend von Pao sindet man einige Fruchtbäume,
+es inmitten der Grasfluren durchaus an festen Punkten fehlt.
+In der Umgegend von Pao findet man einige Fruchtbäume,
 eine seltene Erscheinung in den Steppen. Wir sahen sogar
 Cocosbäume, die trotz der weiten Entfernung von der See
 ganz kräftig schienen. Ich lege einiges Gewicht auf letztere
 Wahrnehmung, da man die Glaubwürdigkeit von Reisenden,
-welche den Cocosbaum, eine Kü stenpalme, in Tombuctu,
-mitten in Afrika, angetroffen haben wollten, in Zweifel ge-
-zogen hat. Wir hatten öfters Gelegenheit, Cocosbäume mitten
+welche den Cocosbaum, eine <b>Küstenpalme</b>, in Tombuctu,
+mitten in Afrika, angetroffen haben wollten, in Zweifel gezogen
+hat. Wir hatten öfters Gelegenheit, Cocosbäume mitten
 im Baulande am Magdalenenstrom, hundert Meilen von der
 Küste, zu sehen.
-In fünf Tagen, die uns sehr lang vorkamen, gelangten
-wir von der Billa del Pan in den Hafen von Nueva Bar-
-celona. Je weiter wir kamen, desto heiterer wurde der
-« S. Bd. U. Seite 410. ,
 
-» 34"5
+In fünf Tagen, die uns sehr lang vorkamen, gelangten
+wir von der Villa del Pao in den Hafen von Nueva Barcelona.
+Je weiter wir kamen, desto heiterer wurde der
 Himmel, desto staubigter der Boden, desto glühender die Luft.
-Diese ungemein drückende Hitze rührt nicht von der Luft-
-temperatur her, sondern vom feinen Sand, der in der Luft
+Diese ungemein drückende Hitze rührt nicht von der Lufttemperatur
+her, sondern vom feinen Sand, der in der Luft
 schwebt, nach allen Seiten Wärme strahlt und dem Reisenden
-ins Gesicht schlägt, wie an die Kugel des Thermometers. In-
-dessen habe ich in Amerika den hunderttheiligen Thermomete-r
-mitten im Sandwinde niemals über 450 8 steigen sehen.
-Eapitän Lyon, den ich nach seiner Rückkehr von Mourzouk
+ins Gesicht schlägt, wie an die Kugel des Thermometers. Indessen
+habe ich in Amerika den hunderttheiligen Thermometer
+mitten im <b>Sandwinde</b> niemals über 45°8 steigen sehen.
+Capitän Lyon, den ich nach seiner Rückkehr von Mourzouk
 zu sprechen das Vergnügen hatte, schien mir auch geneigt
 anzunehmen, daß die Temperatur von 52 Grad, der man
-in Fezzan so oft ausgefetzt ist, großentheils von den Quarz-
-kviuem herrührt, die is: de: Luft suspeudikt siui-. Zu-ischeik
+in Fezzan so oft ausgesetzt ist, großentheils von den Quarzkörnern
+herrührt, die in der Luft suspendirt sind. Zwischen
 Pao und dem im Jahr 1749 gegründeten, von 500 Caraiben
-bewohnten Dorfe Santa Cruz de Cachipo1 kamen wir über
+bewohnten Dorfe Santa Cruz de Cachipo^[Im Jahr 1754
+hatte das Dorf nur 120 Seelen.] kamen wir über
 den westlichen Strich des kleinen Plateau, das unter dem
 Namen Mesa de Amana bekannt ist. Dieses Plateau bildet
 die Wasserscheide zwischen dem Orinoco, dem Guarapiche und
-dem .Küstenland von Neu-Andalusien. Die Erhöhung desselben
-if: so gering, daß es der Schifsbarmachung dieses Strichs
-der Llanos wenig Hindernis; in den Weg legen wird. In-
-dessen konnte der Mo Mamo, der oberhalb» des Einflusses
+dem Küstenland von Neu-Andalusien. Die Erhöhung desselben
+ist so gering, daß es der Schiffbarmachung dieses Strichs
+der Llanos wenig Hinderniß in den Weg legen wird. Indessen
+konnte der Rio Mamo, der oberhalb des Einflusses
 des Carony in den Orinoco fällt und den d’Anville (ich weiß
 nicht, nach wessen Angabe) auf der ersten Ausgabe seiner
 großen Karte aus dem See von Valencia kommen und die
 Sewässer des Guayre aufnehmen läßt, nie als natürlicher
 Canal zwischen zwei Flußbecken dienen. Es besteht in der
 Steppe nirgends eine Gabeltheilung der Art. Sehr viele
-Tat-aiben, welche jetzt in den Missionen von Pirttu leben,
-« Im Jahr 1754 hatte das Dorf nur 120 Seelen.
+Caraiben, welche jetzt in den Missionen von Piritu leben,
+saßen früher nördlich und westlich vom Plateau Amana zwischen
+Maturin, der Mündung des Rio Areo und dem Guarapiche;
+die Einfälle Don Josephs Careño, eines der unternehmendsten
+Statthalter der Provinz Cumana, gaben im
+Jahr 1720 Anlaß zu einer allgemeinen Wanderung der unabhängigen
+Caraiben an den untern Orinoco.
 
-M .
-saßen früher nördlich und westlich vom Plateau. Amana zwi-
-schen Maturin, der Mündung desszRio Areo und dem Gua-
-rapiche; die Einfälle Don Josephs Careüo, eines der unter-
-nehmendsten Statthalter der Provinz Cumana, gaben im
-Jahr 1720 Anlaß zu einer allgemeinen Wanderung der un·
-abhängigen Caraiben an den untern Orinoco.
-Dieser ganze weit gedehnte Landstrirh besteht, wie wir
-schon oben bemerkt,« aus fecundaren Gebirg-sbildungen, die
+Dieser ganze weit gedehnte Landstrich besteht, wie wir
+schon oben bemerkt,^[S. Bd. II. Seite 414.] aus
+secundären Gebirgsbildungen, die
 sich gegen Süden unmittelbar an die Granitgebirge am Orinoco
-lehnen. Gegen Nordwest trennt sie ein ziemlich schtnaler Streif
-von Uebergangsgebirg von den aus Urgel)irg bestehenden
-Bergen auf dem K1·istenland von Caracaö. Dieses gewaltige
+lehnen. Gegen Nordwest trennt sie ein ziemlich schmaler Streif
+von Uebergangsgebirg von den aus Urgebirg bestehenden
+Bergen auf dem Küstenland von Caracas. Dieses gewaltige
 Auftreten von secundären Bildungen, die ohne Unterbrechung
-einen Flärhenraum von 7200 Quadratmeilen bedecken (wobei nur
+einen Flächenraum von 7200 Quadratmeilen bedecken (wobei nur
 der gegen Süd vom Rio Apure, gegen West von der Sierra
-Nevada de Merida und vom Paramo de las Nosas begrenzte
+Nevada de Merida und vom Paramo de las Rosas begrenzte
 Theil der Llanos gerechnet ist), ist in diesen Erdstrichen eine
 um so merkwürdigere Erscheinung, da in der ganzen Sierra
 de la Parime, zwischen dem rechten Ufer des Orinoco und
-dem Rio Negro, gerade wie in Scandinavien, die seeundären
-Bildungen auffallenderweise gänzlich fehlen. Der rothe Sand-
-stein, der ·hie und da Stricke fossilen Holzes (aus der Familie
+dem Rio Negro, gerade wie in Scandinavien, die secundären
+Bildungen auffallenderweise gänzlich fehlen. Der rothe Sandstein,
+der hie und da Stricke fossilen Holzes (aus der Familie
 der Monocotyledonen) enthält, kommt in den Steppen von
-Calabozo überall zu Tage. Weiter gegen Ost sind Kalk-
-stein und Gips demselben ausgelagert und machen ihn der
+Calabozo überall zu Tage. Weiter gegen Ost sind Kalkstein
+und Gips demselben aufgelagert und machen ihn der
 geologischen Forschung unzugänglich. Weiter gegen Norden, der
 Mission San Joses de Curataquiche zu, fand Bonpland schöne
-gebänderte Stücke Jaspis oder ,,egyptische Kiesel.« Wir sahen
-« S· Bd. It. Seite 414·
-
-» 347
+gebänderte Stücke Jaspis oder »egyptische Kiesel.« Wir sahen
 dieselben nicht in der Gebirgsart eingeschlossen und wissen
 daher nicht, ob sie einem ganz neuen Conglomerat angehören
-oder dem Kalkstein, den wir am Morro von Nueva Varro-
-lona angetroffen, und der kein Uebergangsgestein ist, obgleich
-er Schichten von .Kieselschiefer enthält.
-Man kann die Steppen oder Grassluren von Südamerika
-nicht durchziehen, ohne in Gedanken bei der Aussicht zu ver-
-weilen, daß man sie eines Tags zu dem benittzen wird, zu
-dem sie sich besser eignen, als irgend ein Lands«-ich des Eri-
-balls, zur Messung der Grade eines Erdbogens in der Rich-
-tung eines Meridians oder einer auf dem Meridian senkrechten
+oder dem Kalkstein, den wir am Morro von Nueva Barcelona
+angetroffen, und der kein Uebergangsgestein ist, obgleich
+er Schichten von Kieselschiefer enthält.
+
+Man kann die Steppen oder Grasfluren von Südamerika
+nicht durchziehen, ohne in Gedanken bei der Aussicht zu verweilen,
+daß man sie eines Tags zu dem benützen wird, zu
+dem sie sich besser eignen, als irgend ein Landstrich des Erdballs,
+zur Messung der Grade eines Erdbogens in der Richtung
+eines Meridians oder einer auf dem Meridian senkrechten
 Linie. Diese Operation wäre für die genaue Kenntniß der
 Gestalt der Erde von großer Wichtigkeit. Die Llanos von
-Benezuela liegen 13 Grade ostwärts von den Punkten, wo
+Venezuela liegen 13 Grade ostwärts von den Punkten, wo
 einerseits die französischen Akademiker mittelst Dreiecken, die
 sich auf die Gipfel der Cordilleren stützten, andererseits Mason
 und Dixon, ohne trigonometrische Mittel (auf den Ebenen
 von Pennsylvanien), ihre Mess1mgen ausgeführt haben; sie
-liegen sast unter demselben ParalIel (und dieser Umstand ist
+liegen fast unter demselben Parallel (und dieser Umstand ist
 von großem Belang) wie die indische Hochebene zwischen
 Junne und Madura, wo Oberst Lambton so ausgezeichnet
-operirte. So viele Bedenken auch noch hinsichtlich der Ge-
-nauigkeit der Instrumente, der Beobachtungssehler und der Ein-
-slüsse örtlicherAnziehungen bestehen mögen, beim jetzigen Zustand
-unserer .Kenntnisse ist nicht wohl in Abrede zu ziehen, daß
-die Erde ungleichför1nig abgeplattet ist. Jst einmal zwischen
-den freien Regierungen von la Plato und Venezuela ein
-innigeres Berhältniß hergestellt, so wird man sich ohne Zwei-
-sel diesen Vortheil und den allgemeinen Frieden zu Nutze
+operirte. So viele Bedenken auch noch hinsichtlich der Genauigkeit
+der Instrumente, der Beobachtungsfehler und der Einflüsse
+örtlicher Anziehungen bestehen mögen, beim jetzigen Zustand
+unserer Kenntnisse ist nicht wohl in Abrede zu ziehen, daß
+die Erde ungleichförmig abgeplattet ist. Ist einmal zwischen
+den freien Regierungen von la Plata und Venezuela ein
+innigeres Verhältniß hergestellt, so wird man sich ohne Zweifel
+diesen Vortheil und den allgemeinen Frieden zu Nutze
 machen und nördlich und südlich vom Aequator, in den
-
--
--
-M .
-Llanos und in den Pampas die"Messungen vornehmen, die
-wir hier in Vorschlag bringen. Die Llanos von Pakt und
+Llanos und in den Pampas die Messungen vornehmen, die
+wir hier in Vorschlag bringen. Die Llanos von Pao und
 Calabozo sind fast unter demselben Meridian gelegen, wie
 die Pampas südlich von Cordova, und der Breitenunterschied
 dieser Niederungen, die so vollkommen eben sind, als hätte
-lange Wasser darauf gestanden, beträgt 45« Grad. Diese geo-
-dätischen und astronomischen Operationen wären bei der B-
-schasfenheit des Terrains auch gar nicht kostspielig. Schon
-La Condamine hat im Jahr 1734 dargethan, wie vertheil-
-hafter und besonders weniger zeitraubend es gewesen wäre,
+lange Wasser darauf gestanden, beträgt 45&nbsp;Grad. Diese geodätischen
+und astronomischen Operationen wären bei der Beschaffenheit
+des Terrains auch gar nicht kostspielig. Schon
+La Condamine hat im Jahr 1734 dargethan, wie vortheilhafter
+und besonders weniger zeitraubend es gewesen wäre,
 wenn man die Akademiker in die (vielleicht etwas zu stark
-bewachsenen und sumpsigten) Ebenen im Süden von Cayenne,
-dem Einfluß des Rio Xingu in« den Amazonenstrom zu, ge-
-schickt hätte, statt sie auf den Hochebenen von O.uito mit
-Frost, Stürmen und vulkanischen Ausbrüehen kämpfen zu lassen.
-Die spanisch-amerikanischen Negierungen dürfen keines-
-wegs meinen, daß die in Rede stehenden, mit Pendelbeob-
-achtungen verbundenen Messungen in den Llanos nur ein
+bewachsenen und sumpfigten) Ebenen im Süden von Cayenne,
+dem Einfluß des Rio Xingu in den Amazonenstrom zu, geschickt
+hätte, statt sie auf den Hochebenen von Quito mit
+Frost, Stürmen und vulkanischen Ausbrüchen kämpfen zu lassen.
+
+Die spanisch-amerikanischen Regierungen dürfen keineswegs
+meinen, daß die in Rede stehenden, mit Pendelbeobachtungen
+verbundenen Messungen in den Llanos nur ein
 rein wissenschaftliches Interesse hätten: dieselben gäben zugleich
-die Hauptgrundlagen für Karten ab, ohne welche keine regel-
-mäßige Verwaltung in einem Lande bestehen kann. Bis
-jetzt mußte man sich auf eine rein astronomische Ausnahme
-beschränken, und es ist dieß das sicherste und rascheste Verfah-
-ren bei einer Oberfläche von sehr großer Ausdehnung. Man
-suchte einige Punkte an den Küsten und im Innern ab-
-solut zu bestimmen, das heißt nach Himmelserscheinungen
+die Hauptgrundlagen für Karten ab, ohne welche keine regelmäßige
+Verwaltung in einem Lande bestehen kann. Bis
+jetzt mußte man sich auf eine rein astronomische Aufnahme
+beschränken, und es ist dieß das sicherste und rascheste Verfahren
+bei einer Oberfläche von sehr großer Ausdehnung. Man
+suchte einige Punkte an den Küsten und im Innern <b>absolut</b>
+zu bestimmen, das heißt nach Himmelserscheinungen
 oder Reihen von Monddistanzen. Man stellte die Lage der
 bedeutendsten Orte nach den drei Coordinaten der Breite, der
-Länge und der Höhe fest. Die dazwischenliegenden Punkte wur-
-den mit den Hauptpunkten auf chronometrischem Wege
-
--
-I
-349
-verknü"pft. Durch den sehr— gleichförmigen Gang der Chronometer
-in C-anoe-s und durch die sonderbaren Krümmungen des Ori-
-noco wurde diese Anknüpfung erleichtert. Man brachte die
-Chronometer zum Ausgangspunkte zurück, oder man beob-
-achtete zweimal (im Hinweg und im Herweg) an einem da-
-zwischen liegenden Punkte, man knüpfte die Enden der chro-
-nometris ch en Linien! an sehr weitaus einander liegende
-Lokalitäten, deren Lage nach absoluten, d. h. rein astrono-
-ntischen Erscheinungen bestimmt ist, und so konnte man die
+Länge und der Höhe fest. Die dazwischenliegenden Punkte wurden
+mit den Hauptpunkten auf <b>chronometrischem</b> Wege
+verknüpft. Durch den sehr gleichförmigen Gang der Chronometer
+in Canoes und durch die sonderbaren Krümmungen des Orinoco
+wurde diese Anknüpfung erleichtert. Man brachte die
+Chronometer zum Ausgangspunkte zurück, oder man beobachtete
+zweimal (im Hinweg und im Herweg) an einem dazwischen
+liegenden Punkte, man knüpfte die Enden der <b>chronometrischen
+Linien</b>^[Mit diesem nicht gebräuchlichen Ausdruck
+bezeichne ich Linien, welche
+durch die Punkte laufen, die mittelst
+Uebertragung der Zeit bestimmt worden
+und somit von einander abhängig sind.
+Von der zweckmäßigen Richtung
+dieser Linien hängt die Genauigkeit einer
+rein astronomischen Aufnahme ab.] an sehr weitaus einander liegende
+Lokalitäten, deren Lage nach absoluten, d.&nbsp;h. rein astronomischen
+Erscheinungen bestimmt ist, und so konnte man die
 Summe der etwa begangenen Fehler schätzen. Auf diese Weise
 (und vor meiner Reise war im Binnenlande die Länge keines
-Punktes bestimmt worden) habe ich Cumana, Angostura, Es-
-meralda, San Carlos del Rio Negro, San Fernando de
-2lpure, -Porto-Cabello und Caracas astronomisch verknüpft.
+Punktes bestimmt worden) habe ich Cumana, Angostura, Esmeralda,
+San Carlos del Rio Negro, San Fernando de
+Apure, Porto-Cabello und Caracas astronomisch verknüpft.
 Diese Beobachtungen umfassen eine Bodenfläche von mehr als
-10,000 Quadratmeilen. Das System der Beobachtungs-
-punkte auf dem Küstenland und die werthvollen Ergebnisse der
-Aufnahme bei Fidalgos. Seereise wurden mit dem System der
-Beobarhtungspuukte am Orinoco und Mo Negro durch zwei
-·hronometrische Linien in Verbindung gebracht, deren eine
+10,000&nbsp;Quadratmeilen. Das System der Beobachtungspunkte
+auf dem Küstenland und die werthvollen Ergebnisse der
+Aufnahme bei Fidalgos Seereise wurden mit dem System der
+Beobachtungspunkte am Orinoco und Rio Negro durch zwei
+chronometrische Linien in Verbindung gebracht, deren eine
 über die Llanos von Catabozo, die andere über die Llanos
 von Pao läuft. Die Beobachtungen in der Parime bilden
-einen Streifen, der eine ungeheure Landftrecke (73,000
+einen Streifen, der eine ungeheure Landstrecke (73,000
 Quadratmeilen), auf der bis jetzt nicht ein einziger Punkt
-astronomisch bestimmt ist,? in zwei Theile theilt. Durch diese
+astronomisch bestimmt ist, in zwei Theile theilt. Durch diese
 verschiedenen Arbeiten, die ich mit geringen Mitteln, aber
-I Mit diesem nicht gebräuchlichen Ausdruck bezeichne ich Linien, welche
-durch die Punkte laufen, die mittelst Uebertragung der Zeit bestimmt wor-
-den und somit von einander abhängig sind. Von der zweckmäßigen Richtung
-dieser Linien hängt die Genauigkeit einer rein astronomischen Aufnahme ab.
-« S. Bd. IV. Seite 200.
-
-M .
 nach einem allgemeinen Plane unternommen, wurde, wie ich
-mir wohl schmeicheln darf, der erste astronomisthe Grund zur
+mir wohl schmeicheln darf, der erste astronomische Grund zur
 Geographie dieser Länder gelegt; es ist aber Zeit, dieselben
 vielfach wieder aufzunehmen, sie zu berichtigen, besonders
-aber da, wo der Anbau des Landes es gestattet, trigonom-
-trische Messungen an ihre Stelle treten zu lassen. Au beiden
-Rändern der Llanos, -die sich gleich einem Meerbusen vom
-Delta des Orinoco bis zu den Schneegebirgen von Meridi-
-ausdehnen, streichen im Norden- und im Süden zwei Granit-
-ketten parallel mit dem Aequator. Diese früheren Küsten eines
+aber da, wo der Anbau des Landes es gestattet, trigonometrische
+Messungen an ihre Stelle treten zu lassen. An beiden
+Rändern der Llanos, die sich gleich einem Meerbusen vom
+Delta des Orinoco bis zu den Schneegebirgen von Meridia
+ausdehnen, streichen im Norden und im Süden zwei Granitketten
+parallel mit dem Aequator. Diese früheren Küsten eines
 innern Seebeckens sind in den Steppen von weitem sichtbar
-und können zur Aufstellung von Signalen dienen. Der Spitz-
-berg Guacharo, der Corollor und Tut-imiquiri, der Bergantin,
+und können zur Aufstellung von Signalen dienen. Der Spitzberg
+Guacharo, der Corollor und Turimiquiri, der Bergantin,
 die Morros San Juan und San Sebastian, die Galera,
 welche die Llanos wie eine Felsmauer begrenzt, der kleine
 Cerro de Flores, den ich in Calabozo, und zwar in einem
-Moment gesehen habe, wo die Lustspiegelung beinahe Nnll
+Moment gesehen habe, wo die Luftspiegelung beinahe Null
 war, werden am Nordrande der Niederungen zum Dreiecknetz
-dienen. Diese Berggipsel sind großentheils sowohl in den
-Llanos als im angebauten Küstenlande sichtbar. Gegen Süden·
-liegen die Granitketten am Orinoeo oder in der Parime etwas
-abwärts von den Rändern der Steppen und sind für geodä-
-tische Operationen nicht ganz so günstig. Indessen werden
-die Berge oberhalb Angostura und·Muitaco, der Cerro del
+dienen. Diese Berggipfel sind großentheils sowohl in den
+Llanos als im angebauten Küstenlande sichtbar. Gegen Süden
+liegen die Granitketten am Orinoco oder in der Parime etwas
+abwärts von den Rändern der Steppen und sind für geodätische
+Operationen nicht ganz so günstig. Indessen werden
+die Berge oberhalb Angostura und Muitaco, der Cerro del
 Tirano bei Caycara, der Pan de Azucar und der Sacuima
-beim Einfluß des Apure in den Orinoeo gute Dienste leisten,
-namentlich wenn man die Winkel bei bedecktem Himmel aus-
-nimmt, damit nicht das Spiel der ungewöhnlichen Nesractio-
-nen über einem stark erhitzten Boden die Berggipfel, welche
+beim Einfluß des Apure in den Orinoco gute Dienste leisten,
+namentlich wenn man die Winkel bei bedecktem Himmel aufnimmt,
+damit nicht das Spiel der ungewöhnlichen Refractionen
+über einem stark erhitzten Boden die Berggipfel, welche
 unter zu kleinen Höhenwinkeln erscheinen, verzieht und
-
-· 351
 verrückt. Pulversignale, deren Widerschein am Himmel so weit
-hin sichtbar ist, werden sehr förderlich seyn. -Ja) glaubte hier
-im Interesse der Sache angeben zu sollen, was meine Orts-
-kenntniß und das Studium der Geographie von Amerika mir
+hin sichtbar ist, werden sehr förderlich seyn. Ich glaubte hier
+im Interesse der Sache angeben zu sollen, was meine Ortskenntniß
+und das Studium der Geographie von Amerika mir
 an die Hand gegeben. Ein ausgezeichneter Geometer, Lenz,
 der bei mannigfaltigen Kenntnissen in allen Zweigen der
 Mathematik im Gebrauch astronomischer Instrumente sehr
 geübt ist, beschäftigt sich gegenwärtig damit, die Geographie
-dieser Länder weiter auszubilden und im Auftrag der Regie-
-rung von Venezuela die Plane, die ich bereits im Jahr I799
-der Beachtung des spanischen Ministeriums vergeblich em-
-pfohlen hatte, zum Theil auszuführen. ·
+dieser Länder weiter auszubilden und im Auftrag der Regierung
+von Venezuela die Plane, die ich bereits im Jahr 1799
+der Beachtung des spanischen Ministeriums vergeblich empfohlen
+hatte, zum Theil auszuführen.
+
 Am 26. Juli brachten wir die Nacht im indianischen
 Dorfe Santa Cruz de Cachipo zu. Diese Mission wurde im
 Jahr 1749 mit mehreren caraibischen Familien gegründet,
-welche an den überschwemmen, ungesunden Ufern der La-
-gunetas de Angabe, gegenüber dem Einfluß des Rio Pu-
-ruay in« den Orinoco, lebten. Wir wohnten beim Missionär1
+welche an den überschwemmten, ungesunden Ufern der <i>Lagunetas
+de Anache</i>, gegenüber dem Einfluß des Rio Puruay
+in den Orinoco, lebten. Wir wohnten beim Missionär^[Fray Jose
+de las Piedras.]
 und ersahen aus den Kirchenbüchern, welch rasche Fortschritte
 der Wohlstand der Gemeinde durch seinen Eifer und seine
 Einsicht gemacht hatte. Seit wir in die Mitte der Steppen
 gelangt waren, hatte die Hitze so zugenommen, daß wir gerne
 gar nicht mehr bei Tage gereist wären; wir waren aber
-unbewassnet und die Llanos waren damals von ganzen Räuber-
+unbewaffnet und die Llanos waren damals von ganzen Räuber-
 banden unsicher gemacht, die mit rassinirter Grausamkeit die
 Weißen, welche ihnen in die Hände sielen, mordeten. Nichts
 kläglicher als die Rechtspflege in diesen überseeischen Colonien!

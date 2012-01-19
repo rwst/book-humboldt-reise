@@ -11002,807 +11002,777 @@ der Wohlstand der Gemeinde durch seinen Eifer und seine
 Einsicht gemacht hatte. Seit wir in die Mitte der Steppen
 gelangt waren, hatte die Hitze so zugenommen, daß wir gerne
 gar nicht mehr bei Tage gereist wären; wir waren aber
-unbewaffnet und die Llanos waren damals von ganzen Räuber-
-banden unsicher gemacht, die mit rassinirter Grausamkeit die
-Weißen, welche ihnen in die Hände sielen, mordeten. Nichts
+unbewaffnet und die Llanos waren damals von ganzen Räuberbanden
+unsicher gemacht, die mit raffinirter Grausamkeit die
+Weißen, welche ihnen in die Hände fielen, mordeten. Nichts
 kläglicher als die Rechtspflege in diesen überseeischen Colonien!
-Ueberall fanden wir die Gefängnisse mit Berbrechern gefüllt,
-« Frau Jose de las Piedras.
-ei
-!
-
-X
-Z52
+Ueberall fanden wir die Gefängnisse mit Verbrechern gefüllt,
 deren Urtheil sieben, acht Jahre auf sich warten läßt. Etwa
-ein Drittheil der Verhafteten entspringt, und die menschen-
-leeren, aber von Heerden wi1nmelnden Ebenen bieten ihnen
-Zuflucht und Unterhalt. Sie treiben ihr Ri·iubergewerbe zu
+ein Drittheil der Verhafteten entspringt, und die menschenleeren,
+aber von Heerden wimmelnden Ebenen bieten ihnen
+Zuflucht und Unterhalt. Sie treiben ihr Räubergewerbe zu
 Pferde in der Weise der Beduinen. Die Ungesundheit der
 Gefängnisse überstiege alles Maaß, wenn sie sich nicht von
-Zeit zu Zeit durch das EntsPt«iUgM der Verhafteten leerten.
+Zeit zu Zeit durch das Entspringen der Verhafteten leerten.
 Es kommt auch nicht selten vor, daß Todesurtheile, wenn sie
 endlich spät genug von der Audiencia zu Caracas gefällt sind,
 nicht vollzogen werden können, weil es an einem Nachrichter
 fehlt. Nach einem schon oben erwähnten barbarischen Brauch
-begnadigt man denjenigen der Uebelthäter, der es aus sich
+begnadigt man denjenigen der Uebelthäter, der es auf sich
 nehmen will, die andern zu hängen. Unsere Führer erzählten
 uns, kurz vor unserer Ankunft auf der Küste von Cumana
-habe ein wegen seiner Rohheit berüchtigter Zambo sich ent-
-schlossen, Henker zu werden und sich so der Strafe zu ent-
-ziehen. Die Zurüstungen zur Hinrichtung machten ihn aber
+habe ein wegen seiner Rohheit berüchtigter Zambo sich entschlossen,
+Henker zu werden und sich so der Strafe zu entziehen.
+Die Zurüstungen zur Hinrichtung machten ihn aber
 in seinem Entschlusse wankend; er entsetzte sich über sich selbst,
-er zog den Tod der Schande vor, die er vollends auf fah
+er zog den Tod der Schande vor, die er vollends auf sich
 häufte, wenn er sich das Leben rettete, und ließ sich die
 Ketten, die man ihm abgenommen, wieder anlegen. Er saß
-nicht mehr lange; die Niederträchtigkeit eines —Mitschuldigen
+nicht mehr lange; die Niederträchtigkeit eines Mitschuldigen
 half ihm zum Vollzug seiner Strafe. Ein solches Erwachen
-des Ehrgefühls in der Seele eines Mörders ist eine psycho-
-logische Erscheinung, die zum Nachdenken auffordert. Ein
+des Ehrgefühls in der Seele eines Mörders ist eine psychologische
+Erscheinung, die zum Nachdenken auffordert. Ein
 Mensch, der beim Berauben der Reisenden in der Steppe
 schon so oft Blut vergessen hat, schaudert beim Gedanken,
 sich zum Werkzeug der Gerechtigkeit hergeben, an andern eine
 Strafe vollziehen zu sollen, die er, wie er vielleicht fühlt,
 selbst verdient hat.
 
--353
-Wenn schon. in den ruhigen Zeiten; in denen Bonpland
+Wenn schon in den ruhigen Zeiten, in denen Bonpland
 und ich das Glück hatten, die beiden Amerika zu bereisen,
 die Llanos den Uebelthätern, welche in den Missionen am
 Orinoco ein Verbrechen begangen, oder aus den Gefängnissen
 des Küstenlandes entsprungen waren, als Versteck dienten,
-wie viel schlimmer mußte dies; noch in Folge der bürgerlichen
+wie viel schlimmer mußte dieß noch in Folge der bürgerlichen
 Unruhen werden, im blutigen Kampfe, der mit der Freiheit
-und Ui?abhüugigkeit dieser gewaltigen Leim-ex seine Eudsch(-sc
-erreichte! Die französischen ,,Landes« und unsere Heiden
+und Unabhängigkeit dieser gewaltigen Länder seine Endschaft
+erreichte! Die französischen »Landes« und unsere Heiden
 geben nur ein entferntes Bild jener Grasfluren auf dem neuen
 Continent, wo Flächen von acht und zehntausend Quadratmeilen
 so eben sind, wie der Meeresspiegel. Die Unermeßlichkeit des
-Raumesssichert dem Landstreicher die Straflosigkeit; in den
+Raumes sichert dem Landstreicher die Straflosigkeit; in den
 Savanen versteckt man sich leichter als in unsern Gebirgen
 und Wäldern, und die Kunstgriffe der europäischen Polizei
-find schwer anwendbar, wo es wohl Reisende gibt, aber keine
-Wege, Herden, »aber keine Hirten, und wo die Höfe so dünn
-gesäet sind, daß man, ttotz des bedeutenden Einflusses der
+sind schwer anwendbar, wo es wohl Reisende gibt, aber keine
+Wege, Herden, aber keine Hirten, und wo die Höfe so dünn
+gesäet sind, daß man, trotz des bedeutenden Einflusses der
 Luftspiegelung, ganze Tagereisen machen kann, ohne daß man
 einen am Horizont auftauchen sieht.
-. Zieht man über die Llanos von Caracas, Barcelona und
-Cumana, die von West nach Ost von den Bergen bei Tru-
-xillo und Merida bis zur Mündung des Orinoco hinter ein-
-ander liegen, so fragt man sich, ob diese ungeheuren Land-
-strecken von der Natur dazu bestimmt sind, ewig als Weide-
-land zu dienen, oder ob Pflug und Hacke sie eines Tages
+
+Zieht man über die Llanos von Caracas, Barcelona und
+Cumana, die von West nach Ost von den Bergen bei Truxillo
+und Merida bis zur Mündung des Orinoco hinter einander
+liegen, so fragt man sich, ob diese ungeheuren Landstrecken
+von der Natur dazu bestimmt sind, ewig als Weideland
+zu dienen, oder ob Pflug und Hacke sie eines Tages
 für den Ackerbau erobern werden? Diese Frage ist um so
 wichtiger, da die an beiden Enden von Südamerika gelegenen
-Llanos der politischen Verbindung der Provinzen, die siZ
+Llanos der politischen Verbindung der Provinzen, die sie
 auseinander halten, Hindernisse in den Weg legen. Sie
-Ost-holst, Reise. IV. «23
-
-Jst
-.-1-—-—-
-machen, daß der Ackerban sich nicht von den ·Iküsten von V-
-nezuela Guhana zu, sich nicht« von Potosi gegen die Mün-
-dung des Mo de la Plata ausbreiten kann. Die dazwischen
-geschobenen Steppen behalten mit dem Hirtenleben einen Cha-
-rakter von Rohheit und Wildheit, der sie isolirt und von der
-Cultur der schon lange urbar gemachten Landsiriche fern hält.
-Aus demselben Grunde wurden sie im Freiheit-Kriege der
+machen, daß der Ackerban sich nicht von den Küsten von Venezuela
+Guyana zu, sich nicht von Potosi gegen die Mündung
+des Rio de la Plata ausbreiten kann. Die dazwischen
+geschobenen Steppen behalten mit dem Hirtenleben einen Charakter
+von Rohheit und Wildheit, der sie isolirt und von der
+Cultur der schon lange urbar gemachten Landstriche fern hält.
+Aus demselben Grunde wurden sie im Freiheitskriege der
 Schauplatz des Kampfes zwischen den feindlichen Parteien und
 sahen die Einwohner von Calabozo fast unter ihren Mauern
-das Geschick der verbündeten Provinzen Venezuela und Eun-
-dinamarca sich entscheiden. Jrh will wünschen, daß man bei
-den Grenzbestimniungen der neuen Staaten und ihrer Unter-
-abtheilungen nicht zuweilen zu bereuen habe, die Bedeutung
+das Geschick der verbündeten Provinzen Venezuela und Cundinamarca
+sich entscheiden. Ich will wünschen, daß man bei
+den Grenzbestimmungen der neuen Staaten und ihrer Unterabtheilungen
+nicht zuweilen zu bereuen habe, die Bedeutung
 der Llanos außer Augen gesetzt zu haben, sofern sie dahin
 wirken, Gemeinheiten auseinander zu halten, welche durch
-gemeinsame Interessen auf einander angewiesen find. Die
+gemeinsame Interessen auf einander angewiesen sind. Die
 Steppen würden, wie Meere oder die Urwälder unter den
 Tropen, als natürliche Grenzen dienen, wenn sie nicht von
 Heeren um so leichter durchzogen würden, da sie mit ihren
-unzähligen Pferde-, Maulthier- und Viehhetden Transport-
+unzähligen Pferde-, Maulthier- und Viehherden Transport-
 und Unterhaltsmittel aller Art bieten.
-Nirgends in der Welt ist die Bodenbildung und die Be-
-schaffenheit der Oberfläche so fest ausgeprägt; nirgends äußern
-sie aber auch so bedeutenden Einfluß auf die Spaltung des
-GeselIschastskörpers, der durch die Ungleichheit nach Abstam-
-mung, Farbe und persönlicher Freiheit schon genug zerrissen
-ist. Es steht nicht in der Macht des Menschen, die klimati-
-schen Unterschiede zu ändern, die aus der aus kleinem Flächen-
-raum rasch wechselnden Bodenhöhe hervorgehen, und welche
-die Quelle des Wider«ivillens sind, der zwischen den Bewohnern
 
-355
-der tot-re« (-a1iente und denen der texts. t'ria. besteht,
-eines WiderwilIens, der auf Gegensätzen im Charakter, in
-Sitten und Gebrauchen beruht. Diese moralischen und poli-
-tischen Einflüsse machen sich besonders in Ländern geltend, wo
+Nirgends in der Welt ist die Bodenbildung und die Beschaffenheit
+der Oberfläche so fest ausgeprägt; nirgends äußern
+sie aber auch so bedeutenden Einfluß auf die Spaltung des
+Gesellschaftskörpers, der durch die Ungleichheit nach Abstammung,
+Farbe und persönlicher Freiheit schon genug zerrissen
+ist. Es steht nicht in der Macht des Menschen, die klimatischen
+Unterschiede zu ändern, die aus der auf kleinem Flächenraum
+rasch wechselnden Bodenhöhe hervorgehen, und welche
+die Quelle des Widerwillens sind, der zwischen den Bewohnern
+der der<b>terra caliente</b> und denen der <b>terra fria</b> besteht,
+eines Widerwillens, der auf Gegensätzen im Charakter, in
+Sitten und Gebrauchen beruht. Diese moralischen und politischen
+Einflüsse machen sich besonders in Ländern geltend, wo
 die Extreme von Landhöhe und Tiefland am auffallendsten
-sind, wo Gebirge und Niederungen am massenhaftesten auf-
-treten und sich am weitesten ausdehnen. Hieher gehören Neu-
-Grenada oder Cundinamarca, Chili und Peru, wo die Inca-
-sprache reich ist an treffenden, naiven Ausdrücken für diese
-kli1natischen Gegensätze in Temperament, Neigungen und geisti-
-gen Fähigkeiten. Im Staate Venezuela dagegen bilden die
-,,Montaneros« in den Hoehgebirgen von Bocono, Timotes
-und Merida nur einen unbedeutenden Bruchtheil der Gesammt-
-bevölkerung, und die volkreichen«Thäler der Küstenkette von
-Caracas und» Caripe liegen nur drei- bis vierhundert Toisen
-über dem Meer. So kam es, daß, als die Staaten Vene-
-zuela und Neu-Grenada unter dem Namen Columbia ver-
-sehmolzen wurden, die bedeutende Gebirgsbevölkerung von
-Santa·Fe, Popahan, Pasto und Quito, wo nicht ganz, doch
-über die Hälfte durch den Zuwachs von acht- bis neunmal-
-hunderttausend Bewohnern der ten-S (-a1iente aufgewogen
-wurde. Der Oberflächenzustand des Bodens ist nicht so un-
-veränderlich als seine Reliefbildung, und so erscheint es als
-möglich, daß die scharfen Gegensätze zwischen den undurch-
-dringlichen Wäldern Guyanas und den baumlosen, grasbe-
-wachsenen Llanos eines Tags verschwinden könnten; aber wie
+sind, wo Gebirge und Niederungen am massenhaftesten auftreten
+und sich am weitesten ausdehnen. Hieher gehören Neu-Grenada
+oder Cundinamarca, Chili und Peru, wo die Incasprache
+reich ist an treffenden, naiven Ausdrücken für diese
+klimatischen Gegensätze in Temperament, Neigungen und geistigen
+Fähigkeiten. Im Staate Venezuela dagegen bilden die
+»Montaneros« in den Hochgebirgen von Bocono, Timotes
+und Merida nur einen unbedeutenden Bruchtheil der Gesammtbevölkerung,
+und die volkreichen Thäler der Küstenkette von
+Caracas und Caripe liegen nur drei- bis vierhundert Toisen
+über dem Meer. So kam es, daß, als die Staaten Venezuela
+und Neu-Grenada unter dem Namen Columbia verschmolzen
+wurden, die bedeutende Gebirgsbevölkerung von
+Santa Fe, Popayan, Pasto und Quito, wo nicht ganz, doch
+über die Hälfte durch den Zuwachs von acht- bis neunmalhunderttausend
+Bewohnern der <b>terra caliente</b> aufgewogen
+wurde. Der Oberflächenzustand des Bodens ist nicht so unveränderlich
+als seine Reliefbildung, und so erscheint es als
+möglich, daß die scharfen Gegensätze zwischen den undurchdringlichen
+Wäldern Guyanas und den baumlosen, grasbewachsenen
+Llanos eines Tags verschwinden könnten; aber wie
 viele Jahrhunderte brauchte es wohl, bis ein solcher Wechsel
 in den unermeßlichen Steppen von Venezuela, am Meta, am
 Caqueta und in Buenos Ayres merkbar würde? Die Beweise,
-die der Mensch von seiner Macht im Kampfe gegen die Natur-
-
--
-356
-ktäste in Gallien, in Germanien und in neuerer Zeit in den«
-Vereinigten Staaten, immer aber außerhalb der Tropen, ge-
-geben hat, kann nicht wohl als Maßstab für die-"vor·auk
-sichtlichen Fortschritte der Cultur im heißen Erdstrikh dienen.
-Es war oben davon die Rede, wie» langsam man mit Feuer
-und Axt Wälder ausrodet, wenn die Baumstämme s bis 16
+die der Mensch von seiner Macht im Kampfe gegen die Naturkräfte
+in Gallien, in Germanien und in neuerer Zeit in den
+Vereinigten Staaten, immer aber außerhalb der Tropen, gegeben
+hat, kann nicht wohl als Maßstab für die voraussichtlichen
+Fortschritte der Cultur im heißen Erdstrich dienen.
+Es war oben davon die Rede, wie langsam man mit Feuer
+und Axt Wälder ausrodet, wenn die Baumstämme 8 bis 16
 Fuß dick sind, wenn sie im Fallen sich an einander lehnen,
-und wenn das Holz, Vom unaufhörliches: Regen beseuchtet,
-so ungemein hart ist. Die Frage, ob die Llanos oder Pum-
-pas urbar zu machen sind, wird von den Colonisten, die
-darin leben, keineswegs einstimmig bejaht, und ganz im All-
-gemeinen läßt sich auch gar nicht darüber entscheiden. Die
+und wenn das Holz, vom unaufhörlichen Regen befeuchtet,
+so ungemein hart ist. Die Frage, ob die Llanos oder Pampas
+urbar zu machen sind, wird von den Colonisten, die
+darin leben, keineswegs einstimmig bejaht, und ganz im Allgemeinen
+läßt sich auch gar nicht darüber entscheiden. Die
 Savanen von Venezuela entbehren größtentheils des Vortheils,
-den die Savanen in Nordamerika dadurch haben, daß fee der
-Länge nach von drei großen Flüssen, dem Missouri, dem Ar-
-kansas und dem Red River von Natchitoches durchzogen werden;
+den die Savanen in Nordamerika dadurch haben, daß sie der
+Länge nach von drei großen Flüssen, dem Missouri, dem Arkansas
+und dem Red River von Natchitoches durchzogen werden;
 durch die Savanen am Araure, bei Calabozo und am Pao
 laufen die Nebenflüsse des Orinoco, von denen die östlichsten
-(Cari, Pao, Aearu und Manapire) in der trockenen Jahres-
-zeit sehr wasserarm find, nur der Quere nach. Alle diese
+(Cari, Pao, Acaru und Manapire) in der trockenen Jahreszeit
+sehr wasserarm find, nur der Quere nach. Alle diese
 Flüsse reichen nicht weit gegen Nord, so daß in der Mitte
-Steppen, weite, entsetzlich dürre Landstriche (bo«nc0s und
-mesas) bleiben. Am cultursähigsten sind die westlichen, von
+Steppen, weite, entsetzlich dürre Landstriche (<i>bancos</i> und
+<i>mesas</i>) bleiben. Am culturfähigsten sind die westlichen, von
 der Portuguesa, vom Masparro und Orivante und den nahe
-bei einander liegenden Nebenslüssen derselben bewässerten Striche.
+bei einander liegenden Nebenflüssen derselben bewässerten Striche.
 Der Boden besteht aus mit Thon gemengtem Sand über einer
-Schicht von Quarzgeschieben. Die Danitnerde, die Hauptnah-
-rungsquelle der Gewächse, ist aller Orten sehr dünn; sie erhält
+Schicht von Quarzgeschieben. Die Dammerde, die Hauptnahrungsquelle
+der Gewächse, ist aller Orten sehr dünn; sie erhält
 so gut wie keinen Zuwachs durch das dürre Laub, das in
 den Wäldern der heißen Zone abfällt wie in den gemäßigten
-
-— 357
-Klimaten, wenn auch nicht so streng periodisch. Seit Jahr-
-tausenden« wächst aber auf den Llanos weder Baum noch Busch-
-wert; die einzelnen, in der Savane zerstreuten Palmen liefern
-sehr« wenig von jener Kohlen- und Wasserftossverbindung, von
+Klimaten, wenn auch nicht so streng periodisch. Seit Jahrtausenden
+wächst aber auf den Llanos weder Baum noch Buschwerk;
+die einzelnen, in der Savane zerstreuten Palmen liefern
+sehr wenig von jener Kohlen- und Wasserstoffverbindung, von
 jenem Extractivstoff, auf dem (nach den Versuchen von Saussure,
 Davy und Braconnot) die Fruchtbarkeit des Bodens beruht.
 Die geselligen Gewächse, die in den Steppen fast ausschließlich
 herrschen, sind Monocotyledonen, und es ist bekannt, wie
-stark die Gräser den Boden aussaugen, in· den sie ihre Wur-
-zeln mit dicht gedrängten Fasern treiben. Diese Wirkung der
-.Killingja-, Paspalum- und Cenchrusarten, aus denen der
+stark die Gräser den Boden aussaugen, in den sie ihre Wurzeln
+mit dicht gedrängten Fasern treiben. Diese Wirkung der
+Killingia-, Paspalum- und Cenchrusarten, aus denen der
 Rasen besteht, äußert sich überall gleich; wo aber das Gestein
-beinahe zu Tag kommt, da ist der Boden verschieden, je nach-
-dem er auf rothem Sandstein oder auf festem Kalkstein und·
-auf Gyps liegt; so wie je nachdem die periodischen Ueber-« «
-schwemmungen an den tiefsten Stellen Erdreich angeschwemmt
-haben, oder das Wasser von den kleinen Plateaus die wenige«
+beinahe zu Tag kommt, da ist der Boden verschieden, je nachdem
+er auf rothem Sandstein oder auf festem Kalkstein und
+auf Gyps liegt; so wie je nachdem die periodischen Ueberschwemmungen
+an den tiefsten Stellen Erdreich angeschwemmt
+haben, oder das Wasser von den kleinen Plateaus die wenige
 Dammerde vollends weggespült hat. Bereits bestehen mitten im
 Weideland einzelne Pflanzungen an Stellen, wo sich fließendes
-Wasser oder ein paar Busche der Mauritiapalme fanden. Diese
+Wasser oder ein paar Büsche der Mauritiapalme fanden. Diese
 Höfe, bei denen man Mais und Manioc baut, werden sich
-bedeutend vermehren, wenn es gelingt, mehr Bäume und Ge-
-büsch fortzubringen.
-Die Dürre der Mesas« und die große Hitze, die darauf
-herrscht, rühren nicht allein von der Beschaffenheit ihrer Ober-·
-fläche und der örtlichen Reverberation des Bodens her; ihre
+bedeutend vermehren, wenn es gelingt, mehr Bäume und Gebüsch
+fortzubringen.
+
+Die Dürre der <b>Mesas</b>^[Kleine Plateaus, Bänke, die etwas höher
+liegen als die übrige Steppe.] und die große Hitze, die darauf
+herrscht, rühren nicht allein von der Beschaffenheit ihrer Oberfläche
+und der örtlichen Reverberation des Bodens her; ihre
 klimatischen Verhältnisse hängen ab von der Umgebung, von
 der ganzen Steppe, von der die Mesas ein Theil sind. Bei
-· Kleine Plateaus, Bänke, die etwas höher liegen als die übrige Steppe.·
-
-358
-den Wüsten in Afrika oder in Slrabien, bei den Llanos in
--Sildamerika, bei den großen Heiden, die von der Spitzke von
-Jiltland bis zur Mündung der Schelde fortstreichen, beruht
-die feste Begrenzung der Wüsten, der LlanoD, der Heiden
-großentheils aus ihrer unermeßlichen"AuZdehnung, auf der
-Kahlheit dieser L-andstriche in Folge einer Umwälzung, welche
+den Wüsten in Afrika oder in Arabien, bei den Llanos in
+Südamerika, bei den großen Heiden, die von der Spitze von
+Jütland bis zur Mündung der Schelde fortstreichen, beruht
+die feste Begrenzung der Wüsten, der Llanos, der Heiden
+großentheils auf ihrer unermeßlichen Ausdehnung, auf der
+Kahlheit dieser Landstriche in Folge einer Umwälzung, welche
 den früheren Pflanzenwuchs unseres Planeten vernichtet hat.
-Durch ihre Ausdehnung, ihr ununterbrocheneZ Fortsireichen
+Durch ihre Ausdehnung, ihr ununterbrochenes Fortstreichen
 und ihre Masse widerstehen sie dem Eindringen der Cultur,
-behalten sie, als wären sie in das Land einschneidende Buch-
-ten, ihren festen Userumriß. Ich lasse mich nicht auf die
+behalten sie, als wären sie in das Land einschneidende Buchten,
+ihren festen Uferumriß. Ich lasse mich nicht auf die
 große Frage ein, ob in der Sahara, diesem Mittelmeer von
 Flugsand, der Keime des organischen Lebens heutzutage mehr
-werden. Je ausgebreitet» unsere geographischen Kenntnisse
-wurden, desto zahlreicher sahen ·wir im östlichen Theil der
-Wüste grüne Eilande, mit Palmen bedeckte Oasen zu Archi-
-pelen sich zusammendrängen und den Caravanen ihre Häfen
+werden. Je ausgebreiteter unsere geographischen Kenntnisse
+wurden, desto zahlreicher sahen wir im östlichen Theil der
+Wüste grüne Eilande, mit Palmen bedeckte Oasen zu Archipelen
+sich zusammendrängen und den Caravanen ihre Häfen
 öffnen; wir wissen aber nicht, ob seit Herodots Tode der
 Umriß der Oasen nicht fortwährend derselbe geblieben ist.
-Unsere Geschichtsb1'icher sind von zu kurzem Datum und zu
+Unsere Geschichtsbücher sind von zu kurzem Datum und zu
 unvollständig, als daß wir der Natur in ihrem langsamen,
-stetigen Gange. folgen könnten.
-Von diesen völlig öden Räumen, von denen ein gewalt-
-sames Ereigniß die Pslanzendecke und die Dammerde wegge-
-rissen hat, von den syrischen und asrilanischen Wüsten, die
+stetigen Gange folgen könnten.
+
+Von diesen völlig öden Räumen, von denen ein gewaltsames
+Ereigniß die Pflanzendecke und die Dammerde weggerissen
+hat, von den syrischen und afrikanischen Wüsten, die
 in ihrem versteinerten Holz noch die Urkunden der erlittenen
 Veränderungen aufweisen, blicken wir zurück auf die mit
 Gräsern bewachsenen Llanos. Hier ist die Erörterung der
 Erscheinungen dem Kreise unserer täglichen Beobachtungen
 näher gerückt. In den amerikanischen Steppen angesiedelte
-
-359
-Landwirthe sind hin·sichtlich der Möglichkeit eines umfassendek
-ten Anhang derselben ganz zu den Ansichten gekommen, wie
-ich sie aus dem klimatischen Einfluß der Steppen un"ter dem
-Gesichtspunkt als ununterbrochene Flächen oder Massen her-
-geleitet habe. Sie haben die Beobachtung gemacht: daß Hei-
-den, die rings von angebautem oder mit Holz bewachsenen:
+Landwirthe sind hinsichtlich der Möglichkeit eines umfassenderen
+Anbaus derselben ganz zu den Ansichten gekommen, wie
+ich sie aus dem klimatischen Einfluß der Steppen unter dem
+Gesichtspunkt als ununterbrochene Flächen oder Massen hergeleitet
+habe. Sie haben die Beobachtung gemacht, daß Heiden,
+die rings von angebautem oder mit Holz bewachsenem
 Lande umgeben sind, nicht so lange dem Anbau Widerstand
 leisten, als Striche vom selben Umfang, die aber einer weiten
 Fläche von gleicher Beschaffenheit angehören. Die Beobachtung
-ist richtig, ob nun das eingeschlossene Stück eine Gra-3flur
+ist richtig, ob nun das eingeschlossene Stück eine Grasflur
 ist, oder mit Heiden bewachsen, wie im nördlichen Europa,
-oder mit Eifius, Lentisken und«Chamärop-S, wie in Spanien,
+oder mit Cistus, Lentisken und Chamärops, wie in Spanien,
 oder mit Cactus, Argemone und Brathys wie im tropischen
-Amerika. Einen je größeren Raum der Pflanzenverein ein-
-nimmt, d.esto stärkeren Widerstand leisten die geselligen Ge-
-wächs? dem Anbau. Zu dieser allgemeinen Ursache kommt
+Amerika. Einen je größeren Raum der Pflanzenverein einnimmt,
+desto stärkeren Widerstand leisten die geselligen Gewächse
+dem Anbau. Zu dieser allgemeinen Ursache kommt
 in den Llanos von Venezuela der Umstand, daß die kleinen
-Grasarten während der Reife der Saamen den Boden aus-
-saugen, ferner der gänzliche Mangel an Bäumen und Busch-
-wert, die Sandwinde, deren Gluthhitze gesteigert wird durch
+Grasarten während der Reife der Saamen den Boden aussaugen,
+ferner der gänzliche Mangel an Bäumen und Buschwerk,
+die Sandwinde, deren Gluthhitze gesteigert wird durch
 die Berührung mit einem Boden, der zwölf Stunden lang
 die Sonnenstrahlen einsaugt, ohne daß je ein anderer Schatten
-als der der Aristiden, Cenchrus und Paspalum darauf fc·illt.
+als der der Aristiden, Cenchrus und Paspalum darauf fällt.
 Die Fortschritte, welche der große Baumwuchs und der Anbau
-dicotyledonis«cher Gewächse in der Umgebung der Städte, zum
-Beispiel um Ealabozo und Pao, gemacht haben, beweisen, daß
+dicotyledonischer Gewächse in der Umgebung der Städte, zum
+Beispiel um Calabozo und Pao, gemacht haben, beweisen, daß
 man der Steppe Boden abgewinnen könnte, wenn man sie
 in kleinen Stücken angriffe, sie nach und nach von der Masse
-.abschlöße, sie durch Einschnitte und Bewässerungscanäle zer-
-stückte. Vielleicht gelänge es, den Einfluß der den Boden
-
-360
+abschlöße, sie durch Einschnitte und Bewässerungscanäle zerstückte.
+Vielleicht gelänge es, den Einfluß der den Boden
 ausdörrenden Winde zu verringern, wenn man im Großen,
-auf 15 bis 20 Morgen, Psidium, Croton, —Caffia, Tamarinden
-ansäete, Pflanzen, welche trockene, vffene Stellen lieben. Ich
+auf 15 bis 20 Morgen, Psidium, Croton, Cassia, Tamarinden
+ansäete, Pflanzen, welche trockene, offene Stellen lieben. Ich
 bin weit entfernt zu glauben, daß der Mensch je die Savanen
 ganz austilgen wird, und daß die Llanos, die ja als Weiden
-und für den Viehhandel so nutzbar sind, jemals- angebaut
+und für den Viehhandel so nutzbar sind, jemals angebaut
 seyn werden, wie die Thäler von Aragua oder andere den
-Küsten von Caracas und Cumana nahe gelegene Landstriche;-
-aber ich. bin überzeugt, daß ein beträchtliches Stück dieser
-Ebenen im Laufe der Jahrhunderte, unter einer den Gewerb-
-fleiß fördernden Regierung, das wilde Aussehen verlieren
-wird, das sie seit der ersten ,,Eroberung« durch die Europäer
+Küsten von Caracas und Cumana nahe gelegene Landstriche;
+aber ich bin überzeugt, daß ein beträchtliches Stück dieser
+Ebenen im Laufe der Jahrhunderte, unter einer den Gewerbfleiß
+fördernden Regierung, das wilde Aussehen verlieren
+wird, das sie seit der ersten »Eroberung« durch die Europäer
 behauptet haben.
-Dieser allmählige Wechsel, dieses Wachsen der Bevölke-
-rung werden nicht nur den Wohlstand dieser Länder steigern,
-sie werden auch auf die sittlichen und politischen Zustände gün-
-stigen Einfluß äußern. Die Llanos machen über zwei Dritt-
-theile des Stücks von Venezuela oder der alten 0apit-aufs.
-geneka1 von Caracas aus, das nördlich vom Orinoco und
-Rio Apure liegt. Bei bürgerlichen Unruhen dienen nun aber
-die Llanos durch ihre Oede und den Ueberfluß an Nahrungs-
-mitteln, die ihre zahllosen Herden liefern, der Partei, welche
-die Fahne des Aufruhrs entfalten will, zugleich als Schlupf-
-winkel und als Stützpunkt. Bewaffnete Banden (Guerillas)
-können sich darin halten und die Bewohner des Küstenlandes,
-des Mittelpunktes der Cultur und des Bodenreichthums, be-
-unruhigen. Wäre nicht der untere Orinoco durch den Patrio-
-tismus einer kräftigen, kriegsgewohnten Bevölkerung hinläng-
-lich vertheidigt, so wäre beim gegenwärtigen Zustand der
-L-lanos ein feindlicher Einfall auf den Westküsten doppelt
 
-361
-gefährlich. »Die Vertheidigung der Ebenen und spanisch Guhanas
+Dieser allmählige Wechsel, dieses Wachsen der Bevölkerung
+werden nicht nur den Wohlstand dieser Länder steigern,
+sie werden auch auf die sittlichen und politischen Zustände günstigen
+Einfluß äußern. Die Llanos machen über zwei Dritttheile
+des Stücks von Venezuela oder der alten <i>Capitania
+general</i> von Caracas aus, das nördlich vom Orinoco und
+Rio Apure liegt. Bei bürgerlichen Unruhen dienen nun aber
+die Llanos durch ihre Oede und den Ueberfluß an Nahrungsmitteln,
+die ihre zahllosen Herden liefern, der Partei, welche
+die Fahne des Aufruhrs entfalten will, zugleich als Schlupfwinkel
+und als Stützpunkt. Bewaffnete Banden (Guerillas)
+können sich darin halten und die Bewohner des Küstenlandes,
+des Mittelpunktes der Cultur und des Bodenreichthums, beunruhigen.
+Wäre nicht der untere Orinoco durch den Patriotismus
+einer kräftigen, kriegsgewohnten Bevölkerung hinlänglich
+vertheidigt, so wäre beim gegenwärtigen Zustand der
+Llanos ein feindlicher Einfall auf den Westküsten doppelt
+gefährlich. Die Vertheidigung der Ebenen und spanisch Guyanas
 hängen aufs Engste zusammen, und schon oben, wo von der
 militärischen Bedeutung der Mündungen des Orinoco die
-Rede war,1 habe ich gezeigt, daß die Festungswerke und die
-Batterien, womit man die Nordküste von Cumana bis Car-
-thagena gespickt hat, keineswegs die eigentlichen Bollwerke der
-vereinigten Provinzen von Venezuela sind. Zu diesem poli-
-tischen Interesse· kommt ein anderes, noch wichtigeres und
-danernderes. Eine erleuchtete Regierung kann nur mit Be
-dauern sehen, daß das Hirtenleben mit seinen Sitten, welche
+Rede war, habe ich gezeigt, daß die Festungswerke und die
+Batterien, womit man die Nordküste von Cumana bis Carthagena
+gespickt hat, keineswegs die eigentlichen Bollwerke der
+vereinigten Provinzen von Venezuela sind. Zu diesem politischen
+Interesse kommt ein anderes, noch wichtigeres und
+dauernderes. Eine erleuchtete Regierung kann nur mit Bedauern
+sehen, daß das Hirtenleben mit seinen Sitten, welche
 Faulheit und Landstreicherei so sehr befördern, auf mehr als
-zwei Dritttheilen ihres Gebiets herrscht. Der Theil der Küsten-
-bevölkerung, der jährlich in die Llanos abfließt, um sich in
-den dates de ganado2 niederzulassen und die Heerden zu
+zwei Dritttheilen ihres Gebiets herrscht. Der Theil der 
+Küstenbevölkerung, der jährlich in die Llanos abfließt, um sich in
+den <i>hatos de ganado</i>^[Eine Art Hof,
+bestehend aus Schuppen, wo die <i>hateros</i> und <i>peones
+para et rodeo</i> wohnen, d.&nbsp;h.
+die Leute, welche die halbwilden Pferde- und
+Viehheerden warten oder vielmehr beaussichtigen.]
+niederzulassen und die Heerden zu
 hüten, macht einen Rückschritt in der Cultur. Wer möchte
-bezweifeln, daß durch die Fortschritte des Ackerbaus,— durch
+bezweifeln, daß durch die Fortschritte des Ackerbaus, durch
 die Anlage von Dörfern an allen Punkten, wo fließendes
 Wasser ist, sich die sittlichen Zustände der Steppenbewohner
-wesentlich bessetn müssen? Mit dem Ackerbau müssen mildere
-Sitten, die Liebe zum festen Wohnsitz und die häuslichen Tu-
-genden ihren Einzng halten.
-Nach dreitägigem Marsch kam uns allmählig die Berg-
-kette von Cumana zu Gesicht, die zwischen den Llanos, oder,
-wie man hier oft sagen hört, »dem großen Meer von Grün«
-und der Küste des Meeres der Antillen liegt. Jst der Ber-
-gcmtin über 800 Toisen hoch, so kann man ihn, auch nur
-« S. Bd. 1V. Seite 218 ff. ·
-« Eine Art Hof, bestehend aus Schuppen, wo die dates-os und pour-es
-ps1- et rodeo wohnen, d. h. die Leute, welche die halbwilden Pferde- und
-Biehheerden warten oder vielmehr beaussichtigeu.
-« ,,l.os Llsnos soc: come un mai- de yet-bsIe.«
+wesentlich bessern müssen? Mit dem Ackerbau müssen mildere
+Sitten, die Liebe zum festen Wohnsitz und die häuslichen Tugenden
+ihren Einzug halten.
 
-MS -
-eine gewöhnliche Refraction von II« desBogens angenommen,
-auf 27 Seemeilen Entfernung sehen; « aber die Lustbeschassen-
-Hei: entzog uns reimt den scheuen Anblick dieser Damm.
+Nach dreitägigem Marsch kam uns allmählig die Bergkette
+von Cumana zu Gesicht, die zwischen den Llanos, oder,
+wie man hier oft sagen hört, »dem großen Meer von Grün«^[»<i>Los Llanos
+son como <b>un mar de yerbas</b>.</i>«]
+und der Küste des Meeres der Antillen liegt. Ist der Bergantin
+über 800 Toisen hoch, so kann man ihn, auch nur
+eine gewöhnliche Refraction von ¹⁄₁₄ des Bogens angenommen,
+auf 27 Seemeilen Entfernung sehen;^[S. Bd. I. Seite 51 ff.] aber
+die Luftbeschaffenheit
+entzog uns lange den schönen Anblick dieser Bergwand.
 Sie erschien zuerst wie eine Wolkenschicht, welche die Sterne
 in der Nähe des Pols beim Auf- und Untergang bedeckte;
-allmählig schien diese Dunsimasse größer zu werden, sich zu
-verdichten, sich bläulich zu färben, einen gezackten, festen Um-
-riß anzunehmen. Was der Seesahrer beobachtet, wenn er
+allmählig schien diese Dunstmasse größer zu werden, sich zu
+verdichten, sich bläulich zu färben, einen gezackten, festen Umriß
+anzunehmen. Was der Seefahrer beobachtet, wenn er
 sich einem neuen Lande nähert, das bemerkt der Reisende auch
-am Rande der Steppe.« Der Horizont fing an sich gegen
+am Rande der Steppe. Der Horizont fing an sich gegen
 Nord zu erweitern, und das Himmelsgewölbe schien dort nicht
 mehr in gleicher Entfernung auf dem grasbewachsenen Boden
 auszuruhen.
-Einem Llanero oder Steppenbewohner ist nur wohl,
-wenn er, nach dem naiven Volksausdruck, ,,überall um sich
-sehen kann.« Was uns·als ein bewachsenes, leicht gewelltes,
+
+Einem <b>Llanero</b> oder Steppenbewohner ist nur wohl,
+wenn er, nach dem naiven Volksausdruck, »überall um sich
+sehen kann.« Was uns als ein bewachsenes, leicht gewelltes,
 kaum hie und da hügligtes Land erscheint, ist für ihn ein
 schreckliches, von Bergen starrendes Land. Unser Urtheil
 über die Unebenheit des Bodens und die Beschaffenheit seiner
-Oberfläche ist ein durchaus relatives. Hat man mehrere Mo-
-nate in den .dichten Wäldern am Orinoco zugebracht, hat
+Oberfläche ist ein durchaus relatives. Hat man mehrere Monate
+in den dichten Wäldern am Orinoco zugebracht, hat
 man sich dort daran gewöhnt, daß man, sobald man vom
 Strome abgeht, die Sterne nur in der Nähe des Zenith und
-wie aus einem Brunnen heraus sehen kann, so hat eine Wan-
-derung über die Steppen etwas Angenehmes, Anziehendes.
-Die neuen Bilder, die man aufnimmt, machen großen Ein-
-druck; wie dem Llanero ist einem ganz wohl, »daß man so
-gut um sich sehen kann.« Aber dieses Behagen»(wir haben
-« S. Bd. 1. Sein 51 ff.
-
-363
-es an uns selbst erfahren) ist nicht von langer Dauer. Aller-
-dings hat der Anblick eines unabsehbaren Horizonts etwas
-Eknstes, Großartiges. Dieses Schauspiel erfüllt uns mit Be-
-wunderung, ob wir nun auf dem Gipfel der Anden und der
-Hoehalpen uns besinden, oder mitten auf dem unermeßlichen
-Oeean, oder auf den weiten Ebenen von Venezuela und Tu-
-cuman. Die Unermeßlichkeit des Raumes (die Dichter aller
-Zungen haben solches ausgesprochen) spiegelt sich in uns felbst
+wie aus einem Brunnen heraus sehen kann, so hat eine Wanderung
+über die Steppen etwas Angenehmes, Anziehendes.
+Die neuen Bilder, die man aufnimmt, machen großen Eindruck;
+wie dem Llanero ist einem ganz wohl, »daß man so
+gut um sich sehen kann.« Aber dieses Behagen (wir haben
+es an uns selbst erfahren) ist nicht von langer Dauer. Allerdings
+hat der Anblick eines unabsehbaren Horizonts etwas
+Ernstes, Großartiges. Dieses Schauspiel erfüllt uns mit Bewunderung,
+ob wir nun auf dem Gipfel der Anden und der
+Hochalpen uns befinden, oder mitten auf dem unermeßlichen
+Ocean, oder auf den weiten Ebenen von Venezuela und Tucuman.
+Die Unermeßlichkeit des Raumes (die Dichter aller
+Zungen haben solches ausgesprochen) spiegelt sich in uns selbst
 wieder; sie verknüpft sich mit Vorstellungen höherer Ordnung,
-sie weiter· die Seele dessen aus, der in der Stille einsamer
+sie weitet die Seele dessen aus, der in der Stille einsamer
 Betrachtung seinen Genuß findet. Allerdings aber hat der
-Anblick eines schranlenlosen Raumes an jedem Orte wieder
+Anblick eines schrankenlosen Raumes an jedem Orte wieder
 einen eigenen Charakter. Das Schauspiel, dessen man auf
-einem s·reistehenden Berggipfel genießt, wechselt, je nachdem
+einem freistehenden Berggipfel genießt, wechselt, je nachdem
 die Wolken, die auf der Niederung lagern, sich in Schichten
 ausbreiten, sich zu Massen ballen, oder den erstaunten Blick
-durch weite Ritzen auf die Wohnsitze des Menschen, das be-
-baute Land, den ganzen grünen Boden des Luftoreans nie-
-dertcruchen lassen. Eine ungeheure Wasserfläche, belebt bis auf
-den Grund von tausenderlei verschiedenen Wesen, nach Fär-
-bung und Anblick wechselnd,« beweglich an der Obersläche, gleich
+durch weite Ritzen auf die Wohnsitze des Menschen, das bebaute
+Land, den ganzen grünen Boden des Luftoceans niedertauchen
+lassen. Eine ungeheure Wasserfläche, belebt bis auf
+den Grund von tausenderlei verschiedenen Wesen, nach Färbung
+und Anblick wechselnd, beweglich an der Oberfläche, gleich
 dem Element, von dem sie aufgerührt wird, hat auf langer
-Seereise großen Reiz für die Einbildungslraft, aber die einen
-großen Theil des Jahrs» hindurch staubigte, aufgerissene Steppe
-stimmt trübe durch ihre ewige Eintönigkeit. Jst man nach
+Seereise großen Reiz für die Einbildungskraft, aber die einen
+großen Theil des Jahrs hindurch staubigte, aufgerissene Steppe
+stimmt trübe durch ihre ewige Eintönigkeit. Ist man nach
 acht- oder zehntägigem Marsch gewöhnt an das Spiel der
-Luftspiegelung und an das glänzende Grün der Mauritia-
-büsshe,I die von Meile zu Meile zum Vorschein lommen,»so
-« Die Fäc·herpalme, der guyanische Sag-Gaum.
-
-ZU-
-fühlt. man das·Bedürfniß mannigfaltigerer Eindrücke; -man
+Luftspiegelung und an das glänzende Grün der Mauritiabüsche,^[Die
+Fächerpalme, der guyanische Sagobaum.] die von Meile zu Meile
+zum Vorschein kommen, so
+fühlt man das Bedürfniß mannigfaltigerer Eindrücke; -man
 sehnt sich nach dem Anblick der gewaltigen Bäume der Tropen,
-des wilden Sturzes der Vergstrome, der Gelände und Thal-
-gründe, bebaut von der Hand des Landmann-T .-Wenn un-
-glücklicherweise das Phänomen :der afrikanischen Witwen und
-der Llanos oder Savanen der neuen Welt (ein Phanomen,
-dessen 1Irsache sich in dem Dunkel der frühesten Geschichte
-unseres Planeten verliert) noch einen größeren"Raum besaßte,
+des wilden Sturzes der Bergströme, der Gelände und Thalgründe,
+bebaut von der Hand des Landmanns. Wenn unglücklicherweise
+das Phänomen der afrikanischen Wüsten und
+der Llanos oder Savanen der neuen Welt (ein Phänomen,
+dessen Ursache sich in dem Dunkel der frühesten Geschichte
+unseres Planeten verliert) noch einen größeren Raum befaßte,
 so wäre die Natur um einen Theil der herrlichen, dem heißen
-Erdstrich eigenthümlicl)en Producte ärmer.1 Die nordischen
+Erdstrich eigenthümlichen Producte ärmer.^[Berechnungen nach
+Karten in sehr großem Maßstab haben mir
+Folgendes ergeben: Die Llanos von Cumana,
+Barceiona und Caracas vom
+Delta des Orinoco bis zum nördlichen
+Ufer des Apure umfassen 7900
+Quadratmeilen; die Llanos zwischen
+dem Apure und dem obern Amazonenstrom
+21,000; die Pampas nordwestlich von
+Buenos Ayres 40,000; die
+Pampas südwärts vom Parallel von
+Buenos Abtes 30,000. Der Gesammtflächenraum
+der grasbewachsenen Llanos in
+Südamerika beträgt demnach
+98,900 Quadratmeilen (20 auf den
+Grad des Aequators). (Spanien hat
+16,200 solcher Quadratmeilen.) Die
+große afrikanische Ebene, die sogenannte
+Sahara ist 194,000 Quadratmeilen groß,
+die verschiedenen Oasen dazu
+gerechnet, aber nicht Bornu und Darfur.
+(Das Mittel1neer hat nur 79,800
+Quadratmeilen Oberfläche).] Die nordischen
 Heiden, die Steppen an Wolga und Don sind kaum ärmer
-an Pflanzen und Thierarten als unter dem herrlichsten Him-
-mel der Welt, im Erdstrich der Bananen und des Brodfrucht-
-baums, 28,000 Quadratmeilen Savanen, die im Halbkreise
+an Pflanzen und Thierarten als unter dem herrlichsten Himmel
+der Welt, im Erdstrich der Bananen und des Brodfruchtbaums,
+28,000 Quadratmeilen Savanen, die im Halbkreise
 von Nordost nach Südwest, von den Mündungen des Orinoco
 bis zum Caqueta und Putumayo sich fortziehen. Der überall
-sonst -belebende Einfluß des tropischen Klima macht sich da
+sonst belebende Einfluß des tropischen Klima macht sich da
 nicht fühlbar, wo ein mächtiger Verein von Grasarten fast
 jedes andere Gewächs ausgeschlossen hat. Beim Anblick des
 Bodens, an Punkten, wo die zerstreuten Palmen fehlen,
 hätten wir glauben können in der gemäßigten Zone, ja noch
-" Berechnungen nach Karten in sehr großem Maßstab haben mir
-Folgendes ergeben: Die Llanoo von Enmana, Barceiona und Caraeas vom
-Delta des Orinoco bis zum nördlichen Ufer des Apnre umsassen 'i900
-O-uadratmeilen; die Llanos zwischen dem Apure und dem obern Ainazonen-
-strotn 21,000; die Pampao nordwestlich von Bnenos AVres 40,0c-0; die
-Pampas südwürts vom Parallel von Buenos Abtes 30,000. Der Gesammt-
-slüchenraum der grasbewachsenen Llanos in Südamerila beträgt demnach
-98,900 O«uadratmeilen (20 auf den Grad des Aequators). (Spanien bat
-16,200 solcher Quadratmeilen.) Die große asrikanische Ebene, die sogenannte
-Sahara ist 194,000 O«uadratmeilen groß, die verschiedenen Oasen dazu
-gerechnet, aber nicht Bornu und Darfur. (Das Mittel1neer hat nur 79,800
-Quadratn1eilen Oberflüche).
-
-.365 « - -
 viel weiter gegen Norden zu seyn; aber bei Einbruch der
 Nacht mahnten uns die schönen Sternbilder am Südhimmel
-(der (sentaur, Canopus, und die zahllosen Nebelslecken, von
+(der Centaur, Canopus, und die zahllosen Nebelflecken, von
 denen das Schiff Argo glänzt) daran, daß wir nur 8 Grade
-vom Aequator waren. » -«
+vom Aequator waren.
+
 Eine Erscheinung, auf die bereits Deluc aufmerksam
-geworden und an der sich in den letzten Jahren der Scharf-
-sinn der Geologen geübt hat, machte— uns auf der Reise durch
-die Steppen viel zu schaffen. Ich meine nicht die Urgebirgs-
-blöcke, die man (wie am .J11ra) am Abhang der Kalkgebirge
+geworden und an der sich in den letzten Jahren der Scharfsinn
+der Geologen geübt hat, machte uns auf der Reise durch
+die Steppen viel zu schaffen. Ich meine nicht die Urgebirgsblöcke,
+die man (wie am Jura) am Abhang der Kalkgebirge
 findet, sondern die ungeheuern Granit- und Syenitblöcke, die,
-innerhalb von der Natur-scharf gezogener Grenzen, im nörd-
-likhen· Holland und .Deutschland und· in den baltischen Ländern
+innerhalb von der Natur scharf gezogener Grenzen, im nördlichen
+Holland und Deutschland und in den baltischen Ländern
 zerstreut vorkommen. Es scheint jetzt bewiesen, daß diese wie
 strahlenförmig vertheilten Gesteine bei den alten Umwälzungen
 unseres Erdballs aus der scandinavischen Halbinsel gegen Süd
 herabgekommen sind, und daß sie nicht von den« Granitketten
-des Harze-S und in Sachsen stammen, denen sie nahe kommen,
-ohne indessen ihren Fuß zu erreichen. Ich bin auf den san-
-digten Ebenen der baltischen Länder geboren, und bis zu mei-
-nein- achtzehnten Jahre wußte ich, was eine Gebirg-Bart seh,
-nur von diesen zerstreuten Vlöcken her, und so mußte ich
-doppelt neugierig seyn, ob die neue Welt eine ähnliche Er-
-scheinung aufzuweisen habe. Und ich sah zu meiner«Ueber-
-raschung auch nicht einen einzigen Block der Art in den
-Llanoö von Venezuela, obgleich diese unermeßlichen Ebenen
+des Harzes und in Sachsen stammen, denen sie nahe kommen,
+ohne indessen ihren Fuß zu erreichen. Ich bin auf den sandigten
+Ebenen der baltischen Länder geboren, und bis zu meinem
+achtzehnten Jahre wußte ich, was eine Gebirgsart sey,
+nur von diesen zerstreuten Blöcken her, und so mußte ich
+doppelt neugierig seyn, ob die neue Welt eine ähnliche Erscheinung
+aufzuweisen habe. Und ich sah zu meiner Ueberraschung
+auch nicht einen einzigen Block der Art in den
+Llanos von Venezuela, obgleich diese unermeßlichen Ebenen
 gegen Süd unmittelbar von einem ganz aus Granit gebauten
-Bergstock1 begrenzt werden, der in seinen gezackten, fast säulen-
-· Die Siena Parime.
-
-sonnigen Gipseln die Spuren der getvaltigs’ien .8errüttung
-zeigt« Gegen Nord sind die Llanos von der Granitkette der
+Bergstock [Die Sierra Parime]
+begrenzt werden, der in seinen gezackten, fast säulenförmigen
+Gipfeln die Spuren der gewaltigsten Zerrüttung
+zeigt.^[S. Bd. III. Seite 54. 80. 83. 126. 145. 256. 303. IV. 148. 159.] Gegen
+Nord sind die Llanos von der Granitkette der
 Silla bei Caracas und von Portocabello durch eine Bergwand
 getrennt, die zwischen Villa de Cum und Pavapara aus
-Schiefergebirg, zwischen dem Bergcmtin und Taripe ans Kalk-
-siein besteht. Das Nichtvorhandenseyn von Rosen fiel mir
-ebenso an den Ufern des Amazonens1romes auf. Schon 8a
-Condamine hatte versichert, vom Pongo de Maus-ithe. bis
-zum Engpasse der Pan-gis sey auch nicht der kleinste Stein
-zu sinden. Das Becken des Mo Negro und des Amazonen-
-stromes ist aber auch nichts als ein Llano, eine Ebene wie
+Schiefergebirg, zwischen dem Bergantin und Caripe aus Kalkstein
+besteht. Das Nichtvorhandenseyn von Blöcken fiel mir
+ebenso an den Ufern des Amazonenstromes auf. Schon La
+Condamine hatte versichert, vom Pongo de Manseriche bis
+zum Engpasse der Pauxis sey auch nicht der kleinste Stein
+zu finden. Das Becken des Rio Negro und des Amazonenstromes
+ist aber auch nichts als ein <b>Llano</b>, eine Ebene wie
 die in Venezuela und Buenos Ayres, und der Unterschied
-besteht allein in der Art des Pflanzenwuchses." Die beiden
+besteht allein in der Art des Pflanzenwuchses. Die beiden
 Llanos am Nord- und am Südende von Südamerika sind
-mit Gras«bewachsen, es sind baumlose Grassluren; das da-
-zwischenliegende Llano, das am Amazonenstrom, welches im
-Striche der fast unaufhörliehen Aequatorialregen liegt, ist ein
+mit Gras bewachsen, es sind baumlose Grasfluren; das dazwischenliegende
+Llano, das am Amazonenstrom, welches im
+Striche der fast unaufhörlichen Aequatorialregen liegt, ist ein
 dichter Wald. Ich erinnere mich nicht gehört zu haben, daß
 auf den Pampas von Buenos Ayres oder auf den Savanen
-am Missouri « und in Neumexico Granitblöcke vorkommen.
+am Missouri^[Kommen in Nordamerika nordwärts von den
+großen Seen Blöcke vor?] und in Neumexico Granitblöcke vorkommen.
 Die Erscheinung scheint in der neuen Welt überhaupt ganz
-zu fehlen, und wahrscheinlich auch in der asrikanischen Sa-
-hara; denn die Gesteinmassen, welche mitten in der Wüste zu
-Tage kommen und deren die Reisenden häusig erwähnen, sind
+zu fehlen, und wahrscheinlich auch in der afrikanischen Sahara;
+denn die Gesteinmassen, welche mitten in der Wüste zu
+Tage kommen und deren die Reisenden häufig erwähnen, sind
 nicht mit bloßen zerstreuten Bruchstücken zu verwechseln. Aus
-diesen Beobachtungen scheint hervorzugehen, daß die scandi-
-navischen Granitblöcke, welche die sandigten Ebenen im Süden
+diesen Beobachtungen scheint hervorzugehen, daß die scandinavischen
+Granitblöcke, welche die sandigten Ebenen im Süden
 des baltischen Meeres, in Westphalen und Holland bedecken,
-« S. Bd. 1I1. Seite 54. 80. 8Z. 126. 145. 256. 303. lV. 148. 159.
-« Kommen in Nordamerika nordwärts von den großen Seen Blöde vor?
-
-367.
-von einer besondern, von Norden her nn5gebtochenen Wasser-
-slnth,voneinemreinörtlicheIcBorganghetrühreir. Das
-alte Eonglomernt (der rothe Sandsiein), das nach meinen
-Beobachtungen zum großen Theil die Llanoö von Benezuela
-nnd das Becken des Amazonenstromes bedeckt, schließt ohne
+von einer besondern, von Norden her eingebrochenen Wasserfluth,
+von einem rein örtlichen Vorgang herrühren. Das
+alte Conglomerat (der rothe Sandstein), das nach meinen
+Beobachtungen zum großen Theil die Llanos von Venezuela
+und das Becken des Amazonenstromes bedeckt, schließt ohne
 Zweifel Trümmer der Urgebirgsbildungen ein, aus denen die
-bamchbarten Berge bestehen; aber die Umwalzungen, von
+benachbarten Berge bestehen; aber die Umwälzungen, von
 denen diese Gebirge so deutliche Spuren aufzuweisen haben,
 scheinen nicht von den Umständen begleitet gewesen zu seyn,
-durch welche die Wegsührung dieser Blocke in weite Ferne
-begünstigt wurde. Diese geoguostische C«rscheimmg ist um so
-nnerwarteter, da sonst nirgends in der Welt eine Erdslåche
-vorkommt, die so eben wåreund sich so ohne alleUnter-
-brechung bis zum steilen Abhang einer ganz aus Granit auf-
-gebauten Co!-dillere sortzöge. Bereits vor meinem Abgang
+durch welche die Wegführung dieser Blocke in weite Ferne
+begünstigt wurde. Diese geognostische Erscheinung ist um so
+unerwarteter, da sonst nirgends in der Welt eine Erdfläche
+vorkommt, die so eben wäre und sich so ohne alle Unterbrechung
+bis zum steilen Abhang einer ganz aus Granit aufgebauten
+Cordillere fortzöge. Bereits vor meinem Abgang
 von Europa war mir ausgefallen, daß die Urgebirgsblöcke weder
-in der L-ombardei vorkommen, noch aus der großen bayetücheu
-Ebene, die ein alter, 25o steifen über dem Meeresipisgel
+in der Lombardei vorkommen, noch auf der großen bayerischen
+Ebene, die ein alter, 250 Toisen über dem Meeresspiegel
 liegender Seeboden ist. Diese Ebene wird gegen Nord vom
-Cranit der Oberpsalz, gegen Süd vom Alpenkalk, dem Ueber-
-gangDthons·hieser und Glimmerschiefer TyrolS begrenzt.
-Am W. Juli langten wir in der Stadt Nueva Bark-
-lona an, weniger angegriffen von der Hitze in den Ll·anos,
-en die wir längst gewöhnt waren, als von den Sandwinden,
-die auf die Länge schmerzhafte Schrauben in der Haut ver-
-Ursachen. Vor sieben Monaten hatten wir aus dem Wege
-von Cumana nach CaI-aus ein paar Stunden am Morro
-von Barcelona angelegt, einem befestigten Felsen, der dem
-Dorfe Pozuelos zu nur durch eine Landzunge mit dem Fest-
-lande zusammenhängt. Im Hause eines reichen Handelsmanns
+Granit der Oberpfalz, gegen Süd vom Alpenkalk, dem 
+Uebergangsthonschiefer und Glimmerschiefer Tyrols begrenzt.
 
-368
-von französischer Abkunft, Don.Pedro Lavie," fanden ·wir
-die s-reundlichste Aufnahme -und Alles, was zuvorkominende
-Gastfreundschaft bieten kann. Lavie war Uchuldigt worden,
-den uug1ück1ichen Espc-fis-, als ex is« Jahr I-ge fah an
+Am 23. Juli langten wir in der Stadt Nueva Barcelona
+an, weniger angegriffen von der Hitze in den Llanos,
+an die wir längst gewöhnt waren, als von den Sandwinden,
+die auf die Länge schmerzhafte Schrunden in der Haut verursachen.
+Vor sieben Monaten hatten wir auf dem Wege
+von Cumana nach Caracas ein paar Stunden am <b>Morro</b>
+von Barcelona angelegt, einem befestigten Felsen, der dem
+Dorfe Pozuelos zu nur durch eine Landzunge mit dem Festlande
+zusammenhängt. Im Hause eines reichen Handelsmanns
+von französischer Abkunft, Don Pedro Lavie, fanden wir
+die freundlichste Aufnahme und Alles, was zuvorkommende
+Gastfreundschaft bieten kann. Lavie war beschuldigt worden,
+den unglücklichen España, als er im Jahr 17096 sich als
 Flüchtling auf dieser Küste befand, aufgenommen zu haben,
 und wurde auf Befehl der Audiencia aufgehoben und nach
-Caracas ins Gefängniß geführt. Die Freundschaft des Statt-
-halters von Cumana und die Erinnerung an die Dienste,
+Caracas ins Gefängniß geführt. Die Freundschaft des Statthalters
+von Cumana und die Erinnerung an die Dienste,
 die er dem aufkeimenden Gewerbfleiß des Landes geleistet,
-verhalfen ihm wieder zur Freiheit- Wir hatten ihn im Gi-
-fängniß besucht und uns bemüht ihn zu zerstreuen; jetzt hatten
+verhalfen ihm wieder zur Freiheit. Wir hatten ihn im Gefängniß
+besucht und uns bemüht ihn zu zerstreuen; jetzt hatten
 wir die Freude, ihn wieder im Schooße seiner Familie zu
 finden. Seine physischen Leiden hatten sich durch die Haft
-verschlimmert, und er erlag, bevor« der Tag der Unabhängig-
-keit Amerikas angebrochen war, den sein Freund Don Josef
-Espaf1a bei seiner Hinrichtung verkündigt hatte. »Ich sterbe,«
-sprach dieser Mann, ein Mann, wie geschaffen zur Durch-
-führung großer Unternehmungen-, ,,ich sterbe eines schimpf-
-licher: Todes; aber in Kurzem werden meine Mitbürger mit
-E-hrfurcht meine Asche sammeln und mein Name wird mit
+verschlimmert, und er erlag, bevor der Tag der Unabhängigkeit
+Amerikas angebrochen war, den sein Freund Don Josef
+España bei seiner Hinrichtung verkündigt hatte. »Ich sterbe,«
+sprach dieser Mann, ein Mann, wie geschaffen zur Durchführung
+großer Unternehmungen, »ich sterbe eines schimpflichen
+Todes; aber in Kurzem werden meine Mitbürger mit
+Ehrfurcht meine Asche sammeln und mein Name wird mit
 Ehren genannt werden.« Diese merkwürdigen Worte wurden
-am 8. Mai 1799 auf dem großen Platze zu Caracas ge
-sprochen; sie wurden mir noch im selben Jahr von Leuten
-mitgetheilt, von denen manche Espafias Absichten so sehr ver-
-abscheuten, als andere sein Loos betrauerten. -
-Schon oben! war von der Bedeutung des Handels von
-Nueva Barcelona die Rede. Die kleine Stadt, die im Jahr
-1790 kaum 10,00() Einwohner, im Jahr 1800 über 16,000
-« S- Bd. II. Seite 90.
+am 8.&nbsp;Mai 1799 auf dem großen Platze zu Caracas gesprochen;
+sie wurden mir noch im selben Jahr von Leuten
+mitgetheilt, von denen manche Españas Absichten so sehr verabscheuten,
+als andere sein Loos betrauerten.
 
-369 '
+Schon oben^[S. Bd. II. Seite 90.]
+war von der Bedeutung des Handels von
+Nueva Barcelona die Rede. Die kleine Stadt, die im Jahr
+1790 kaum 10,000 Einwohner, im Jahr 1800 über 16,000
 hatte, wurde 1637 von einem catalonischen Conquistador,
-Juan Urpin, gegründet. Man versuchte damals, aber ver-
-geblich, der ganzen Pkovinz den Namen Neu-Cata-lonien
+Juan Urpin, gegründet. Man versuchte damals, aber vergeblich,
+der ganzen Provinz den Namen <b>Neu-Catalonien</b>
 zu geben. Da auf unsern Karten häufig zwei Städte statt
 Einer, Barcelona und Cumanagoto, angegeben sind, oder
 man diese zwei Namen für gleichbedeutend hält, so erscheint
-es nicht nutzlos,’ die Quelle dieses Jrrthums hier anzugeben.
-An der Mündung des Rio Neveri stand früher eine india-
-nische, von Lucas Faxardo im Jahr 1588 gebaute Stadt,
-unter dem Namen San Cristoval de los C-umanagotos.
+es nicht nutzlos, die Quelle dieses Irrthums hier anzugeben.
+An der Mündung des Rio Neveri stand früher eine <b>indianische</b>,
+von Lucas Faxardo im Jahr 1588 gebaute Stadt,
+unter dem Namen <b>San Cristoval de los Cumanagotos</b>.
 Dieselbe war nur von Eingeborenen bewohnt, die von den
 Salzwerken bei Apaicuare hieher gezogen waren. Im Jahr
 1637 gründete Urpin zwei Meilen herwärts vom innern
 Lande mit einigen Einwohnern von Cumanagoto und vielen
-Cataloniern die spanische Stadt Nueva Varcelona. Vier-
-unddreißig Jahre lang lagen die Nachbargemeinden in bestän-
-digem Streit, bis im Jahr 1671 der Statthalter Angulo es
-dahin brachte, daß sie sich an einer dritten Baustelle vereinig-
-ten, wo nunmehr die Stadt Barcelona steht, die nach meinen
-Beobachtungen unter dem 100 S« 52« der Breite liegt. Die
-alte Stadt Cumanagoto ist im Lande vielberusen wegen eines
-wunderthätigen·Bildes der h. J-ungfrau,1 das, wie die In-
-dianer erzählen, im hohlen Stamm eines T-utumo, oder
-alten ’Flaschenkürbisbaums (Ck(-,seentja 0ujet(-) gesunden
+Cataloniern die <b>spanische Stadt</b> Nueva Barcelona. Vierunddreißig
+Jahre lang lagen die Nachbargemeinden in beständigem
+Streit, bis im Jahr 1671 der Statthalter Angulo es
+dahin brachte, daß sie sich an einer dritten Baustelle vereinigten,
+wo nunmehr die Stadt Barcelona steht, die nach meinen
+Beobachtungen unter dem 10°6′52″ der Breite liegt. Die
+alte Stadt Cumanagoto ist im Lande vielberufen wegen eines
+wunderthätigen Bildes der h.&nbsp;Jungfrau,^[<i>La milagrosa
+imagen de Maria Santissima del Socorro</i>, auch
+<i>Virgen del Tutumo</i> genannt.] das, wie die Indianer
+erzählen, im hohlen Stamm eines <b>Tutumo</b>, oder
+alten Flaschenkürbisbaums (<i>Crescentia Cujete</i>) gefunden
 worden ist. Dasselbe wurde in Procession nach Neu-Barcelona
 gebracht; aber so oft die Geistlichkeit mit den Bewohnern der
 neuen Stadt unzufrieden war, entfloh es bei Nacht und kehrte
 in den Baumstamm an der Mündung des Flusses zurück.
-« L- milagt·osa jungen de blau-in santissims del socok1-o, auch
-VI-get- del ’l’ats1mo genannt.
-Ost-!-oldt, Reise. IV. TÄ-
-. · (
-
-Mc)
-Dieses Wunder hörte nicht eher auf,- als bis man den Mön-
-chen von der Regel des- heiligen»Franciscus ein großes Kloster
+Dieses Wunder hörte nicht eher auf, als bis man den Mönchen
+von der Regel des heiligen Franciscus ein großes Kloster
 (das Collegium der Propaganda) gebaut hatte. Wir haben
-oben gesehen, daß der Bischof·von Caracas in einem ähnlichen
-F(-11 das Bin- uns«-se: lieben -F-can de los Va1euei«-ice in
-die bischöflichen Archive bringen- ließ-, und daß es dort dreißig
-Jahre unter Siegel blieb. - -
+oben gesehen, daß der Bischof von Caracas in einem ähnlichen
+Fall das Bild Unserer lieben Frau de los Valencianos in
+die bischöflichen Archive bringen ließ, und daß es dort dreißig
+Jahre unter Siegel blieb.
+
 Das Klima von Barcelona ist nicht so heiß als das von
 Cumana, aber feucht und in der Regenzeit etwas ungesund.
 Bonpland hatte die beschwerliche Reise über die Llanos ganz
-gut ausgehauen; er war wieder.ganz bei Kräften und seine
+gut ausgehalten; er war wieder ganz bei Kräften und seine
 große Thätigkeit die alte; ich dagegen war in Barcelona
-unwohler als in Angostura, unmittelbar nachdem «die Reise
-aus den Flüssen hinter uns ·lag. Einer der tropischen Regen,
-bei denen bei Sonnenuntergang weit auseinander außeror-
-dentlich große Tropfen fallen, hatte mir ein Umvohlseyn zu-
-gezogen, das einen Anfall des Typhus, der eben auf der
+unwohler als in Angostura, unmittelbar nachdem die Reise
+auf den Flüssen hinter uns lag. Einer der tropischen Regen,
+bei denen bei Sonnenuntergang weit auseinander außerordentlich
+große Tropfen fallen, hatte mir ein Unwohlseyn zugezogen,
+das einen Anfall des Typhus, der eben auf der
 Küste herrschte, befürchten ließ. Wir verweilten fast einen
 Monat in Barcelona, im Genuß aller Bequemlichkeiten, welche
-die aufinerksamste Freundschaft bieten kann. Wir trafen hier
-auch wieder den trefflichen Ordensmann, Fray Juan Gou-
-zales, dessen ich schon oft erwähnt habe, und der vor uns
+die aufmerksamste Freundschaft bieten kann. Wir trafen hier
+auch wieder den trefflichen Ordensmann, Fray Juan Gouzales,
+dessen ich schon oft erwähnt habe, und der vor uns
 am obern Orinoco gewesen war. Er bedauerte, und mit
-Recht, -daß wir auf den Besuch dieses unbekannten Landes
+Recht, daß wir auf den Besuch dieses unbekannten Landes
 nur so wenige Zeit hatten verwenden können; er musterte
-unsere Pflanzen und Thiere-mit dem Interesse, das auch der
-Ungebildetste für die»Produkte eines Landes hat, wo er lange
-gelebt. Fray Juan hatte beschlossen, nach Europa zurückzu-
-kehren und uns dabei bis auf die Insel Cuba zu begleiten.
+unsere Pflanzen und Thiere mit dem Interesse, das auch der
+Ungebildetste für die Produkte eines Landes hat, wo er lange
+gelebt. Fray Juan hatte beschlossen, nach Europa zurückzukehren
+und uns dabei bis auf die Insel Cuba zu begleiten.
 Wir blieben fortan sieben Monate beisammen; der Mann war
-
-!
-- «
-. I
-371
-munter-, geistreich und dienstsertig. Wer mochte ahnen, welches
-Unglück seiner wartete! Er -nahm einen Theil unserer Samm-
-lungen mit; ein gemeinschastlicher Freund vertraute ihm ein
-Kind an, das man- in Spanien erziehen lassen wollte; die
+munter, geistreich und dienstfertig. Wer mochte ahnen, welches
+Unglück seiner wartete! Er nahm einen Theil unserer Sammlungen
+mit; ein gemeinschastlicher Freund vertraute ihm ein
+Kind an, das man in Spanien erziehen lassen wollte; die
 Sammlungen, das Kind, der junge Geistliche, Alles wurde
 von den Wellen verschlungen.
-«swei Meilen südostwärts von Nueva-Barcelona erhebt
-sich eine hohe Bergkette, die -sich an den Cerro del Bergantin
-lehnt, -den·man von Cumana aus sieht.« Der Ort ist unter
-dem Namen«Ag-uns oa1ient-es bekannt. Als ich mich gehörig
-hergestellt fühlte, unternahmen wir an einem frischen, neb-
-ligten,· Morgen einen Ausflug dahin? «« Das mit Schwefel-
-wasserftoff geschwängerte Wasser kommt aus einem qu«arzigen
+
+Zwei Meilen südostwärts von Nueva Barcelona erhebt
+sich eine hohe Bergkette, die sich an den Cerro del Bergantin
+lehnt, den man von Cumana aus sieht.^[S. Bd. I. Seite 212. IV. 350.]
+Der Ort ist unter
+dem Namen <i>Aguas calientes</i> bekannt. Als ich mich gehörig
+hergestellt fühlte, unternahmen wir an einem frischen, nebligten,
+Morgen einen Ausflug dahin. Das mit Schwefelwasserstoff
+geschwängerte Wasser kommt aus einem quarzigen
 Sandstein, der demselben dichten Kalkstein ausgelagert ist, den
-wir beim M-Irro untersucht hatten. Die Temperatur desselben
-ist nur 430 L (bei einer Lufttemperatur -von 270); es fließt
+wir beim Morro untersucht hatten. Die Temperatur desselben
+ist nur 43°2 (bei einer Lufttemperatur von 27°); es fließt
 zuerst vierzig Toisen weit über den Felsboden, stürzt sich
 dann in eine natürliche Höhle, dringt durch den Kalkstein
 und kommt am Fuß des Berges, am linken Ufer des kleinen
 Flusses Narigual wieder zu Tage. Durch die Berührung mit
 dem Sauerstoff der Luft schlagen die Quellen viel Schwefel
-nieder. Die Luftblasen, welche sich stoßweise aus den Ther-
-men entwickeln, habe ich hier nicht gesammelt, wie in Ma-
-riara. Sie enthalten ohne Zweifel viel Stickstofs, weil der
+nieder. Die Luftblasen, welche sich stoßweise aus den Thermen
+entwickeln, habe ich hier nicht gesammelt, wie in Mariara.
+Sie enthalten ohne Zweifel viel Stickstoff, weil der
 Schwefelwasserstoff das in der Quelle aufgelöste Gemenge von
 Sauerstoff und Stickstoff zersetzt. Die Schwefelwasser von
 San Juan, die wie die am Bergantin aus dem Kalkstein
-kommen, haben auch nur eine geringe Temperatur (310 3),
-« S. Bd. I. Seite 2l2. IV. 350.
-
-I
-· -
-3»72
-während im selben Landstrieh die Schwefelwasser von Mariens
-und las Txiuche«kc«s (k-ei Port»-qbeno), die unmittelbar aus
-dem granitischen Gneiß kommen, 580 I und 90««’ 4 heiß sind.!
+kommen, haben auch nur eine geringe Temperatur (31°3),
+während im selben Landstrich die Schwefelwasser von Mariara
+und las Tricheras (bei Portocabello), die unmittelbar aus
+dem granitischen Gneiß kommen, 58°9 und 90°4 heiß sind.^[S. Bd. II. Seite 298 ff. 318.]
 Es ist als ob die Wärme, welche die Quellen im Erdinnern
-angenommen, abuähme, je weiter sie aus dem Urgebirge in
-die aufgelagerten secundären Formationen gelangen. -
-Unser Ausflug zu den Agnus (-a1ie«ntes am Bergantin
+angenommen, abnähme, je weiter sie aus dem Urgebirge in
+die aufgelagerten secundären Formationen gelangen.
+Unser Ausflug zu den <i>Aguas calientes</i> am Bergantin
 endete mit einem leidigen Unfall. Unser Gastfreund hatte
-uns seine schönsten Reitpferde gegeben. Man hatte uns zu-
-gleich getvarnt, nicht durch den kleinen Fluß Narigual zu
+uns seine schönsten Reitpferde gegeben. Man hatte uns zugleich
+gewarnt, nicht durch den kleinen Fluß Narigual zu
 reiten. Wir gingen daher über eine Art Brücke oder vielmehr
 an einander gelegte Baumstämme, und ließen unsere Pferde
 am Zügel hinüberschwimmen. Da verschwand das meinige
 auf einmal; es schlug noch eine Weile unter dem Wasser um
-sich, aber trotz alles Suchens konnten wir nicht aussindig
+sich, aber trotz alles Suchens konnten wir nicht ausfindig
 machen, was den Unfall veranlaßt haben mochte. Unsere
 Führer vermutheten, das Thier werde von den Caymans,
-die hier sehr häufig sind, an den Beinen gepackt worden sehn.
-Meine Verlegenheit war sehr groß; denn bei dem ,Zartgesühl
+die hier sehr häufig sind, an den Beinen gepackt worden seyn.
+Meine Verlegenheit war sehr groß; denn bei dem Zartgefühl
 und dem großen Wohlstand unseres Gastfreundes konnte ich
 kaum daran denken, ihm einen solchen Verlust ersetzen zu
 wollen. Lavie ging unsere Betroffenheit näher als der Verlust
 seines Pferdes, und er suchte uns zu beruhigen, indem er,
 wohl mit Uebertreibung, versicherte, wie leicht man sich in
 den benachbarten Savanen schöne Pferde verschaffen könne.
+
 Die Krokodile sind im Rio Neveri groß und zahlreich,
 besonders der Mündung zu; im Ganzen aber sind sie nicht
 so bösartig als die im Orinoco. In der Gemüthsart dieser
-« S. Bd. 1I. Seite 298 ff. 318.
-
-· 373
 Thiere beobachtet man in Amerika dieselben Contraste wie in
-Egyh)ten und Nubien, wie man deutlich sieht, wenn man die
-Berichte des unglücklichen Burckhard und die BelzoniS auf-
-merksam vergleicht. Nach dem C-ulturzusiand der verschiedenen
+Egypten und Nubien, wie man deutlich sieht, wenn man die
+Berichte des unglücklichen Burckhard und die Belzonis aufmerksam
+vergleicht. Nach dem Culturzustand der verschiedenen
 Länder, nach der mehr oder weniger dichten Bevölkerung in
-de: Ruhe de: Frasse zudem sich auch die Sitten diese: großen
-Saurier, die aus trockenem Lande schüchtern sind und vor dem
+der Ruhe der Flüsse ändern sich auch die Sitten dieser großen
+Saurier, die auf trockenem Lande schüchtern sind und vor dem
 Menschen sogar im Wasser fliehen, wenn sie reichliche Nahrung
-haben und der Angriss mit einiger Gefahr verbunden ist. In
-Nueva Barcelona sieht man die ,Indianer das Holz auf son-
-derbare Weise zu Markt bringen. Große Scheite von Zygo-
-phyllum und Cäsalpinia werden in den Fluß geworfen; sie
+haben und der Angriff mit einiger Gefahr verbunden ist. In
+Nueva Barcelona sieht man die Indianer das Holz auf sonderbare
+Weise zu Markt bringen. Große Scheite von Zygophyllum
+und Cäsalpinia werden in den Fluß geworfen; sie
 treiben mit der Strömung fort und der Eigenthümer mit
 seinen ältesten Söhnen schwimmt bald hier bald dorthin, um
 die Stücke, die in den Krümmungen des Flusses stecken bleiben,
-wieder flott zu machen.  den meisten amerikanischen Flüssen,
-in denen Krokodile vorkommen, verböte sich ein solches Ver-
-fahren von selbst. Die Stadt Barcelona hat nicht, wie Cu-
-mana, eine indianische Vor-stadt, und sieht man hie und da
+wieder flott zu machen. In den meisten amerikanischen Flüssen,
+in denen Krokodile vorkommen, verböte sich ein solches Verfahren
+von selbst. Die Stadt Barcelona hat nicht, wie Cumana,
+eine indianische Vorstadt, und sieht man hie und da
 einen Indianer, so sind sie aus den benachbarten Missionen,
 oder aus den über die Ebene zerstreuten Hütten. Beide sind
-nicht von cataibisshem Stamm, sondern ein Mischvolk von
+nicht von cataibischem Stamm, sondern ein Mischvolk von
 Cumanagotos, Palenques und Piritus, von kleinem Wuchs,
 untersetzt, arbeitsscheu und dem Trunk ergeben. Der gegohrene
-Manier ist hier das beliebteste Getränk; der Palmwein, den
-man am Orinoco hat, ist an den Küsten so gut wie unbe-
-kannt. Es ist merkwürdig, wie in den verschiedenen Erdstrichen
+Manioc ist hier das beliebteste Getränk; der Palmwein, den
+man am Orinoco hat, ist an den Küsten so gut wie unbekannt.
+Es ist merkwürdig, wie in den verschiedenen Erdstrichen
 der Mensch, um den Hang zur Trunkenheit zu befriedigen,
 nicht nur alle Familien monocotyledonischer und dicotyledonischer
-Gewächse hetbeizieht, sondern sogar den giftigen Fliegenschwamm
-
-374 ·
-(Am-mirs muscarie), von ·dem die .Korickilen-denselben Saft
+Gewächse herbeizieht, sondern sogar den giftigen Fliegenschwamm
+(<i>Amanita muscaria</i>), von dem die Koriäken denselben Saft
 zu wiederholten malen fünf Tage hinter einander trinken,
-worauf sie aus elelhafter Sparsamkeit» gekommen sind. «
-Die Paketboote (oorkeoe), die».von Corunna nach der
+worauf sie aus ekelhafter Sparsamkeit gekommen sind.^[Langsdorf
+(Wetterauisches Journal. Th I. Seite 254) hat diese sehr
+merkwürdige physiologische Erscheinung
+zuerst bekannt gemacht. Ich beschreibe
+sie hier, doch lieber lateinisch. —
+<i>Coriaecorum gens, in ora Asiae septentrioni
+opposita, potum sibi excogitavit
+ex succo inebriante Agarici
+muscarii, qui succus (aeque ut
+asparagorum), vel per humanum
+corpus transfusus, temulentiam
+nihilominus facit. Quare gens misera
+et inops, quo rarius mentis sit
+suae, propriam urinam bibit.
+identidem; continuoque mingens
+rursusqne hauriens eundem succum
+(dicas, ne ulla in parte mundi
+desit. ebrietas) pauculis agaricis
+producere in diem quintum temulentiam potest.</i>]
+Die Paketboote (<i>correos</i>), die von Corunna nach der
 Havana und nach Mexico laufen, waren seit drei Monaten
-ausgeblieben. Man vermuthete, sie» seyen von den englischen
-Kreuz-ern aufgebracht :worden. Da wir Eile hatten, nach
+ausgeblieben. Man vermuthete, sie seyen von den englischen
+Kreuzern aufgebracht worden. Da wir Eile hatten, nach
 Cumana zu kommen, um mit der ersten Gelegenheit nach
 Vera Cruz gehen zu können, so mietheten wir (am 26. August
 1800) ein Canoe ohne Verdeck (Lancha). Solcher Fahrzeuge
 bedient man sich gewöhnlich in diesen Strichen, wo ostwärts
-vom Cap Codera die See fast nie unruhig ist. Die -Lancha
-war mit Cacao «beladen und trieb Schleichhandel mit der
+vom Cap Codera die See fast nie unruhig ist. Die Lancha
+war mit Cacao beladen und trieb Schleichhandel mit der
 Insel Trinidad. Gerade deßhalb glaubte der Eigner von den
 feindlichen Fahrzeugen, welche damals alle spanischen Hafen
 blokirten, nichts zu fürchten zu haben. Wir schifften unsere
 Pflanzensammlungen, unsere Instrumente und unsere Affen ein
 und hofften bei herrlichem Wetter eine ganz kurze Ueberfahrt
-von der Mündung des Nin Neveri nach Cumana zu haben;
+von der Mündung des Rio Neveri nach Cumana zu haben;
 aber kaum waren wir im engen Canal zwischen dem Festland
 und den Felseneilanden Borracha und Chimanas, so stießen wir
-zu unserer großen Ueberraschung auf ein bewafsnetes Fahrzeug,
-· Langedorf (Wetterauisches J-urual. Th I. Seite 254) hat diese sehr
-merkwürdige physiologischc Erscheinung zuerst bekannt gemacht. Ich beschreibe
-sie hier, doch lieber lateinisch. — c0kinecorun- gerne, in o-a Asice sen—
-tent1-i0ni 0pposjta, p0t-am sibi exeogitavit ex suceo ineb1·ia nie Ase!-sei
-tnuscin·ü, qui succus (aeque at ospaksgo1«um), I-e1 per humenuni
-e0k·pas t«ksnst’usus, temu1entiatn nil1ilominus theils. Quote gen- mi-
-se1·a et inOps, qno 1·n1·ius mentis sit Sude, pkopI-ihn- u1·ina1n bibit.
-identidem; c0nünuoque mingens km-snsqne hsurienS enndetn sn(:eum
-(djcaS, ne ulla in parte mundj (1esit. ebkiet-is) pnucnlis qga1-feig
-produce!-e in dient quint.nn1 tecnulentiam potest.
+zu unserer großen Ueberraschung auf ein bewaffnetes Fahrzeug,
+das uns anrief und zugleich auf große Entfernung einige
+Flintenschüsse auf uns abfeuerte. Es waren Matrosen, die zu
+einem Caper aus Halifax gehörten, und unter ihnen erkannte
+ich an der Gesichtsbildung und der Mundart einen Preußen,
+aus Memel gebürtig. Seit ich in Amerika war, hatte ich
+nicht mehr Gelegenheit gehabt, meine Muttersprache zu sprechen,
+und ich hätte mir wohl einen erfreulicheren Anlaß dazu gewünscht.
+Unser Protestiren half nichts und man brachte uns
+an Bord des Capers, der that, als ob er von den Pässen,
+die der Gouverneur von Trinidad für den Schmuggel ausstellte,
+nichts wüßte, und uns für gute Prise erklärte. Da ich
+mich im Englischen ziemlich fertig ausdrücke, so ließ ich mich
+mit dem Capitän in Unterhandlungen ein, um nicht nach
+Neuschottland gebracht zu werden; ich bat ihn, mich an der
+nahen Küste ans Land zu setzen. Während ich in der Cajüte
+meine und des Eigners des Canoes Rechte zu verfechten suchte,
+hörte ich Lärm auf dem Verdeck. Einer kam und sagte dem
+Capitän etwas ins Ohr. Dieser schien bestürzt und ging
+hinaus. Zu unserem Glück kreuzte auch eine englische Corvette
+(die Sloop <b>Hawk</b>) in diesen Gewässern. Sie hatte durch
+Signale den Capitän des Capers zu sich gerufen, und da
+dieser sich nicht beeilte Folge zu leisten, feuerte sie eine Kanone
+ab und schickte einen Midshipman zu uns an Bord. Dieser
+war ein sehr artiger junger Mann und machte mir Hoffnung,
+daß man das Canoe mit Cacao herausgeben und uns des
+andern Tags werde weiter fahren lassen. Er schlug mir zugleich
+vor, mit ihm zu gehen, mit der Versicherung, sein
+Commandant, Capitän Garnier von der königlichen Marine,
+werde mir ein angenehmeres Nachtlager anbieten, als ich auf
+einem Fahrzeug aus Halifax fände.
 
--3'«'-3
-ds5·sItaIt·IeitMss-·cIeitInIigroßeTntferttung einige
-Its-III· anfing- ak5eIerte. Cz traten Matt-vfen, die zu
-eine-Esset -5L3att’iax geh'-riet, und unter ihnen erkannte
-ich on der CeüiIt.sl-icdII-; und der Baudert einen Preußen,
-est II  Seit ich in Amerika war, l)atte1’ch
-nicht -la· cela;-bei! get-l-t, -eine Muttersprache zu sprechen,
-up ich hätte mit tot-c einen  Anlaß dazu ge-
-Iinjti;t. Unser It-steikiren half niekts· und man brachte uns
-snsoIvde5CakasS,det-that, als eher von denPässen,
-die der Connecticut ten TrinEt-ad für den -Schmuggel aug-
-IIte, siehst-t·tßte, und Ins E:ir gute Prife erklärte. Da ich
--ichs- Englischen ziemlich fertig ans·-drticke, so ließ ich mich
-sit de-I Tat-it-in in Unterhandlungen ein, tun nicht nach
-I-J(-ttlandgel-rathtz1cnserden:icbbatihn, michandek
-nah-eI.IüiennSLand zu seyen. 22åbrend ich in derCajüte
-Ieise und les Eigners des Eanoes Rechte zu verfechten suchte,
-!-örtei0LeikstanidemVerdeck. Einerkam undfagtedem
-C«-III est-as ins Ll·-r. ·«-Dieser schien bestürzt und ging
-bittend. Z- Unserem Glitt kratzte auch eine englische Cur:-ette
-Wie Sinon Hand- in diesen Gen-åüern. Sie hatte durch
-Signale den Tat-it-in des C:-r-ers zu sich gerufen, und da
-dieser ü0 sieht heilte Folge zu leisten, ienerte sie eine .Ianone
-ab und schiffe einen Midihi:t-man zu uns an Bord. Dieser
-IIIk ein sehr artig« junger Mann und matt«-te mir Hoffnung,
-daß Ist das Eunoe mit C-irae heran?-«1ebe-n und uns des
-andern Tags werde weiter fahren lasen. Er in-lag mir zu-
-gleich vor, mit il·-m zu geben, mit der Venitdentng. sein
-Erstaunt«-nt, Caritas! (s3arnier von der ki-niglick-en Mantiss
-IIetde mir ein angenehtneres Nachtlager anbieten. als ich -I!
-einem Fahrzeug ans Halüax fand-. -
-
-. 376 - "
 Ich nahm das freundliche Anerbieten an und wurde von
 Capitän Garnier aufs höflichste ausgenommen. Er hatte mit
-Vancouver die Reise an die Nordwest!ilste gemacht, und Alle-I,
-was ich ihm von den großen .Katarakten-bei Atures und May-
-pnres, von der Gabeltheilung· des Orinoco und von seiner
-Verbindung mit dem Amazonenstrom erzählte, schien ihn hoch-·
-lich zu interessiren. Er nannte mir unter feinen Offteieren
+Vancouver die Reise an die Nordwestküste gemacht, und Alles,
+was ich ihm von den großen Katarakten bei Atures und Maypures,
+von der Gabeltheilung des Orinoco und von seiner
+Verbindung mit dem Amazonenstrom erzählte, schien ihn höchlich
+zu interessiren. Er nannte mir unter seinen Officieren
 mehrere, die mit Lord Macartney in China gewesen waren.
-Seit einem Jahre war ich nicht mehr mit so vielen unter-
-richteten Männern beisammen gewesen. Man war aus den
-englischen Zeitungen über den Zweck meiner Reise im Allg-
-meinen unterrichtet; man bewies mir großes Zutrauen und
+Seit einem Jahre war ich nicht mehr mit so vielen unterrichteten
+Männern beisammen gewesen. Man war aus den
+englischen Zeitungen über den Zweck meiner Reise im Allgemeinen
+unterrichtet; man bewies mir großes Zutrauen und
 ich erhielt mein Nachtlager im Zimmer des Capitäns. Beim
-Abschied wurde ich mit den Iahrgängen der astronomischen
+Abschied wurde ich mit den Jahrgängen der astronomischen
 Ephemeriden beschenkt, die ich in Frankreich und Spanien
 nicht hatte bekommen können. Capitän Garnier habe ich die
 Trabantenbeobachtungen zu verdanken, die ich jenseits des
@@ -11817,188 +11787,184 @@ Kreis ihrer Ideen erweitert haben. Ich schied vom englischen
 Schiff mit Empfindungen, die in mir unverwischt geblieben
 find und meine Anhänglichkeit an die Laufbahn, der ich meine
 Kräfte gewidmet, noch steigerten.
+
 Am folgenden Tag setzten wir unsere Ueberfahrt fort
 und wunderten uns sehr über die Tiefe der Canäle zwischen
-
-3«77
-den Caracasinseln, die ·so bedeutend ist,-daß die Eorvette
+den Caracasinseln, die so bedeutend ist, daß die Corvette
 beim Wenden fast an den Felsen streifte. Welch ein Contrast
 im ganzen Ansehen zwischen diesen Kalkeilanden, die nach
-Richtung und Gestaltung an die "große .Katastrophe erinnern,
-die sie vom Festlande losgerissen, und jenem «vulkanischen
-Archipel nordwärts von Lancerota,I wo Basaltkuppen durch
+Richtung und Gestaltung an die große Katastrophe erinnern,
+die sie vom Festlande losgerissen, und jenem vulkanischen
+Archipel nordwärts von Lancerota,^[S. Bd. I. Seite 62.]
+wo Basaltkuppen durch
 Hebung aus dem Meer emporgestiegen scheinen! Die vielen
-Alcatras, die größer sind als unsere Sehwanen, und Flamingos,
-die in den Buchten sischten oder den Pelikans ihre Beute
+Alcatras, die größer sind als unsere Schwanen, und Flamingos,
+die in den Buchten fischten oder den Pelikans ihre Beute
 abzujagen suchten, sagten uns, daß wir nicht mehr weit von
 Cumana waren. Es ist sehr interessant, bei Sonnenaufgang
-die Seevögel auf einmal erscheinen und die Landschast beleben
+die Seevögel auf einmal erscheinen und die Landschaft beleben
 zu sehen. Solches erinnert an den einsamsten Orten an das
 rege Leben in unsern Städten beim ersten Morgengrauen. Gegen
 neun Uhr Morgens befanden wir uns vor dem Meerbusen
 von Cariaco, welcher der Stadt Cumana als Rhede dient.
 Der Hügel, aus dem das Schloß San Antonio liegt, hob
 sich weiß von der dunkeln Bergwand im Innern ab. Mit
-lebhaster Empfindung sahen wir das Ufer wieder, wo wir
+lebhafter Empfindung sahen wir das Ufer wieder, wo wir
 die ersten Pflanzen in Amerika gepflückt und wo ein paar
-Monate daraus Bonpland in so großer Gefahr geschwebt hatte.
+Monate darauf Bonpland in so großer Gefahr geschwebt hatte.
 Zwischen den Cactus, die zwanzig Fuß hoch in Säulen- oder
 Candelaberform dastehen, kamen die Hütten der Guayqueries
-zum Vorschein. Die ganze Landschaft war uns so wohl be-
-kannt, der C-actuswald, und die zerstreuten Hütten, und der
+zum Vorschein. Die ganze Landschaft war uns so wohl bekannt,
+der Cactuswald, und die zerstreuten Hütten, und der
 gewaltige Ceibabaum, unter dem wir bei Einspruch der Nacht
 so gerne gebadet. Unsere Freunde kamen uns aus Cumana
-entgegen; Menschen aller Stände, die auf unsern vielen.
-E S. Bd. 1. Seite (;2.
+entgegen; Menschen aller Stände, die auf unsern vielen
+botanischen Excursionen mit uns in Berührung gekommen
+waren, äußerten ihre Freude um so lebhafter, da sich seit
+mehreren Monaten das Gerücht verbreitet hatte, wir haben
+an den Ufern des Orinoco den Tod gefunden. Anlaß dazu
+mochte Bonplands schwere Krankheit gegeben haben, oder auch
+der Umstand, daß unser Canoe durch einen Windstoß oberhalb
+der Mission Uruanas beinahe umgesehlagen wäre.
 
-378 «
-botanischen E;-cursionen mit» uns ’in" Berührung gekommen
-waren, äußerten ihre Freude um so lebhafter, da- sich seit
-mehreren Monaten das Gerücht- verbreitet« hatte, wir haben
-an den Ufern des-Orinoco den Tod gesunden. -Anlaß dazu
-mochte Bonplands schwere Krankheit gegeben haben , oder auch
-der Umstand, daß unser Canoe" durch einen Windstoß ober-
-halb der Mission Uruanas beinahe umgesehlagen wäre. -
 Wir eilten, uns dem Statthalter Don Vicente Emparan
 vorzustellen, dessen Empfehlungen und beständige Vorsorge uns
-ans der langen, nunmehr vollendeten Reise so ungemein för-
-derlich gewesen waren. Er verschafste uns mitten in der Stadt
-ein Haus,« das für ein Land, das starken Erdbeben ausgesetzt
-ist, vtelleicht zu hoch, aber für unsere Instrumente ungemein
-bequem war. Es hatte Terrassen (azotes.a.s), aus denen man
-einer herrlichen Aussicht auf die See, aus die Landenge Araya
-und auf den Archipel der Caracas-, Picuita- und Borracha-
-inseln genoß. Der Hasen von Cumana wurde täglich strenger
+auf der langen, nunmehr vollendeten Reise so ungemein förderlich
+gewesen waren. Er verschaffte uns mitten in der Stadt
+ein Haus,^[<i>Casa de Don Pasqual Martinez</i>,
+nordwestlich vom großen Platz,
+an dem ich vom 28.&nbsp;Jan bis 17.&nbsp;November
+1799 beobachtet hatte. Alle
+astronomischen Beobachtungen, so wie die
+über die Luftspiegelung, nach dem
+29. August 1800 sind im Hause Martinez
+angestellt. Ich erwähne dieses
+Umstands, da er von Interesse seyn mag,
+wenn einmal Einer die Genauigkeit
+meiner Beobachtungen prüfen will.] das für ein Land,
+das starken Erdbeben ausgesetzt
+ist, vielleicht zu hoch, aber für unsere Instrumente ungemein
+bequem war. Es hatte Terrassen (<i>azoteas</i>), auf denen man
+einer herrlichen Aussicht auf die See, auf die Landenge Araya
+und auf den Archipel der Caracas-, Picuita- und Borracha-Inseln
+genoß. Der Hafen von Cumana wurde täglich strenger
 blokirt und durch das Ausbleiben der spanischen Postschiffe
-wurden wir noch drittehalb Monate festgehalten. Oft- fühlten
-wir uns versucht, aus die dänischen Inseln tiberzusetzen, die
+wurden wir noch drittehalb Monate festgehalten. Oft fühlten
+wir uns versucht, auf die dänischen Inseln überzusetzen, die
 einer glücklichen Neutralität genossen; wir besorgten aber,
 hätten wir einmal die spanischen Colonien verlassen, möchte
 es schwer halten, dahin zurückzukommen. Bei den umfassenden
-Besugnissen, wie sie uns in einer -guten Stunde· zu Theil
-geworden, durfte man sich auf nichts einlassen, was den Lokal-
-« cost: de Don l’usqual 1islaktinez, nordwestlich vom großen Platz,
-an dem ich vom 28. Jan bis 17. November 1799 beobachtet he-its. ent-
-astronomischen Beobachtungen, so wie die über die Luftspiegelung, nach dem
-29. August 1800 sind im Hause Martinez angestellt. Ich erwähne dieses
-Umstande, da er von Interesse seyn mag, wenn einmal Einer die Genauig-
-keit meiner Beobachtungen prüfen will.
-
-379
-behörden Mißfallen konnte. Wir wendeten unsere Zeit dazu
+Befugnissen, wie sie uns in einer guten Stunde zu Theil
+geworden, durfte man sich auf nichts einlassen, was den Lokalbehörden
+mißfallen konnte. Wir wendeten unsere Zeit dazu
 an, die Flora von Cumana zu vervollständigen, den östlichen
 Theil der Halbinsel Araya geognostisch zu untersuchen und
 eine ansehnliche Reihe von Trabantenimmersionen zu beobachten,
-wodurch die auf anderem Wege gefundene Länge des Orts be-
-stätigt- wurde. Wir stellten auch Versuche an über ungewöhn-
-liche Strahlenbrechung, über Verdunsiung und Luftelektricität.
+wodurch die auf anderem Wege gefundene Länge des Orts bestätigt
+wurde. Wir stellten auch Versuche an über ungewöhnliche
+Strahlenbrechung, über Verdunstung und Luftelektricität.
+
 Die lebenden Thiere, die wir vom Orinoco mitgebracht,
-waren für die Einwohner von Cumana ein Gegenftand leb-
-hafter Neugier. Der Kapuziner von Esmeralda (simia
-(-hiropotes), der im Gesic»ht8ausdruck so große Menschenähn-
-lichkeit hat, Und der Schlafaffe (simia i:rivi1·gats), der Typus
+waren für die Einwohner von Cumana ein Gegenstand lebhafter
+Neugier. Der <b>Kapuziner</b> von Esmeralda (<i>Simia
+chiropotes</i>), der im Gesichtsausdruck so große Menschenähnlichkeit
+hat, Und der Schlafaffe (<i>Simia trivirgata</i>), der Typus
 einer neuen Gruppe, waren an dieser Küste noch nie gesehen
-worden. Wir dachten dieselben der "Menagerie im Pariser
-Pflanzengarten zu; denn die Ankunft einer ftanzösischen Es-
-cadre, die ihren «Angriff auf Cura(;ao hatte mißlingen sehen,
+worden. Wir dachten dieselben der Menagerie im Pariser
+Pflanzengarten zu; denn die Ankunft einer französischen Escadre,
+die ihren Angriff auf Curaçao hatte mißlingen sehen,
 bot uns unerwartet eine treffliche Gelegenheit nach Guadeloupe.
-General Jeanuet und der Commissär Bresseau,« Agent der
+General Jeannet und der Commissär Bresseau, Agent der
 vollziehenden Gewalt auf den Antillen, versprachen uns, die
 Sendung zu besorgen. Aber Affen und Vögel gingen auf
-Guadeloupe zu Grunde, und nur durch einen glücklichen Zu-
-fall gelangte der Balg des simi-.-. ci1ikopotes, der sonst in
-Europa gar nicht existirt, vor einigen Jahren in den Pflanzen-
-garten, nachdem schon früher der Couxio (simio. sen-enge)
+Guadeloupe zu Grunde, und nur durch einen glücklichen Zufall
+gelangte der Balg des <i>Simia chiropotes</i>, der sonst in
+Europa gar nicht existirt, vor einigen Jahren in den Pflanzengarten,
+nachdem schon früher der Couxio (<i>Simia satanas</i>)
 and der Stentor oder Alouato aus den Steppen von Caracas
-(simio. u-.·sina), die ich in meinem Rc(-uei1 de zoologic-
-et ·i’sns.tomie compiu-es abgebildet, daselbst angekommen
+(<i>Simia ursina</i>), die ich in meinem <i>Recueil de zoologie
+et d’anatomie comparées</i> abgebildet, daselbst angekommen
 waren. Die Anwesenheit so vieler französischer Soldaten und
-die Aeußerung politischer und religiöser Ansi.chten, die eben
-nicht ganz mit- denen übereitistimmten, durch welche die Mutter-
-
-Jst)
--
-länder ihre Macht zu befestigen meinen, brachten die Bevöl-
-kerung von Cumana in gewalttge Aufregung. Der Statthalter·
-beobachtete den französischM Behörden gegenüber die ange-
-nehmen Formen, wie der Anstand und das innige Verhält-
-niß, das damals zwischen Frankreich und Spanien bestand,
+die Aeußerung politischer und religiöser Ansichten, die eben
+nicht ganz mit denen übereinstimmten, durch welche die Mutterländer
+ihre Macht zu befestigen meinen, brachten die Bevölkerung
+von Cumana in gewaltige Aufregung. Der Statthalter
+beobachtete den französischen Behörden gegenüber die angenehmen
+Formen, wie der Anstand und das innige Verhältniß,
+das damals zwischen Frankreich und Spanien bestand,
 sie vorschrieben. Auf den Straßen sah man die Farbigen sich
 um den Agenten des Direktoriums drängen, der reich und
 theatralisch gekleidet war; da aber Leute mit ganz weißer Haut,
-wo sie sich nur verständlich machen konnten, mit unbesrheidener
+wo sie sich nur verständlich machen konnten, mit unbescheidener
 Neugier sich auch darnach erkundigten, wie viel Einfluß auf
-die Regierung von Guadeloupe die sranzösische Republik den
-C-olonisten einräume, so entwickelten die königlichen Beamten
-doppelten Eifer in der Ver·proviantirung der kleinen Escadre.
-Fremde, die sich rühmten frei zu seyn, schienen ihnen über-
-lästige Gäste, und in einem Lande, dessen fortwährend stei-
-gender Wohlstand auf dem Schleichverlehr mit den Inseln
-beruhte und auf einer Art Handelsfreiheit, die man dem Mi-
-nisterium abgerungen, erlebte ich es, daß die Hispano-Europäer
-sich nicht entblödeten, die alte Weisheit des Gesetzbuchs Ue)-es
-de IndiaS), dem zufolge die Hafen keinen fremden Fahrzeugen
+die Regierung von Guadeloupe die französische Republik den
+Colonisten einräume, so entwickelten die königlichen Beamten
+doppelten Eifer in der Verproviantirung der kleinen Escadre.
+Fremde, die sich rühmten frei zu seyn, schienen ihnen überlästige
+Gäste, und in einem Lande, dessen fortwährend steigender
+Wohlstand auf dem Schleichverkehr mit den Inseln
+beruhte und auf einer Art Handelsfreiheit, die man dem Ministerium
+abgerungen, erlebte ich es, daß die Hispano-Europäer
+sich nicht entblödeten, die alte Weisheit des Gesetzbuchs (<i>leyes
+de Indias</i>), dem zufolge die Hafen keinen fremden Fahrzeugen
 geöffnet werden sollen außer in äußersten Nothfällen, bis zu
-den Wolken zu erheben.« Ich hebe diese Gegensätze zwischen den
+den Wolken zu erheben. Ich hebe diese Gegensätze zwischen den
 unruhigen Wünschen der Colonisten und der argwöhnischen
-Starrheit der herrschenden K-.1ste hervor, weil sie einiges Licht
+Starrheit der herrschenden Kaste hervor, weil sie einiges Licht
 auf die großen politischen Ereignisse werfen, welche, von lange
-her vorbereitet, Spanien von seinen Colonien oder — viel-
-leicht richtiger gesagt — von seinen überseeischen Provinzen
+her vorbereitet, Spanien von seinen Colonien oder — vielleicht
+richtiger gesagt — von seinen überseeischen Provinzen
 losgerissen haben.
-Vom Z. zum 5. November verbrachten wir wieder einige
-sehr angenehme Tage -auf der Halbinsel Araya, über dem
 
-Ist ,
-Meerbusen von Eariaco, Cu1nana gegem'iber, deren Perlen.
+Vom 3. zum 5. November verbrachten wir wieder einige
+sehr angenehme Tage auf der Halbinsel Araya, über dem
+Meerbusen von Cariaco, Cumana gegenüber, deren Perlen,
 deren Salzlager und unterseeische Quellen flüssigen, farblosen
-Steinöls ich schon oben beschrieben habe« Wir hatten gehört,
-die Indianer bringen von Zeit zu Zeit natürlichen Alaun,
-der in den benachbarten Bergen vvrkvmme, in bedeutenden
+Steinöls ich schon oben beschrieben habe.^[S. Bd. I. Seite 252 ff.]
+Wir hatten gehört,
+die Indianer bringen von Zeit zu Zeit <b>natürlichen Alaun</b>,
+der in den benachbarten Bergen vorkomme, in bedeutenden
 Massen in die Stadt. An den Proben, die man uns zeigte,
-sah man gleich, daß« es weder Alaunstein war, ähnlich dem
-Gestein von Tolfa und Piombino, noch jene haarsörmigen,
+sah man gleich, daß es weder Alaunstein war, ähnlich dem
+Gestein von Tolfa und Piombino, noch jene haarförmigen,
 seidenartigen Salze von schwefelsaurer Thon- und Bittererde,
 welche Gebirgsspalten und Höhlen auskleiden, sondern wirklich
-Massen .natürlichen Alauns, mit muschligtem oder unvoll-
-·konnnen blättrigem Bruch. Man machte uns Hoffnung, daß
-wir die Alaungrube im Schiefergebirg bei Maniquarez
+Massen natürlichen Alauns, mit muschligtem oder unvollkommen
+blättrigem Bruch. Man machte uns Hoffnung, daß
+wir die <b>Alaungrube</b> im Schiefergebirg bei Maniquarez
 finden könnten: Eine so neue geognostische Erscheinung mußte
 unsere ganze Aufmerksamkeit in Anspruch nehmen. Frater
-.Inan Gonzalez und der Schatzmeister Don Manuel Navarete,
+Juan Gonzalez und der Schatzmeister Don Manuel Navarete,
 der uns seit unserer Ankunft auf dieser Küste mit seinem
 Rath beigestanden hatte, begleiteten uns auf dem kleinen
 Ausflug. Wir gingen am Vorgebirge Caney ans Land und
 besuchten wieder das alte Salzwerk, das durch den Einbruch
 des Meeres in einen See verwandelt worden, die schönen
-Trümmer des Schlosses Araya und »den Kalkberg Barigon,
+Trümmer des Schlosses Araya und den Kalkberg Barigon,
 der, weil er gegen West schroff abfällt, ziemlich schwer zu
-besteigen ist« Der Salzthon, vermischt mit Erdpech und linsen-
-förmigem Gyps, und zuweilen in einen schwarzbraunen, salz-
-sreien Thon übergehend, ist eine auf dieser Halbinsel, auf
-der Insel Margarita und auf dem gegenüberliegenden Fest-
-laud beim Schloß San Antonio in Cumana sehr verbreitete
-«S.Bd.l.Seite252ss.
-
-382
-Formation. Sehr wahrscheinlich hat sie. sogar-zum Theil die
-Spalten und das ganze zerrifsene.-Wesen des Boden.S-.—vevan-
-laßt, das dem Geognosten auffallt,-wenn er »auf- einer der
-Anhöhen der Halbinsel Araya steht. -Die aus Glinuuetzschiefer
-und Thonschiefer bestehende Cordillere derselben- ist gegen Nord
-durch den Canal von Cubagua- von der..ahnlich gebildeten
-Bergkette der Insel Margarita ;getrennt; gegen Süd liegt der
-Meerbusen von Cariaco zwischen der Cordillere« und. der hohen
-Kalkgebirgskette des Festlandes. Der ganze dazwischen- liegende
-Boden scheint einst mit Salzthon an-sgefü—llt gewesen "zn seyn,
-und vom Meere beständig angefressen, verschwand ohne Zwei-
-fel die Form«ation allmählig und aus der Ebene wurden zuerst
-Lagunen, dann Buchten und —zuletzt scbisfbare Eanäle. Der
-neueste Vorgang am Schlosse Araya» beim Einbruch des Meeres
+besteigen ist. Der Salzthon, vermischt mit Erdpech und linsenförmigem
+Gyps, und zuweilen in einen schwarzbraunen, salzfreien
+Thon übergehend, ist eine auf dieser Halbinsel, auf
+der Insel Margarita und auf dem gegenüberliegenden Festland
+beim Schloß San Antonio in Cumana sehr verbreitete
+Formation. Sehr wahrscheinlich hat sie sogar zum Theil die
+Spalten und das ganze zerrissene Wesen des Bodens veranlaßt,
+das dem Geognosten auffällt, wenn er auf einer der
+Anhöhen der Halbinsel Araya steht. Die aus Glimmerschiefer
+und Thonschiefer bestehende Cordillere derselben ist gegen Nord
+durch den Canal von Cubagua von der ähnlich gebildeten
+Bergkette der Insel Margarita getrennt; gegen Süd liegt der
+Meerbusen von Cariaco zwischen der Cordillere und der hohen
+Kalkgebirgskette des Festlandes. Der ganze dazwischen liegende
+Boden scheint einst mit Salzthon ausgefüllt gewesen zu seyn,
+und vom Meere beständig angefressen, verschwand ohne Zweifel
+die Formation allmählig und aus der Ebene wurden zuerst
+Lagunen, dann Buchten und —uletzt schiffbare Canäle. Der
+neueste Vorgang am Schlosse Araya beim Einbruch des Meeres
 in das alte Salzwerk, die Form der Lagune Chacopata und
 ein vier Meilen langer See, der die Insel Margarita beinahe
-in zwei Stücke theilt-, find offenbare Beweise dieser allmäly
-ligen Abspülungen. Im seltsamen Umriß der Küsten, im
+in zwei Stücke theilt, sind offenbare Beweise dieser allmähligen
+Abspülungen. Im seltsamen Umriß der Küsten, im
 Morro von Chacopata, in den kleinen Inseln Caribes, Lobos
 und Tunal, in der großen Insel Coche und dem Vorgebirg
 Carnero und dein »der Manglebäume« glaubt man auch die
@@ -12006,217 +11972,208 @@ Trümmer einer Landenge vor sich zu haben, welche einst in
 der Richtung von Nord nach Süd die Halbinsel Araya und
 die Insel Margarita verband. Auf letzterer verbindet nur
 noch eine ganz niedrige, 3000 Toisen lange und nicht 200
-Toisen breite Landzunge gegen Nord die zwei unter dem Na-
-men Vega de San Iuan und Macanao bekannten Berggrup-
-pen. Die Laguna g-sinds auf Margarita hat gegen Süd eine
-sehr enge Oeffnung und kleine Canoes kommen ,,m-asts-n-
-dk1s,« das heißt über einen Trageplatz, über die Landzunge
-
-383 »
-oder den Damm im Norden hinüber. Wenn»sirh auch heut-
-zutage in diesen Seesttichen das Wasser vom Festland zurück-
-zuziehen scheint, »so wird doch--höchst wahrscheinlich im Laufe
+Toisen breite Landzunge gegen Nord die zwei unter dem Namen
+Vega de San Juan und Macanao bekannten Berggruppen.
+Die <i>Laguna grande</i> auf Margarita hat gegen Süd eine
+sehr enge Oeffnung und kleine Canoes kommen »arastradas,«
+das heißt über einen Trageplatz, über die Landzunge
+oder den Damm im Norden hinüber. Wenn sich auch heutzutage
+in diesen Seestrichen das Wasser vom Festland zurückzuziehen
+scheint, so wird doch höchst wahrscheinlich im Laufe
 der Jahrhunderte entweder durch ein Erdbeben oder durch ein
-plötzliches Anschwellen -des -Oceans die große langgestreclte
+plötzliches Anschwellen des Oceans die große langgestreckte
 Insel Margarita in zwei viereckigte Felseneilande zerfallen.
+
 Bei der Besteigung des Cerro del Barigon wiederholten
 wir die Versuche, die wir am Orinoco über den Unterschied
 zwischen der Temperatur der Luft und des verwitterten Gesteins
 gemacht hatten. Erstere betrug gegen 11 Uhr Vormittags,
-des. Seewinds wegen, nur 27 Grad, letztere dagegen 490 6.
-Der Saft in den Fackeldisteln (0actus qui-dkangulu1·is)
-zeigte 38-—410; soviel zeigte ein Thermometer, dessen Kugel
-ich in den fleisehigten, saftigen Stamm der Cactus hinein-
-steckte. Diese innere Temperatur eines Gewächses ist das
+des Seewinds wegen, nur 27 Grad, letztere dagegen 49°6.
+Der Saft in den Fackeldisteln (<i>Cactus quadrangularis</i>)
+zeigte 38-41°; soviel zeigte ein Thermometer, dessen Kugel
+ich in den fleischigten, saftigen Stamm der Cactus hineinsteckte.
+Diese innere Temperatur eines Gewächses ist das
 Produkt der Wärme des Sandes, in dem die Wurzeln sich
-verbreiten, der Lusttemperatur, der Oberslächenbeschafsenheit
-des den Sonnenstrahlen ausgesetzten Stammes und der Lei-
-tungsfähigkeit des Holzes. Es wirken somit sehr verwickelte
+verbreiten, der Lusfttemperatur, der Oberflächenbeschaffenheit
+des den Sonnenstrahlen ausgesetzten Stammes und der Leitungsfähigkeit
+des Holzes. Es wirken somit sehr verwickelte
 Vorgänge zum Resultat zusammen. Der Kalkstein des Barigon,
-der zu der großen Sandstein- und Kalksormation von Cumana
-gehört, besteht fast ganz aus Seeschalthieren, die so wohl er-
-halten find, wie die in den andern tertiären Kalkgebilden in
-Frankreich und Italien. Wir brachen für das königliche C-abinet
-zu ,Madrid Blöcke ab, die Austern von acht Zoll Durchniesser,
-.Kammmuscheln, Venusmuscheln und Polypengehäuse enthielten.
+der zu der großen Sandstein- und Kalkformation von Cumana
+gehört, besteht fast ganz aus Seeschalthieren, die so wohl erhalten
+sind, wie die in den andern tertiären Kalkgebilden in
+Frankreich und Italien. Wir brachen für das königliche Cabinet
+zu Madrid Blöcke ab, die Austern von acht Zoll Durchniesser,
+Kammmuscheln, Venusmuscheln und Polypengehäuse enthielten.
 Ich möchte Naturforscher, welche bessere Paläontologen sind,
-als ich damals war, ausserdem, diese Felsenküste genau zu
-untersuchen. Sie ist europäischen Fahrzeugen, die nach Cu-
-mana, Guayra oder Curacao gehen, leicht zugänglich. Es
-
-»Ist .
+als ich damals war, auffordern, diese Felsenküste genau zu
+untersuchen. Sie ist europäischen Fahrzeugen, die nach Cumana,
+Guayra oder Curacao gehen, leicht zugänglich. Es
 wäre von großem Interesse, auszumachen, ob manche dieser
-versteinerten Mollusken- und ,8oophytenarten noch jetzt das
+versteinerten Mollusken- und Zoophytenarten noch jetzt das
 Meer der Antillen bewohnen, wie es Bonpland vorkam, und
-wie es auf der Insel Timor und wohl auch bei Stand-Jene
-auf Guadeloupe der Fall ist. - -»
-Am 4. November um I Uhr Nachts gingen wir unter
+wie es auf der Insel Timor und wohl auch bei Grand-Terre
+auf Guadeloupe der Fall ist.
+
+Am 4. November um 1 Uhr Nachts gingen wir unter
 Segel, um die natürliche Alaungrube aufzusuchen. Ich hatte
-den Chronometer und mein großes Dollond«sches Fernrohr
-mit eingeschifft, um bei der Lo-gnug (-hing, östlich vom
-Dorfe Maniquarez, die Immension des ersten Jupiterstra-
-bauten zu beobachten. --Daraus wurde indessen nichts, da wir
+den Chronometer und mein großes Dollond’sches Fernrohr
+mit eingeschifft, um bei der <i>Laguna chica</i>, östlich vom
+Dorfe Maniquarez, die Immension des ersten Jupiterstrabanten
+zu beobachten. Daraus wurde indessen nichts, da wir
 des widrigen Windes wegen nicht vor Tag hinkamen. Nur
 das Schaufpiel des Meerleuchtens, dessen Pracht durch die
 um unsere Pirogue gaukelnden Delphine noch erhöht wurde,
 konnte uns für diese Verzögerung entschädigen. Wir fuhren
 wieder über den Strich, wo auf dem Meeresboden aus dem
 Glimmerschiefer Quellen von Bergöl brechen, die man sehr
-weit riecht.1 Bedenkt man, daß weiter nach Ost, bei Ca-
-riaco, warme unterseeische Quellen so stark sind, daß sie die
+weit riecht.^[S. Bd. I. Seite 276.] Bedenkt
+man, daß weiter nach Ost, bei Cariaco,
+warme unterseeische Quellen so stark sind, daß sie die
 Temperatur des Meerbusens an der Oberfläche erhöhen, so
-läßt sich wohl nicht bezweifeln, daß das Bergöl aus ung-
-heuren Tiefen wie herauf destillirt wird, daß es aus den
-Urgebirgsbildungen kommt, unter denen der Herd aller Vul-
-kanischen Erscl)ütterungen liegt.
-Die Laguna (-dies, ist eine von steil abfallenden Bergen
-umgebene Bucht, die mit dem Meerbusen von Cariaco nur
-durch einen engen, 25 Faden tiefen C-anal zusammenhängt.
-Es sieht aus, als wäre sie, wie auch der schöne Hafen von
-« S. Bd. I. Seite 276.
+läßt sich wohl nicht bezweifeln, daß das Bergöl aus ungeheuren
+Tiefen wie herauf destillirt wird, daß es aus den
+Urgebirgsbildungen kommt, unter denen der Herd aller Vulkanischen
+Erschütterungen liegt.
 
-385
-Acapulco, durch ein Erdbeben gebildet. « Ein kleiner flacher
-ufekstkich scheint darauf hiuzudeuteu, daß die See sich· hier
+Die <i>Laguna chica</i>, ist eine von steil abfallenden Bergen
+umgebene Bucht, die mit dem Meerbusen von Cariaco nur
+durch einen engen, 25&nbsp;Faden tiefen Canal zusammenhängt.
+Es sieht aus, als wäre sie, wie auch der schöne Hafen von
+Acapulco, durch ein Erdbeben gebildet. Ein kleiner flacher
+Uferstrich scheint darauf hinzudeuten, daß die See sich hier
 vom Lande zurückzieht, wie an der gegenüberliegenden Küste
 von Cumana. Die Halbinsel Araya verengert sich zwischen
 den Vorgebirgen Mero und las Minas auf 1400 Toisen
-und ist bei der Laguna (-hie-; von einem Seestrich zum an-
-dern etwas über 4000 Toisen breit. Diese unbedeutende
+und ist bei der <i>Laguna chica</i> von einem Seestrich zum andern
+etwas über 4000 Toisen breit. Diese unbedeutende
 Strecke hatten wir zurückzulegen, um zum natürlichen Alaun
 und zum Vorgebirge, genannt Punta de Chuparuparu, zu
 gelangen. Der Gang ist nur darum beschwerlich, weil gar
-kein Weg gebahnt ist und man zwischen ziemlich tiefen Ab-
-gründen über völlig kahle Felsgräten mit stark fallenden
+kein Weg gebahnt ist und man zwischen ziemlich tiefen Abgründen
+über völlig kahle Felsgräten mit stark fallenden
 Schichten gehen muß. Der höchste Punkt liegt gegen 220
 Toisen hoch, aber die Berge zeigen, wie so häufig auf felsigten
-Landengen, die seltsamsten Bildungen. Die Tetas de Charo-
-pata und de C-ariaco, halbwegs zwischen der Laguna (-dies
+Landengen, die seltsamsten Bildungen. Die Tetas de Chacopata
+und de Cariaco, halbwegs zwischen der <i>Laguna chica</i>
 und der Stadt Cariaco, sind wahre Spitzberge, die von der
 Platform des Schlosses in Cumana aus ganz frei zu stehen
-scheinen. Dammerde sindet sich in diesem Landstrich nur bis
+scheinen. Dammerde findet sich in diesem Landstrich nur bis
 zur Höhe von 30 Toisen über dem Meer. Oft regnet es
-15 Monate lang gar nicht;« fallen aber auch nur ein paar
+15 Monate lang gar nicht;^[S. Bd. I. Seite 402.]
+fallen aber auch nur ein paar
 Tropfen Wasser unmittelbar nach der Blüthe der Melonen,
-der Wassermelonen und .Kürbisfe, so tragen dieselben, trotz
+der Wassermelonen und Kürbisse, so tragen dieselben, trotz
 der anscheinenden Trockenheit der Luft, Früchte von 60 bis
 70 Pfund. Ich sage die anscheinende Trockenheit der Luft,
 denn aus meinen hygrometrischen Beobachtungen geht hervor,
-daß in Cumana und Araha die Luft fast zu neun Zehntheilen
-mit Wasserdunft gesättigt ist. Diese zugleich heiße und feuchte
-· S. Bd. I. Seite 402. ·
-H--I-p1sk,si·»-. n-. 2.5
-
-M .
-Luft speist die vegetabilischen Quellen, die kindis-
-artigen Gewächse, die Agaven und Meloeactus," die halb im
+daß in Cumana und Araya die Luft fast zu neun Zehntheilen
+mit Wasserdunst gesättigt ist. Diese zugleich heiße und feuchte
+Luft speist die <b>vegetabilischen Quellen</b>, die kürbisartigen
+Gewächse, die Agaven und Melocactus, die halb im
 Sand vergraben sind. Als wir die Halbinsel im vorigen
-Jahr besuchten, herrschte da furchtbarer Wasser1nangel. Die
-Ziegen, die kein Gras mehr fanden, gingen sit Hunderten
-zu Grunde. Während unseres Aufenthalts am  schien
+Jahr besuchten, herrschte da furchtbarer Wassermangel. Die
+Ziegen, die kein Gras mehr fanden, gingen zu Hunderten
+zu Grunde. Während unseres Aufenthalts am Orinoco schien
 sich die Reihefolge der Jahreszeiten völlig umgekehrt zu haben.
-Es hatte in Araya, auf Cochen, sogar auf der .Insel Mar-
-garita reichlich geregnet, und diese Güsse machten noch in der
-Erinnerung den Einwohnern so viel zu schaffen, als den Phy-
-sikern in Europa ein Aerolithenfall.
+Es hatte in Araya, auf Cochen, sogar auf der Insel Margarita
+reichlich geregnet, und diese Güsse machten noch in der
+Erinnerung den Einwohnern so viel zu schaffen, als den Physikern
+in Europa ein Aerolithenfall.
+
 Unser indianischer Führer kannte kaum die Richtung, in
-der wir den Alaun zu suchen hatten; die eigentliche Lager-
-stätte war ihm ganz unbekannt. Dieser Mangel an Orts-
-kenntniß ist hier fast allen Führern eigen, die der faulsten
-Volksklass e angehören. Wir liefen fast auf Gerathewohl sieben,
+der wir den Alaun zu suchen hatten; die eigentliche Lagerstätte
+war ihm ganz unbekannt. Dieser Mangel an Ortskenntniß
+ist hier fast allen Führern eigen, die der faulsten
+Volksklasse angehören. Wir liefen fast auf Gerathewohl sieben,
 acht Stunden zwischen den Felsen herum, auf denen nicht
 das Geringste wuchs. Der Glimmerschiefer geht zuweilen in
 schwarzgrauen Thonschiefer über. Auch hier fiel mir wieder
 die ungemeine Regelmäßigkeit im Streichen und Fallen der
 Schichten auf. Sie streichen Nord 50 Grad Ost und fallen
-unter einem Winkel von 60—700 nach Nordwest. Dieses
-allgemeine Streichungsverhältniß hatte ich auch am graniti-
-schen Gneiß bei Caracas und am Orinoco, an den Horn-
-blendeschiefern bei Angostura beobachtet, sogar an den meisten
+unter einem Winkel von 60—70° nach Nordwest. Dieses
+allgemeine Streichungsverhältniß hatte ich auch am granitischen
+Gneiß bei Caracas und am Orinoco, an den Hornblendeschiefern
+bei Angostura beobachtet, sogar an den meisten
 secundären Formationen, die wir untersucht. Auf sehr weite
 Strecken bilden die Schichten denselben Winkel mit dem
-Meridian des Orts; sie zeigen einrn Parallelismus (oder viel-
-mehr Loxodron1ismus), der als eines der großen-get-
-gnostischen Gesetze zu betrachten ist, die durch genaue Messung
-
-« :—j87
-·zn ermitteln sind. Gegen das Co-P Chuparuparu zu sahen
+Meridian des Orts; sie zeigen einrn Parallelismus (oder vielmehr
+<b>Loxodromismus</b>), der als eines der großen geognostischen
+Gesetze zu betrachten ist, die durch genaue Messung
+zu ermitteln sind. Gegen das Cap Chuparuparu zu sahen
 wir die Quarzgänge im Glimmerschiefer mächtiger werden.
 Wir fanden welche, ein bis zwei Klafter breit, voll kleiner
-büschelförmiger Krystalle von Titanerz. « Vergeblich suchten
-wir darin nach Cyanit, den wir in Blinken bei Maniquarez
-gefunden. « Weiterhin erscheinen im Glin1merschiefer nicht
-Gänge, sondern kleine Schichten von Graphit oder Kohlen-
-stosseisen. Sie find 2—3 Zoll dick und streichen und fallen
-genau wie die Gebirgsart. Mit dem j.Graphit im Urgebirge
-tritt zum erstenmal in den Gebirgsschichten der Kohlenstosf
-auf, und zwar als nicht an Wasserstoff gebundener«Kohl·en-
-stosf. Er ist älter als die Zeit, wo sich die Erde mit mono-
-cotyledonischen Gewächsen bedeckte.
-Von diesen öden Bergen herab hatten wir eine groß-
-artige Aussicht auf die Insel Margarita. Zwei Berggruppen,
-die bereits genannten, der Macanao und die Vega de Sau
-.Juan, steigen gerade aus dem Wasser auf. In der letzteren,
+büschelförmiger Krystalle von Titanerz. Vergeblich suchten
+wir darin nach Cyanit, den wir in Blöcken bei Maniquarez
+gefunden. Weiterhin erscheinen im Glimmerschiefer nicht
+Gänge, sondern kleine Schichten von Graphit oder Kohlenstoffeisen.
+Sie sind 2—3 Zoll dick und streichen und fallen
+genau wie die Gebirgsart. Mit dem Graphit im Urgebirge
+tritt zum erstenmal in den Gebirgsschichten der Kohlenstoff
+auf, und zwar als nicht an Wasserstoff gebundener Kohlenstoff.
+Er ist älter als die Zeit, wo sich die Erde mit monocotyledonischen
+Gewächsen bedeckte.
+
+Von diesen öden Bergen herab hatten wir eine großartige
+Aussicht auf die Insel Margarita. Zwei Berggruppen,
+die bereits genannten, der Macanao und die Vega de San
+Juan, steigen gerade aus dem Wasser auf. In der letzteren,
 der östlichsten, liegt der Hauptort der Insel, la Asuncion,
-der Hafen »Pampatar und die Dörfer Pueblo de la Mar,
-Pneblo del Norte und Sau« Juan. Die westliche Gruppe,
+der Hafen Pampatar und die Dörfer Pueblo de la Mar,
+Pneblo del Norte und San Juan. Die westliche Gruppe,
 der Macanao, ist fast ganz unbewohnt. Die Landenge, welche
 diese gewaltigen Glimmerschiefermassen verbindet, war kaum
-sichtbar; fie erschien durch die Luftspiegelung verzogen und
+sichtbar; sie erschien durch die Luftspiegelung verzogen und
 man erkannte dieses Zwischenglied des Landes, durch das die
-Lugano grande läuft, nur an zwei kleinen zuckerhutför-
-migen Bergen, die unter dem Meridian der Punta de Piedras
+<i>Laguna grande</i> läuft, nur an zwei kleinen zuckerhutförmigen
+Bergen, die unter dem Meridian der Punta de Piedras
 liegen. Weiter herwärts sahen wir auf den kleinen öden Archipel
 der vier Morros del Tunal, der Caribes und Lobos hinab.
-. Nach langem vergeblichem Suchen fanden wir endlich,
-ehe wir zur Nordküste der Halbinsel Araya hinabgingen, in
 
-» 38s
-Y-1
-einer ungemein schwer zugänglichen Schlucht (Aro)-o del
-Roba1o) das Mineral, das man uns in Eu1nana gezeigt
+Nach langem vergeblichem Suchen fanden wir endlich,
+ehe wir zur Nordküste der Halbinsel Araya hinabgingen, in
+einer ungemein schwer zugänglichen Schlucht (<i>Aroyo del
+Robalo</i>) das Mineral, das man uns in Cumana gezeigt
 hatte. Der Glimmerschiefer ging rasch in kohlenhaltigen,
-glänzenden Thonschiefer  Es war Ampelit; das Wasser
-(denn es gibt hier kleine Quellen, und kürzlich» hat man selbst
--beim Dorfe Maniquarez eine gefunden) war mit gelbem Eisen-
-oxyd geschwüngert und hatte einen zusammenziehenden G-
-schmack. Die anstehenden Felswände waren mit ausgewitterter
+glänzenden Thonschiefer über. Es war Ampelit; das Wasser
+(denn es gibt hier kleine Quellen, und kürzlich hat man selbst
+beim Dorfe Maniquarez eine gefunden) war mit gelbem Eisenoxyd
+geschwängert und hatte einen zusammenziehenden Geschmack.
+Die anstehenden Felswände waren mit ausgewitterter
 haarförmiger schwefelsaurer Thonerde bedeckt, und wirkliche
-zwei bis drei Zoll dicke Schichten nat1·irlichen Alauns strichen
+zwei bis drei Zoll dicke Schichten natürlichen Alauns strichen
 im Thonschiefer fort, so weit das Auge reichte. Der Alaun ist
 weissgrau, an der Oberfläche etwas matt, im Innern hat er fast
 Glasglanz; der Bruch ist nicht faserigt, sondern unvollkommen
-muschligt. An nicht starken Bruchstücken ist er halb durch-
-sichtig. Der Geschmack ist süßlicht, adsiringirend, ohne Bitter-
-keit. Ich fragte mich noch an Ort und Stelle, ob dieser so
+muschligt. An nicht starken Bruchstücken ist er halb durchsichtig.
+Der Geschmack ist süßlicht, adstringirend, ohne Bitterkeit.
+Ich fragte mich noch an Ort und Stelle, ob dieser so
 reine Alaun, der ohne die geringste Lücke eine Schicht im
 Thonschiefer bildet, gleichzeitig mit der Gebirgsart gebildet,
-oder ob ihm ein neuerer, so zu sagen ;secundärer Ursprung
-zuzuschreiben ist, wie dem salzsauren »Natron, das man zu-
-weilen in kleinen Gängen an Stellen findet, wo hochsöhlige
+oder ob ihm ein neuerer, so zu sagen secundärer Ursprung
+zuzuschreiben ist, wie dem salzsauren Natron, das man zuweilen
+in kleinen Gängen an Stellen findet, wo hochsöhlige
 Salzquellen durch Gyps- oder Thonschichten hindurchgehen?
 Nichts weist aber hier auf eine Bildungsweise hin, die auch
 noch gegenwärtig vorkommen könnte. Das Schiefergestein hat
 lediglich keine offene Spalte, zumal keine, die dem Streichen
 der Blätter parallel liefe. Man fragt sich ferner, ob dieser
-Alaunschiefer eine dem Urglimmerschiefer von Araya aufg-
-lagerte Uebergangsbildung ist, oder ob er nur dadurch ent-
-steht, daß die Glimmerschieferschichten nach Zusammensetzung
+Alaunschiefer eine dem Urglimmerschiefer von Araya aufgelagerte
+Uebergangsbildung ist, oder ob er nur dadurch entsteht,
+daß die Glimmerschieferschichten nach Zusammensetzung
 und Textur eine Veränderung erlitten haben? Ich halte
-
-, 389
-letztere Annahme für die n«ahrscheinlichere; denn der Ueber-
-gang ist allmählig und Thonschieser und Glimmerschieser
+letztere Annahme für die wahrscheinlichere; denn der Uebergang
+ist allmählig und Thonschiefer und Glimmerschiefer
 scheinen mir hier einer und derselben Formation anzugehören.
 Das Vorkommen von Cyanit, Titanerz und Granaten, und
-daß kein lydisrher Stein, daß nirgends ein Trümmergestein
-zu nur-ex: ist, scheinen vix For—-Wien, die wir hie: beschreiben,
+daß kein lydischer Stein, daß nirgends ein Trümmergestein
+zu finden ist, scheinen die Formation, die wir hier beschreiben,
 dem Urgebirge zuzuweisen.
+
 Als sich im Jahr 1783 bei einem Erdbeben im Aroyo
-del Robalo eine große Felsmasse abgelö-St hatte, lasen die
-Guayqneries in los Setritos 5—6 Zoll starke, ungemein
-durchsichtige und reine Alaunsticcke auf. Zu meiner Zeit ver-
-kaufte man in Cumana an Färber und Gerber das Pfund zu
+del Robalo eine große Felsmasse abgelöst hatte, lasen die
+Guayqueries in los Serritos 5—6 Zoll starke, ungemein
+durchsichtige und reine Alaunstücke auf. Zu meiner Zeit verkaufte
+man in Cumana an Färber und Gerber das Pfund zu
 zwei Realen (ein Viertheil eines harten Piasters), während der
 spanische Alaun zwölf Realen kostete. Dieser Preisunterschied
 rührte weit mehr von Vorurtheilen und von Hemmungen im

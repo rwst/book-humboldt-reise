@@ -439,7 +439,7 @@ König nahm mich äußerst wohlwollend auf. Ich entwickelte die
 Gründe, die mich bewogen, eine Reise in den neuen Kontinent und
 auf die Philippinen zu unternehmen, und reichte dem
 Staatssecretär eine darauf bezügliche Denkschrift ein. Der
-Ritter d'Urquijo unterstützte mein Gesuch und räumte alle
+Ritter d’Urquijo unterstützte mein Gesuch und räumte alle
 Schwierigkeiten aus dem Wege. Der Minister handelte hierbei
 desto großmüthiger, da ich in gar keiner persönlichen Beziehung
 zu ihn stand. Der Eifer, mit dem er fortwährend meine Absichten
@@ -730,7 +730,7 @@ Gestaltung eingegen.
 
 Auf der Ueberfahrt von Corunna nach Ferrol machten wir über
 einer Untiefe beim »weißen Signal,« in der Bai, die nach
-d'Anville der 
+d’Anville der 
 *portus magnus* der Alten war, mittels einer
 Thermometersonde mit Ventilen einige Beobachtungen über die
 Temperatur der See und über die Abnahme der Wärme in den über
@@ -967,7 +967,7 @@ nur die allgemeinen Ergebnisse meiner magnetischen und
 meteorologischen Versuche in diesem Meeresstriche mit.
 
 
-Am 9. Juni, unter 39° 50' der Breite und 16° 10' westlicher
+Am 9. Juni, unter 39°50′ der Breite und 16°10′ westlicher
 Länge vom Meridian der Pariser Sternwarte, fingen wir an die
 Wirkung der großen Strömung zu spüren, welche von den azorischen
 Inseln nach der Meerenge von Gibraltar und nach den canarischen
@@ -1128,7 +1128,7 @@ und der Inseln des grünen Vorgebirgs.
 
 
 Vom Hafen von Boston an und unter dem Meridian von Halifax,
-unter 14° 25' der Breite und 67° der Länge, erreicht der Strom
+unter 14°25′ der Breite und 67° der Länge, erreicht der Strom
 gegen 80 Seemeilen Breite. Hier kehrt er sich auf einmal nach
 Ost, so daß sein westlicher Rand bei der Umbiegung zur
 nördlichen Grenze der bewegten Wasser wird und er an der Spitze
@@ -1543,7 +1543,7 @@ nicht die ganze Wassermasse dieselbe Geschwindigkeit, noch
 dieselbe Richtung hat. Bei ganz ruhiger See zeigen sich an der
 Oberfläche schmale Streifen, kleinen Bächen gleich, in denen das
 Wasser mit einem für das Ohr des geübten Schiffers wohl hörbaren
-Geräusch hinströmit. Am 13. Juni, unter 34° 35' nördlicher
+Geräusch hinströmit. Am 13. Juni, unter 34°35′ nördlicher
 Breite, befanden wir uns mitten unter einer Menge solcher
 Strombetten. Wir konnten die Richtung derselben mit dem Compaß
 aufnehmen: die einen liefen nach Nordost, anderen nach Ost-Nord-Ost,
@@ -1641,7 +1641,7 @@ Schnüren an einander hängen, wie wir bei der
 gesehen.
 
 
-Am 13. Juni Morgens unter 34° 33' Breite sahen wir
+Am 13. Juni Morgens unter 34°33′ Breite sahen wir
 wieder bei vollkommen ruhiger See große Haufen des
 letzterwähnten Thiers vorbeitreiben. Bei Nacht machten wir die
 Beobachtung, daß alle drei Medusenarten, die wir gefangen, nur
@@ -1774,7 +1774,7 @@ nicht recht umzugehen wußten, keine großen Stücke auf die Länge
 gehalten, die ich fast immer zweimal des Tags bestimmte, indem
 ich zum Uebertrag der Zeit Morgens und Abends Stundenwinkel
 aufnahm. Endlich am 16. Juni, um neun Uhr morgens, als wir schon
-unter 20° 26' der Breite waren, änderte der Capitän
+unter 20°26′ der Breite waren, änderte der Capitän
 den Curs und steuerte gegen Ost. Da zeigte sich bald, wie genau
 Louis Berthouds Chronometer war; um 2 Uhr nachmittags kam Land
 in Sicht, das wie eine kleine Wolke am Horizont erschien. Um
@@ -2205,7 +2205,7 @@ angibt, so muß sein Gipfel auf 43 Seemeilen [80 km] zu sehen
 sey, das Auge am Meeresspiegel angenommen und die Refraction
 gleich 0,079 der Entfernung. Man hat in Zweifel gezogen, ob der
 Pic zwischen Lanzerota und Fortaventura, der nach Varelas Karte
-2° 29' oder gegen 50 Meilen (Lieues) davon
+2°29′ oder gegen 50 Meilen (Lieues) davon
 entfernt ist, je gesehen worden sey. Der Punkt scheint indessen
 durch einige Offiziere der königlich spanischen Marine
 entschieden worden zu seyn; ich habe an Bord der Corvette
@@ -2562,7 +2562,7 @@ das der Punta de Naga zuläuft und wo Fettpflanzen in den Ritzen
 des Gesteines eben erst den Grund zu einstiger Dammerde legen.
 ImHaven von Orotava erscheint die Spitze des Zuckerhutes unter
 einem Winkel von 16 ½°, während auf dem Hafendamm
-von Santa Cruz der Winkel kaum 4° 36' beträgt. [Der
+von Santa Cruz der Winkel kaum 4°36′ beträgt. [Der
 Spitze des Vulkans ist von Orotava etwa 8600, von Santa Cruz
 22,500 Toisen entfernt.]
 
@@ -2596,7 +2596,7 @@ ohne Zweifel daraus, daß er westwärts von einem großen Festland
 und ganz isoliert im Meere liegt. Die Schiffer wissen recht gut,
 daß selbst die kleinsten, niedrigsten Eilande die Wolken
 anziehen und festhalten. Ueberdieß erfolgt die Wärmeabgabe über
-den Ebenen Afrika's und über der Meeresfläche in verschiedenem
+den Ebenen Afrikas und über der Meeresfläche in verschiedenem
 Verhältniß, und die Luftschichten, welche die Passatwinde
 herführen, kühlen sich immer mehr ab, je weiter sie gegen Wesst
 gelangen. Die Luft, die über dem hießen Wüstensand ausnehmend
@@ -2614,21 +2614,21 @@ Lange und mit Ungeduld warteten wir auf die Erlaubnis von seiten
 des Statthalters, ans Land gehen zu dürfen. Ich nützte die Zeit,
 um die Länge des Hafendammes von Santa Cruz zu bestimmen und die
 Inclination der Magnetnadel zu beobachten. Der Chronometer von
-Louis Berthoud gab jene zu 18° 33' 10" an. Diese Bestimmung
+Louis Berthoud gab jene zu 18°33′10″ an. Diese Bestimmung
 weicht um 3–4 Bogenminuten von derjenigen ab,
 die sich aus den
 alten Beobachtungen von Fleurieu, Pingré, Borda, Vancouver und
-la Peyrouse ergibt. Guenot hatte übrigens gleichfalls 18° 33' 36"
-gefunden und der unglückliche Capitän Blight 18° 34' 30". Die
+la Peyrouse ergibt. Guenot hatte übrigens gleichfalls 18°33′36″
+gefunden und der unglückliche Capitän Blight 18°34′30″. Die
 Genauigkeit meines Ergebnisses wurde drei Jahre darauf bei der
 Expedition des Ritters Krusenstern bestätigt: man
-fand für Santa Cruz 16° 12' 45" westlich von Greenwich,
-folglich 18° 33' 0" westlich von Paris. Diese Angaben zeigen,
+fand für Santa Cruz 16°12′45″ westlich von Greenwich,
+folglich 18°33′0″ westlich von Paris. Diese Angaben zeigen,
 daß die Längen, welche Capitän Cook für Teneriffa und das Cap
 der guten Hoffnung annahm, viel zu weit westlich sind. Derselbe
 Seefahrer hatte im Jahr 1799 die magnetische Inclination gleich
-61° 52' gefunden. Bonpland und ich fanden 62° 24', was mit dem
-Resultat übereinstimmt, das de Rossel bei d'Entrecasteaux's
+61°52′ gefunden. Bonpland und ich fanden 62°24′, was mit dem
+Resultat übereinstimmt, das de Rossel bei d’Entrecasteaux’s
 Expedition im Jahr 1791 erhielt. Die Declination der Nadel
 schwankt um mehrere Grade, je nachdem man sie auf dem Hafendamm
 oder an verschiedenen Punkten nordwärts längs des Gestades
@@ -2995,7 +2995,7 @@ vom Volke natürlich dieser Gewaltmaaßregel zugeschrieben. Noch
 ein auffallenderes Beispiel bietet das Klima von Valladolid, der
 Hauptstadt der
 Provinz Mechoacan. Nach
-meinen Messungen liegt diese Stadt unter 19° 41' der Breite nur
+meinen Messungen liegt diese Stadt unter 19°41’ der Breite nur
 tausend Toisen hoch; dennoch waren daselbst wenige Jahre vor
 meiner Ankunft in Neuspanien die Straßen mehrere Stunden lang
 mit Schnee bedeckt.
@@ -3136,7 +3136,7 @@ ist. Ein furchtbarer Sturm, den Ledru in seiner Reise nach
 Portorico beschreibt, zwang das Fahrzeug bei Teneriffa anzulegen,
 und das herrliche Klima der Insel brachte Legros zu dem
 Enschluß, sich hier niederzulassen. Ihm verdankt die gelehrte
-Welt Europa's die ersten genauen Nachrichten über den großen
+Welt Europas die ersten genauen Nachrichten über den großen
 Seitenausbruch des Pics, den man sehr uneigentlich den Ausbruch
 des Vulkans von Chahorra nennt. [Am 8. Juni 1798.]
 
@@ -3374,7 +3374,7 @@ Abbéville, gefunden wurde, gibt dem Drachenbaum von Orotava in
 der Dicke nichts nach. Nach Angabe von Traullée hatt der Stamm
 der Eiche 14 Fuß Durchmesser.]
  als der Drachenbaum, der sehr
-langsam zunimmt. Der in Herrn Franqui's
+langsam zunimmt. Der in Herrn Franqui’s
 Garten trägt noch jedes Jahr Blüten und Früchte. Sein Anblick
 mahnt lebhaft an »die ewige Jugend der Natur« [
 *Aristoteles
@@ -3391,7 +3391,7 @@ Pflanzen, während er doch vom Cactus, von der Agave und der
 Yucca spricht. Die Gestalt des Drachenbaumes kommt verschiedenen
 Arten der Gattung Dracaena am Cap der Guten Hoffnung, in China
 und auf Neuseeland zu; aber in der neuen Welt vertritt die Yucca
-die Stelle derselben; denn die Dracaena borealis d'Aitons
+die Stelle derselben; denn die Dracaena borealis d’Aitons
 ist eine Convallaria, deren Habitus sie auch hat. Der im
 Handel unter dem Namen Drachenblut bekannte adstringierende Saft
 kommt nach unseren Untersuchungen an Ort und Stelle von
@@ -3767,7 +3767,7 @@ genau zu beobachten. Kein mit Instrumenten versehener Reisender
 hatte noch eine solche Beobachtung angestellt. Ich hatte ein
 Fernrohr und ein Chronometer, dessen Gang mir sehr genau bekannt
 war. Der Himmelsstrich, wo die Sonnenscheibe erscheinen sollte,
-war dunstfrei. Wir sahen den obersten Rand um 4 Uhr 48' 55"
+war dunstfrei. Wir sahen den obersten Rand um 4 Uhr 48′55″
 wahrer Zeit, und, was ziemlich auffallend ist, der erste
 Lichtpunkt der Scheibe berührte unmittelbar die Grenze des
 Horizonts; wir sahen demnach den wahren Horizont, das heißt
@@ -3778,13 +3778,13 @@ später als auf dem Pic hätte anfangen sonnen aufzugehen. Der
 beobachete Unterschied betrug 12 Minuten 55 Secunden, und dieß
 kommt ohne Zweifel von der Ungewißheit hinsichtlich der
 Refractionsverhältnisse für einen Abstand vom Zenith, wofür
-keine Beobachtungen vorliegen.^[In der Rechung wurden für 91° 54' 
-scheinbaren Abstands vom Zenith 57' 7" Refraction angenommen.
+keine Beobachtungen vorliegen.^[In der Rechung wurden für 91°54′ 
+scheinbaren Abstands vom Zenith 57′7″ Refraction angenommen.
 Die Sonne erscheint bei ihrem
 Aufgang auf
 dem Pic von Teneriffa um so viel früher, als sie braucht, um
-einen Bogen von 1° 54' zurückzulegen. Für den Gipfel des
-Chimborazo nimmt dieser Bogen nur um 41' zu. Die Alten hatten so
+einen Bogen von 1°54′ zurückzulegen. Für den Gipfel des
+Chimborazo nimmt dieser Bogen nur um 41′ zu. Die Alten hatten so
 übertriebenen Vorstellungen von der Beschleunigung des
 Sonnenaufgangs auf dem Gipfel hoher Berge, daß sie behaupteten,
 die Sonne sey auf dem Berg Athos drei Stunden früher sichtbar,
@@ -4228,8 +4228,8 @@ Umsonst verlängerten wir unseren Aufenthalt auf dem Gipfel des
 Pics, des Moments harrend, wo wir den ganzen Archipel der
 glückseligen Inseln^[Von allen kleinen canarischen Inseln ist
 nur die Rocca del Este vom Pic auch bei hellem Wetter nicht zu
-sehen. Sie liegt 3°,5 ab, Salvage dagegen nur 2° 1'. Die Insel
-Madera, die 4° 29' entfernt ist, wäre nur dann zu sehen, wenn
+sehen. Sie liegt 3°,5 ab, Salvage dagegen nur 2°1′. Die Insel
+Madera, die 4°29′ entfernt ist, wäre nur dann zu sehen, wenn
 ihre Berge über 3000 Toisen hoch wären.]
  würden übersehen
 können. Wir sahen zu unseren Füßen Palma, Gomera und die Große
@@ -4991,7 +4991,7 @@ durch die wenigen Punkte, welche uns unter 0°, 20°, 45°, 62° und
 71° nördlicher Breite bekannt sind, unendliche viele Curven
 ziehen lassen, so kann die Beobachtung nur sehr mangelhaft durch
 Rechnung ergänzt werden. Ohne es bestimmt zu behaupten, kann man
-als wahrscheinlich annehmen, daß unter 28° 17' die Schneegrenze
+als wahrscheinlich annehmen, daß unter 28°17′ die Schneegrenze
 über 1900 Toisen liegt. Vom Auquator an, wo der Schnee mit 2460
 Toisen, also etwa in der Höhe des Montblanc beginnt, bis zum
 20. Breitegrad, also bis zur Grenze des heißen Erdstrichs, rückt der
@@ -5017,7 +5017,7 @@ einer arithmetischen Progression ergibt. Einer der Hochgipfel
 der Sierra de Nevada de Grenada, der Pico de Beleta, dessen
 absolute Höhe 1781 Toisen beträgt, ist beständig mit Schnee
 bedeckt; da aber die untere Grenze des Schnees hier nicht
-gemessen worden ist, so trägt dieser Berg, der unter 37° 10' der
+gemessen worden ist, so trägt dieser Berg, der unter 37°10′ der
 Breite liegt, zur Lösung des vorliegenden Problems nichts bei.
 Durch die Lage des Vulkans von Teneriffa mitten auf einer nicht
 großen Insel kann die Curve des ewigen Schnees schwerlich
@@ -5039,7 +5039,7 @@ strenger, folglich die mittlere Jahrestemperatur geringer als in
 Island. Nach diesen Angaben erscheint es als wahrscheinlich, daß
 Bouquer und Saussure im Irrthum sind, wenn sie annehmen, daß der
 Pic von Teneriffa die untere Grenze des ewigen Schrees erreiche.
-Unter 28° 17' der Breite ergeben sich für diese Grenze
+Unter 28°17′ der Breite ergeben sich für diese Grenze
 wenigstens 1950 Toisen, selbst wenn man sie zwischen dem Aetna
 und den Bergen von Mexico durch Interpolation berechnet. Dieser
 Punkt wird vollständig ins Reine gebracht werden, wenn einmal
@@ -5853,7 +5853,7 @@ nördlichen Halbkugel länger verweilt, so weist sie darauf hin,
 daß die Temperaturen der beiden Halbkugeln [Nimmt man mit
 Aepinus an, daß die südliche Halbkugel nur um ¹⁄₁₄ kälter ist
 als die nördliche, so ergibt die Rechnung für die nördliche
-Grenze des Ost-Süd-Ost-Passats 1° 28'.] sich verhalten wie 11
+Grenze des Ost-Süd-Ost-Passats 1°28′.] sich verhalten wie 11
 zu 9. In der Folge, wenn von der Luft über der Südsee die Rede
 ist, werden wir sehen, daß westwärts von Amerika der Südost-Passat
 nicht so weit über den Aequator hinausreicht als im
@@ -6171,7 +6171,7 @@ habe, wo manche Fische bis zu 94 Procent Sauerstoff in ihrer
 Schwimmblase zeigen.
 
 
-Am 1. Juli, unter 17° 42' der Breite und 34° 21' der Länge
+Am 1. Juli, unter 17°42′ der Breite und 34°21′ der Länge
 stießen wir auf die Trümmer eines Wrackes. Wir konnten einen
 Mastbaum sehen, der mit schwimmendem Tang überzogen war. In
 einem Strich, wo die See beständig ruhig ist, konnte das
@@ -6189,8 +6189,8 @@ Vorhandenseyn so zweifelhaft ist, als das der Inseln Fonseco und
 Santa Anna.^[Die Karten von Jefferys und Van-Keulen geben vier
 Inseln an, die nichts als eingebildete Gefahren sind: die Inseln
 Garca und Santa Anna, westlich von den Azoren, die grüne Insel
-(unter 14° 52' Breite, 28° 30' Länge) und die Insel Fonseco (unter
-13° 15' Breite, 57° 10' Länge). Wie kann man an die Existenz von
+(unter 14°52′ Breite, 28°30′ Länge) und die Insel Fonseco (unter
+13°15′ Breite, 57°10′ Länge). Wie kann man an die Existenz von
 vier Inseln in von Tausenden von Schiffen befahrenen Strichen
 glauben, da von so vielen kleinen Riffen und Untiefen, die seit
 hundert Jahren von leichtgläubien Schiffern angegeben worden
@@ -6203,7 +6203,7 @@ wenn man die Zahl der Fahrzeuge kennte, die seit dreihundert
 Jahren jährlich das atlantische Meer befahren, und wenn man
 dabei die ungleiche Vertheilung der Fahrzeuge in verschiedenen
 Strichen berüchsichtigte. Befände sich der Maalstrom, nach Van-Keulens
-Angabe unter 16° Breite und 39° 30' Länge, so wären wir
+Angabe unter 16° Breite und 39°30′ Länge, so wären wir
 am 4. Juli darüber weggefahren.]
  Es wäre
 wohl klüger gewesen, den Curs beizubehalten. Die alten
@@ -6247,7 +6247,7 @@ aufblicken, wie man eine schöne Landschaft oder eine großartige
 Aussicht bewundert. Man braucht kein Botaniker zu seyn, um schon
 am Anblick der Pflanzenwelt den heißen Erdstrich zu erkennen,
 und wer auch keine astronomischen Kenntnisse hat, wer von
-Flamsteads und Lacaille's Himmelskarten nichts weiß, fühlt, daß
+Flamsteads und Lacaille’s Himmelskarten nichts weiß, fühlt, daß
 er nicht in Europa ist, wenn er das ungeheure Sternbild des
 Schiffs oder die leuchtenden Magellanschen Wolken am Horizont
 aufsteigen sieht. Erde und Himmel, Allem in den
@@ -6282,7 +6282,7 @@ herrlichen Sternbilder am Südpol zu erblicken, das schien mit
 sehr hart. Im ungeduldigen Drange, die Aequatorialländer kennen
 zu lernen, konnte ich nicht die Augen zum Sterngewölbe
 aufschlagen, ohne an das südliche Kreuz zu denken und mir die
-erhabenen Verse Dante's vorzusagen, welche sich nach den
+erhabenen Verse Dantes vorzusagen, welche sich nach den
 berühmtesten Auslegern auf jenes Sternbild beziehen:^[
 > Rechts an des andern Poles Firmament
 > Boten sich dar vier Sterne meinen Blicken,
@@ -6392,7 +6392,7 @@ Behandlung zu sehen und sehnten uns mehr als je nach dem
 Augenblick, wo wir die Küste Amerikas betreten könnte.
 
 
-Seit mehreren Tagen war die Schätzung der Steuerleute um 1° 12'
+Seit mehreren Tagen war die Schätzung der Steuerleute um 1°12’
 von der Länge abgewichen, die mir mein Chronometer angab. Dieser
 Unterschied rührte weniger von der allgemeinen Strömung her, die
 ich den »Rotationsstrom« genannte habe, als von dem
@@ -6408,8 +6408,8 @@ unter dem Meerespiegel liegen?]
  Am zwölften Juli glaubte ich
 ankündigen zu können, daß Tags darauf vor
 Sonnenaufgang Land in Sicht seyn werde. Wir befanden uns jetzt
-nach meinen Beobachtungen unter 10° 46' der Breite und
-60° 54' westlicher Länge. Einige Reihen Mondsbeobachtungen
+nach meinen Beobachtungen unter 10°46’ der Breite und
+60°54’ westlicher Länge. Einige Reihen Mondsbeobachtungen
 bestätigten die Angabe des Chronometers; aber wir wußten besser,
 wo sich die Corvette befand, als wo das Land lag, dem unser Curs
 zuging und das auf den französischen, spanischen und englischen
@@ -6434,7 +6434,7 @@ dem Wind und der Mündung des Dragon nahe zu kommen. Wir waren
 allerdings unserer Länge sicherer als der Breite, da seit dem
 elften keine Beobachtung um Mittag gemacht worden war.
 Nach doppelten Höhen, die ich nach Douwes Methode
-am Morgen aufgenommen hatte, befanden wir uns in 11° 6' 50",
+am Morgen aufgenommen hatte, befanden wir uns in 11°6′50″,
 somit 15 Minuten weiter nach Nord als nach der Schätzung. Die
 Gewalt, mit der der große Orinocostrom seine Gewässer in den
 Ocean ergießt, mag in diesen Strichen immerhin den Zug der
@@ -6491,8 +6491,8 @@ Höhenwinkeln, die ich mit dem Sextanten genommen, scheinen
 indessen die höchsten Gipfel an der Küste nicht über 140–150
 Toisen [270 bis 290 m] hoch zu seyn. Am südlichen Vorgebirge
 senkt sich das Land und läuft in die »Sandspitze« aus, die nach
-meiner Rechnung unter 10° 20' 13" der Breite und
-62° 47' 30" der
+meiner Rechnung unter 10°20′13″ der Breite und
+62°47′30″ der
 Länge liegt. Wir sahen mehrere Felsen über dem Wasserspiegel, an
 denen sich die See mit Ungestüm brach, und beobachteten große
 Regelmäßigkeit in der Neigung und dem Streichen der Schichten,
@@ -6557,7 +6557,7 @@ heißt jenseits der Ränder der Bank.
 Das 
 *Cabo de tres puntas*, von Columbus selbst so benannt
 [Im August 1598.], liegt nach meinen Beobachtungen unter
-65° 4' 5" der Länge.
+65°4′5″ der Länge.
 Es erschien uns um so höher, da seine gezackten
 Gipfel in Wolken gehüllt waren. Das ganze Ansehen der Berge von
 Paria, ihre Farbe und besonders ihre meist runden Umrisse ließen
@@ -6767,10 +6767,10 @@ gefährlich sey, bei Guayra anzulegen, Erkundigung
 einzuziehen. Sonnenhöhen, die wir unter sehr günstigen
 Umstängen genommen, hatten uns gezeigt, wie unrichtig damals
 selbst die gesuchtesten Seekarten waren. Am 15. Morgens, wo wir
-uns nach dem Chronometer unter 66° 1' 15" der Länge befanden,
+uns nach dem Chronometer unter 66°1′15″ der Länge befanden,
 waren wir noch nicht im Meridian der Insel St. Margarita,
 während wir nach der verkleinerten Karte des atlantischen Oceans
-über das westliche sehr hohe Vorgebirge der Insel, das unter 66° 0'
+über das westliche sehr hohe Vorgebirge der Insel, das unter 66°0′
 der Länge gesetzt ist, bereits hätten hinaus seyn sollen. Die
 Küsten von Terra Firma wurden vor Fidalgos, Nogueras und
 Tiscars, und ich darf wohl hinzufügen, vor meinen astronomischen
@@ -6932,7 +6932,7 @@ Gegen Abend ließ der Capitän der Corvette den Anker lichten.
 Bevor wir die Untiefe oder den 
 *Placer* bei Coche
 verließen, bestimmte ich die Länge des östlichen Vorgebirges
-der Insel und fand sie 66° 11' 53".
+der Insel und fand sie 66°11′53″.
 Westwärts steuernd hatten wir bald die kleine Insel Cubagua vor
 uns, die jetzt ganz öde ist, früher aber durch Perlenfischerei
 berühmt war. Hier hatten die Spanier unmittelbar nach Columbus
@@ -6954,7 +6954,7 @@ Macanao im Westen der Insel Margarita majestätisch am Horizont
 aufsteigen. Nach den Höhenwinkeln, die wir in 18 Meilen
 Entfernung nahmen, mögen diese Gipfel 500–600 Toisen absolute
 Höhe haben. Nach Louis Berthoud´s Chronometer liegt Cap Macanao
-unter 66° 47' 5" Länge. Ich nahm die Felsen am Ende des
+unter 66°47′5″ Länge. Ich nahm die Felsen am Ende des
 Vorgebirges auf, nicht die sehr niedrige Landzunge, die nach
 West fortstreicht und sich in eine Untiefe verliert. Die Länge,
 die ich für Macanao gefunden, und die, welche ich oben für die
@@ -7914,11 +7914,11 @@ wahrscheinlich weil die Säule des sich entbindenden Gases mit
 Stickstoff und Kohlensäure vermengt ist und nicht bis zum Boden
 herab brennt. Das Volk, da übrigens hier zu Land nicht so
 abergläubisch ist als in Spanien, nennt diese röthlichen Flammen
-seltsamerweise »die Seele des Tyrannen Aguirre;« Lopez d'Aguirre
+seltsamerweise »die Seele des Tyrannen Aguirre;« Lopez d’Aguirre
 soll nämlich, von Gewisensbissen gefoltert, in dem Lande umgehen,
 das er mit seinen Verbrechen befleckt.^[Wenn das Volk in Cumana
 und auf der Insel Margarita von el tirano spricht, so ist
-immer der schändliche Lopez d'Aguirre gemeint, der im Jahr 1560
+immer der schändliche Lopez d’Aguirre gemeint, der im Jahr 1560
 sich am Aufstand Fernandos de Guzman gegen den Statthalter von Omegua
 und Dorado, Pedro de Ursua, betheiligtwe, und sich nachher selbst
 traidor, Verräther, nannte.]
@@ -8418,7 +8418,7 @@ nature* vom Abbé Pluche, noch der
 *cours de physique* von
 Sigand la Fond, noch das Wörterbuch von Valmont de Bomare
 befanden. Diese drei Werke und der 
-*traité d'économie
+*traité d’économie
 politique* von Baron Bielfeld sind die bekanntesten und
 geachtetsten fremden Bücher im spanischen Amerika von Caracas
 und Chili bis Guatimala und Nordmexico. Man gilt nur
@@ -8461,7 +8461,7 @@ starken Temperaturwechseln ausgesetzt gewesen.
 
 Aus meinen Beobachtungen in den Jahren 1799 und
 1800 ergibt sich als Gesammtresultat, daß der große Platz
-von Cumana unter 10° 27' 52" der Breite und 66° 30' 2"
+von Cumana unter 10°27′52″ der Breite und 66°30′2″
 der Länge liegt. Die Bestimmung der Länge gründet sich
 auf den Uebertrag der Zeit, aus Monddistanzen, auf die
 Sonnenfinsterniß vom 28. Oktober 1799 und aus zehn Immersionen
@@ -8470,7 +8470,7 @@ angestellten Beobachtungen. Sie weicht nur um sehr weniges
 von der ab, die Fidalgo vor mir, aber durch rein chronometrische
 Mittel gefunden. Unsere älteste Karte des neuen
 Continents, die von Diego Ribeiro, Geographen Kaiser Carls
-des Fünften, setzt Cumana unter 9° 30' Breite, was um
+des Fünften, setzt Cumana unter 9°30′ Breite, was um
 58 Minuten von der wahren Breite abweicht und einen halben
 Grad von der, die Jefferys in seinem im Jahr 1794
 herausgegebenen »Amerikanischen Steuermann« angibt. Dreihundert
@@ -8670,15 +8670,15 @@ spielt bei diesen Empfindungen eine große Rolle. Im Hafen
 von Guayaquil, wie überall in der heißen Zone auf tief gelegenem
 Boden, kühlt sich die Lust nur durch Gewitterregen
 ab, und ich habe beobachtet, daß, während der Thermometer
-auf 23°,8 fällt, der Deluc'sche Hygrometer auf 50–52 Grad
+auf 23°,8 fällt, der Deluc’sche Hygrometer auf 50–52 Grad
 stehen bleibt; dagegen steht er auf 37 bei einer Temperatur
 von 30°,5.
 In Cumana hört man bei starken Regengüssen in
 den Straßen schreien: 
-*"Que hielo! Estoy 
-emparamado!"*^["Welche Eiseskälte. Ich friere, als wäre 
+»*Que hielo! Estoy 
+emparamado!*«^[»Welche Eiseskälte. Ich friere, als wäre 
 ich auf dem Rücken der
-Berge!" Das provincielle Wort emparamarse läßt 
+Berge!« Das provincielle Wort emparamarse läßt 
 sich nur durch
 lange Umschreibung wiedergeben. Paramo, peruanisch
 Puna
@@ -8732,7 +8732,7 @@ hohen Berggipfel von Margarita, die Trümmer des Schlosses
 St. Jakob, den Cerro de la Vela und das Kalkgebirge des Brigantin,
 das gegen Süden den Horizont begrenzt. Wie reich die Halbinsel
 Araya an Kochsalz ist, wurde schon Alonso Niño bekannt, als er im
-Jahr 1499 in Colombo's, Djeda's und Amerigo Vespucci's Fußstapfen
+Jahr 1499 in Colombo’s, Djeda’s und Amerigo Vespucci’s Fußstapfen
 diese Länder besuchte. Obgleich die Eingeborenen
 Amerikas unter allen Völkern des Erdballes am wenigsten Salz
 verbrauchen, weil sie fast allein von Pflanzenkost leben,
@@ -9502,7 +9502,7 @@ erwachsen aus neuen Bedürfnissen andere Sitten;
 die geschichtlichen Erinnerungen verblassen allmählich, und die
 sich erhalten, knüpfen sich fortan gleich Phantasiegebilden
 weder an einen bestimmten Ort, noch an eine bestimmte Zeit.
-Der Ruhm Don Pelagio's und des Cid Campeador ist bis
+Der Ruhm Don Pelagio’s und des Cid Campeador ist bis
 in die Gebirge und Wälder Amerikas gedrungen; dem Volk
 kommen je zuweilen diese glorreichen Namen auf die Zunge,
 aber sie schweben seiner Seele vor wie Wesen aus einer idealen
@@ -9790,7 +9790,7 @@ Instrumente und das nötige Papier zum Pflanzentrocknen zu
 tragen. In derselben Kiste
 waren ein Sextant, ein Inclinationscompaß, ein Apparat
 zur Ermittlung der magnetischen Declination, Thermometer
-und ein Saussure'scher Hygrometer. Auf diese Jnstrumente
+und ein Saussure’scher Hygrometer. Auf diese Jnstrumente
 beschränkten wir uns bei kleineren Ausflügen immer. Mit
 dem Barometer mußte noch vorsichtiger umgegangen werden,
 als mit dem Chronometer, und ich bemerke hier, daß kein
@@ -11285,7 +11285,7 @@ wenige, rein örtliche Beobachtungen gründen.
 
 Nach Meridianhöhen des südlichen Fisches, die ich in der
 Nacht vom 7. September beobachtet, liegt Cumanacoa unter
-10° 16' 11" der Breite; die Angabe der geschätztesten Karten
+10°16′11″ der Breite; die Angabe der geschätztesten Karten
 ist also um ¼ Grad unrichtig. Die Neigung der Magnetnadel
 fand ich gleich 42°,60 und die Intensität der magnetischen
 Kraft gleich 228 Schwingungen in zehn Zeitminuten; die
@@ -11466,7 +11466,7 @@ Das Klima auf diesen Bergen ist so mild, daß beim
 Hofe auf dem Cocollar der Baumwollenbaum, der Kaffeebaum,
 sogar das Zuckerrohr gut fortkommen. Trotz aller Behauptungen
 der Einwohner an der Küste ist unter dem 10. Grad der
-Breite auf Bergen, die kaum höher sind als der Mont d'Or
+Breite auf Bergen, die kaum höher sind als der Mont d’Or
 und der Puy de Dome, niemals Reif gesehen worden. Die
 Weiden auf dem Turimiquiri nehmen an Güte ab, je höher
 sie liegen. Ueberall, wo zerstreute Felsmassen Schatten bieten,
@@ -11533,8 +11533,8 @@ aus dem Wasser aufsteigt.
 
 
 Der Hof auf dem Cocollar am Fuße des Turimiquiri
-liegt unter 10° 9' 32" der Breite. Die Inclination der
-Magnetnadel fand ich gleich 42° 10'. Die Nadel schwang
+liegt unter 10°9′32″ der Breite. Die Inclination der
+Magnetnadel fand ich gleich 42°10′. Die Nadel schwang
 220mal in zehn Zeitminuten. Die im Kalk liegenden Brauneisensteinmassen
 mögen die Intensität der magnetischen Kraft
 um ein Weniges steigern.
@@ -11870,7 +11870,7 @@ fand hier zu meiner Ueberraschung neben Feijos
 *teatro critico*
 und den »erbaulichen Briefen« auch Abbé Nollets 
 »
-*traité d'électricité*.«
+*traité d’électricité*.«
 Der Fortschritt in der geistigen Entwicklung
 ist, sollte man da meinen, sogar in den Wäldern Amerikas
 zu spüren. Der jüngste Kapuziner von der letzten Mission^[Außer
@@ -12134,7 +12134,7 @@ Schnabel. Streicht man nach Cuvier die Ordnung der
 **Passeres**
 stellen, deren Gattungen fast unmerklich in einander
 übergehen. Ich habe ihn im zweiten Band meiner
-*Observations de zoologie et d'anatomie comparée* in einer
+*Observations de zoologie et d’anatomie comparée* in einer
 eigenen Abhandlung unter dem Namen 
 *Steatornis* (Fettvogel)
 beschrieben. Er bildet eine neue Gattung, die sich von
@@ -12463,7 +12463,7 @@ entdeckt hat.
 Die interessanteste Beobachtung, welche der Physiker in
 den Höhlen anstellen kann, ist die genaue Bestimmung ihrer
 Temperatur. Die Höhle von Caripe liegt ungefähr unter
-10° 10' der Breite, also mitten im heißen Erdgürtel, und
+10°10′ der Breite, also mitten im heißen Erdgürtel, und
 506 Toisen über dem Spiegel des Wassers im Meerbusen von
 Cariaco. Wir fanden im September die Temperatur der Luft
 im Innern durchaus zwischen 18°,4 und 18°,9 der hunderttheiligen
@@ -12626,8 +12626,8 @@ Tagestemperatur gegen Ende Septembers. Die Instrumente
 blieben mehrere Stunden im Klosterhof aufgestellt, und fast
 immer harrte ich vergebens. Ein paar gute Beobachtungen
 Fomahaults und Denebs im Schwan ergaben für Caripe
-10° 10' 14" Breite, wornach es auf der Karte von Caulin um
-18', auf der von Arrowsmith um 14' unrichtig eingezeichnet ist.
+10°10′14 Breite, wornach es auf der Karte von Caulin um
+18′, auf der von Arrowsmith um 14′ unrichtig eingezeichnet ist.
 
 
 Der Verdruß, daß der bedeckte Himmel uns die Sterne
@@ -13450,7 +13450,7 @@ haben sich da niedergelassen und den Bau des Kaffeebaums,
 des Baumwollenstrauchs, des otaheitischen Zuckerrohrs eingeführt.
 In Carupano, im schönen Thal des Rio Caribe, in
 Guire und im neuen Flecken Punta de Pietro gegenüber dem
-Puerto d'Espana auf Trinidad hat die Bevölkerung sehr stark
+Puerto d’Espana auf Trinidad hat die Bevölkerung sehr stark
 zugenommen. Im 
 *Golfo triste* ist der Boden so fruchtbar,
 daß der Mais jährlich zwei Ernten und das 380ste Korn
@@ -38764,8 +38764,8 @@ des Barometers treten in Javita zu denselben Stunden
 ein wie an den Küsten und im Hof Antisana, wo mein Instrument
 in 2104 Toisen Meereshöhe hing. Sie betrugen
 von 9 Uhr Morgens bis 4 Uhr Abends 1,6 Linien, am
-vierten Mai sogar fast 2 Linien. Der Deluc'sche auf den
-Saussure'schen reducirte Hygrometer stand fortwährend im
+vierten Mai sogar fast 2 Linien. Der Deluc’sche auf den
+Saussure’schen reducirte Hygrometer stand fortwährend im
 Schatten zwischen 84 und 92°, wobei nur die Beobachtungen
 gerechnet sind, die gemacht wurden, so lange es nicht regnete.
 Die Feuchtigkeit hatte somit seit den großen Katarakten bedeutend

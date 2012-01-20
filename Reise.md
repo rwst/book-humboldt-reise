@@ -541,8 +541,8 @@ Hochebene in der Mitte des Landes ist umgeben von einer
 tiefgelegenen, schmalen Zone, wo an mehreren Punkten Chamärops,
 der Dattelbaum, das Zuckerrohr, die Banane und viele Spanien und
 dem nördlichen Afrika gemeinsame Pflanzen vorkommen, ohne vom
-Winterfrost zu leiden. Unter dem 36 – 40. Grad der Breite beträgt
-die mittlere Temperatur 17 – 20 Grad, und durch den Verein von
+Winterfrost zu leiden. Unter dem 36–40. Grad der Breite beträgt
+die mittlere Temperatur 17–20 Grad, und durch den Verein von
 Verhältnissen, die hier nicht aufgezählt werden können, ist
 dieser glückliche Landstrich der vornehmste Sitz des
 Gewerbfleißes und der Geistesbildung geworden.
@@ -3029,7 +3029,7 @@ Die Spätfröste thun ihnen weit weher als den Maulbeerbäumen in
 Piemont. In Italien bringt ein Frost von 5 Grad unter dem
 Gefrierpunkt kräftige Orangenbäume nicht um. Diese Bäume, die
 weniger empfindlich sind als Citronen, erfrieren nach Galesio
-erst bei –10° der hunderttheiligen Scale.]
+erst bei −10° der hunderttheiligen Scale.]
 
 
 Zwischen der Stadt Laguna, und dem Hafen von Orotava und der
@@ -13694,7 +13694,7 @@ sich zeigt, in der Morgendämmerung.
     
 
 
-Körperbeschaffenheit und Sitten der Chaymas. – Ihre Sprachen.
+Körperbeschaffenheit und Sitten der Chaymas. — Ihre Sprachen.
 
 
 
@@ -13977,8 +13977,8 @@ einen Orte in Reihen wie am andern; die Eintheilung ihres
 Tagewerks, ihre Arbeit im Gemeindeconuco, ihr Verhältniß
 zu den Missionären und den aus ihrer Mitte gewählten Beamten,
 Alles ist nach Vorschriften geordnet, die überall gelten.
-Und dennoch – und dieß ist eine höchst merkwürdige Beobachtung
-in der Geschichte der Völker – war diese große
+Und dennoch — und dieß ist eine höchst merkwürdige Beobachtung
+in der Geschichte der Völker — war diese große
 Gleichförmigkeit der Lebensweise nicht im Stande, die individuellen
 Züge, die Schattirungen, durch welche sich die amerikanischen
 Völkerschaften unterscheiden, zu verwischen. Der
@@ -14638,9 +14638,9 @@ der dem Menschen eigenthümlichen, sich vererbenden
 Anlagen.
 
 
-In Amerika nun – und dieses Ergebniß der neuesten
+In Amerika nun — und dieses Ergebniß der neuesten
 Forschungen ist für die Geschichte unserer Gattung von der
-höchsten Bedeutung – in Amerika haben vom Lande der Eskimos
+höchsten Bedeutung — in Amerika haben vom Lande der Eskimos
 bis zum Orinoco, und von den heißen Ufern dieses
 Flusses bis zum Eis der Magellanschen Meerenge den Wurzeln
 nach ganz verschiedene Stammsprachen so zu sagen dieselbe Physiognomie.
@@ -14837,7 +14837,7 @@ mit dem Tamanacu verwandt seyn müsse.
 Ich thue diese Verwandtschaft auf dem doppelten Wege
 dar, aus dem man die Analogie der Sprachen erkennt, durch
 den grammatischen Bau und durch die Uebereinstimmung der
-Worte oder Wurzeln. – Hier sind zuerst die persönlichen Fürwörter
+Worte oder Wurzeln. — Hier sind zuerst die persönlichen Fürwörter
 der Chaymas, die zugleich Possessiva sind: 
 *u-re*, ich,
 *cu-re*, du, 
@@ -15748,7 +15748,7 @@ vis.*
     
 
 
-Zweiter Aufenthalt in Cumana. – Erdbeben. – Ungewöhnliche Meteore.
+Zweiter Aufenthalt in Cumana. — Erdbeben. — Ungewöhnliche Meteore.
 
 
 
@@ -16520,8 +16520,8 @@ von Feuermeteoren herrührte, die bis zur Höhe von 12 bis
     
 
 
-Reise von Cumana nach Guayra. – Morro de Nueva Barcelona. – Das
-Vorgebirg Codera. – Weg von Guayra nach Caracas.
+Reise von Cumana nach Guayra. — Morro de Nueva Barcelona. — Das
+Vorgebirg Codera. — Weg von Guayra nach Caracas.
 
 
 
@@ -16826,8 +16826,8 @@ Schatten auf die Meeresfläche. Die Flamingos begannen
 ihren Fischfang allenthalben, wo nur in einer Bucht vor dem
 Kalkgestein ein schmaler Strand hinlief. Alle diese Eilande
 sind jetzt ganz unbewohnt; aber auf einer der Caracas leben
-wilde, braune, sehr große, schnellfüßige Ziegen mit – wie
-unser Steuermann versicherte – sehr wohlschmeckendem Fleisch.
+wilde, braune, sehr große, schnellfüßige Ziegen mit — wie
+unser Steuermann versicherte — sehr wohlschmeckendem Fleisch.
 Vor dreißig Jahren hatte sich eine weiße Familie daselbst
 niedergelassen und Mais und Manioc gebaut. Der Vater
 überlebte allein alle seine Kinder. Da sich sein Wohlstand
@@ -17227,8 +17227,8 @@ uns westwärts vom Cap Codera dem Curuao gegenüber. Der
 indianische Steuermann erschrack nicht wenig, als sich nordwärts
 in der Entfernung einer Seemeile eine englische Fregatte
 blicken ließ. Sie hielt uns wahrscheinlich für eines der Fahrzeuge,
-die mit den Antillen Schleichhandel trieben und –
-denn Alles organisirt sich mit der Zeit – vom Gouverneur
+die mit den Antillen Schleichhandel trieben und —
+denn Alles organisirt sich mit der Zeit — vom Gouverneur
 von Trinidad unterzeichnete Lizenzscheine führten. Sie ließ
 uns durch das Boot, das auf uns zuzukommen schien, nicht
 einmal anrufen. Vom Cap Codera an ist die Küste felsigt
@@ -18074,8 +18074,8 @@ in die Stadt Caracas.
     
 
 
-Allgemeine Bemerkungen über die Provinzen von Venezuela. – Ihre 
-verschiedenen Interessen. – Die Stadt Caracas. – Ihr Klima.
+Allgemeine Bemerkungen über die Provinzen von Venezuela. — Ihre 
+verschiedenen Interessen. — Die Stadt Caracas. — Ihr Klima.
 
 
 
@@ -19231,7 +19231,7 @@ in den Niederungen an der Küste zu Hause ist.
     
 
 
-Aufenthalt in Caracas. – Berge um die Stadt. – Besteigung des
+Aufenthalt in Caracas. — Berge um die Stadt. — Besteigung des
 Gipfels der Silla.
 
 
@@ -20526,7 +20526,7 @@ alle Colosse der Cordilleren überragt?
     
 
 
-Erdbeben von Caracas. – Zusammenhang zwischen dieser Erscheinung und
+Erdbeben von Caracas. — Zusammenhang zwischen dieser Erscheinung und
 den vulkanischen Ausbrüchen auf den Antillen.
 
 
@@ -20804,7 +20804,7 @@ meinte man, die Gefahr sey vorüber, als sich unter dem
 Boden ein furchtbares Getöse hören ließ. Es glich dem Rollen
 des Donners; es war aber stärker und dauerte länger als der
 Donner in der Gewitterzeit unter den Tropen. Diesem Getöse
-folgte eine senkrechte, etwa 3-4 Secunden anhaltende
+folgte eine senkrechte, etwa 3–4 Secunden anhaltende
 Bewegung und dieser wiederum eine etwas längere wellenförmige
 Bewegung. Die Stöße erfolgten in entgegengesetzter
 Richtung, von Nord nach Süd, und von Ost nach West.
@@ -21007,7 +21007,7 @@ so stark wie das, in dem die Hauptstadt untergegangen. Der
 Boden bewegte sich mehrere Stunden lang wellenförmig auf
 und ab. In den Gebirgen gab es große Erdfälle; ungeheure
 Felsmassen brachen von der Silla los. Man behauptete sogar
-– und diese Meinung ist noch jetzt im Lande weit verbreitet –
+— und diese Meinung ist noch jetzt im Lande weit verbreitet —
 die beiden Kuppeln der Silla seven um 50–60 Toisen niedriger
 geworden; aber diese Behauptung stützt sich auf keine
 Messung. Wie ich gehört, bildet man sich auch in der Provinz
@@ -21224,11 +21224,11 @@ an der gegenwärtigen Erdoberfläche weder als sehr gewaltig,
 noch als sehr ausgebreitet dar. Aber das Bild dieser
 Wirksamkeit erweitert sich vor unserem innern Blick mehr und
 mehr, je früher wir den Zusammenhang zwischen den Vulkanen
-derselben Gruppe kennen lernen, – und dergleichen Gruppen
+derselben Gruppe kennen lernen, — und dergleichen Gruppen
 sind z. B. die Vulkane in Neapel und auf Sicilien, die der
 canarischen Inseln, die der Azoren, die der kleinen Antillen,
 die in Mexico, in Guatimala und auf der Hochebene von
-Quito –; je genauer wir sowohl die Reactionen dieser verschiedenen 
+Quito —; je genauer wir sowohl die Reactionen dieser verschiedenen 
 Vulkansysteme auf einander, als die Entfernungen
 kennen lernen, in denen sie vermöge ihres Zusammenhangs in
 den Erdtiefen den Boden zu gleicher Zeit erschüttern. Das
@@ -21278,7 +21278,7 @@ an der Oberfläche zu Tage kommen, als Ausbrüche
 von Dämpfen, glühenden Schlacken, neuen vulkanischen Gesteinen
 und heißen Quellen, als Auftreibungen zu Inseln
 und Bergen, als Erschütterungen, die sich so schnell wie der
-elektrische Schlag fortpflanzen, endlich als unterirdische-: Donner,
+elektrische Schlag fortpflanzen, endlich als unterirdischer Donner,
 den man Monate lang, und ohne Erschütterung des Bodens,
 in großen Entfernungen von thätigen Vulkanen hört.
 
@@ -21386,9 +21386,9 @@ Erschütterungen beschäftigt, welche die Steinkruste des Erdballs
 von Zeit zu Zeit erleidet, und die unermeßlichen Jammer
 über ein Land bringen, das die Natur mit ihren köstlichsten
 Gaben ausgestattet hat. Ununterbrochene Ruhe herrscht
-in der obern Atmosphäre, aber – um einen Ausdruck 
+in der obern Atmosphäre, aber — um einen Ausdruck 
 **Franklin**s
-zu brauchen, der mehr witzig ist als richtig – in der
+zu brauchen, der mehr witzig ist als richtig — in der
 **unterirdischen Atmosphäre**, in diesem Gemisch elastischer
 Flüssigkeiten, deren gewaltsame Bewegungen wir an der
 Erdoberfläche empfinden, rollt häufig der Donner. Wir haben
@@ -21441,8 +21441,8 @@ Amerikas verknüpfen soll.
     
 
 
-Abreise von Caracas. – Gebirge von San Pedro und los Teques. –
-Victoria. – Thäler von Aragua.
+Abreise von Caracas. — Gebirge von San Pedro und los Teques. —
+Victoria. — Thäler von Aragua.
 
 
 
@@ -22030,7 +22030,7 @@ Gold nur aus einem Erzgang kommen, wo die Schürfung
 durch einen Erdfall verschüttet worden war. So bestimmt ich
 auch erklärte, nach dem bloßen Aussehen des Bodens, ohne
 einen tiefen Stollen in der Richtung des Ganges, könne ich
-nicht wissen, ob hier einmal gebaut worden sey – es half
+nicht wissen, ob hier einmal gebaut worden sey — es half
 nichts, ich mußte den Bitten meiner Wirthe nachgeben. Seit
 zwanzig Jahren war das Wamms des Verwalters im ganzen
 Bezirk tagtäglich besprochen worden. Das Gold, das man
@@ -22948,8 +22948,8 @@ und Grundbesitzer werden können.
     
 
 
-Der See von Valencia. – Die beißen Quellen von Mariara. – Die
-Stadt Nueva Valencia de el Rey. – Weg zur Küste von Porto Cabello
+Der See von Valencia. — Die beißen Quellen von Mariara. — Die
+Stadt Nueva Valencia de el Rey. — Weg zur Küste von Porto Cabello
 hinab.
 
 
@@ -24439,8 +24439,8 @@ wurde, nachdem die Seinigen von ihm abgefallen, in Barquesimeto
 erschlagen. Als es mit ihm zu Ende ging, stieß er
 seiner einzigen Tochter den Dolch in die Brust, »um ihr die
 Schande zu ersparen, bei den Spaniern die Tochter eines
-Verräthers zu heißen.« »Die Seele des Tyrannen« – so glauben
-die Eingeborenen – geht in den Savanen um in Gestalt
+Verräthers zu heißen.« »Die Seele des Tyrannen« — so glauben
+die Eingeborenen — geht in den Savanen um in Gestalt
 einer Flamme, die entweicht, wenn ein Mensch auf sie zugeht.
 
 
@@ -25846,8 +25846,8 @@ gar nicht ab.
     
 
 
-Gebirge zwischen den Thälern von Aragua und den Llanos von Caracas. –
-Villa de Cura. – Parapara. – Llanos oder Steppen. – Calabozo.
+Gebirge zwischen den Thälern von Aragua und den Llanos von Caracas. —
+Villa de Cura. — Parapara. — Llanos oder Steppen. — Calabozo.
 
 
 
@@ -26017,8 +26017,8 @@ de Cura liegt in einem sehr dürren Thale, das von Nordwest
 nach Südost streicht und nach meinen barometrischen Beobachtungen
 eine Meereshöhe von 266 Toisen hat. Außer einigen
 Fruchtbäumen hat das Land fast gar keinen Pflanzenwuchs.
-Das Plateau ist desto dürrer, da mehrere Gewässer – ein
-ziemlich seltener Fall im Urgebirge – sich auf Spalten im
+Das Plateau ist desto dürrer, da mehrere Gewässer — ein
+ziemlich seltener Fall im Urgebirge — sich auf Spalten im
 Boden verlieren. Der Rio de las Minas, nordwärts von
 Villa de Cura, verschwindet im Gestein, kommt wieder zu Tage
 und wird noch einmal unterirdisch, ohne den See von Valencia
@@ -26398,7 +26398,7 @@ auf den Horizont, der beständig vor einem zurückzuweichen
 scheint, die vereinzelten Palmstämme, deren einer aussieht wie
 der andere, und die man gar nicht erreichen zu können meint,
 weil man sie mit andern Stämmen verwechselt, die nach einander
-am Gesichtskreis auftauchen – all dieß zusammen macht,
+am Gesichtskreis auftauchen — all dieß zusammen macht,
 daß einem die Steppen noch weit größer vorkommen, als sie
 wirklich sind. Die Pflanzer am Südabhang des Küstengebirges
 sehen die Steppen grenzenlos, gleich einem grünen Ocean gegen
@@ -26454,7 +26454,7 @@ ist, so müßte man annehmen, sie sey einst von den
 Anden zwischen Santa Fe de Bogota und Pamplona abgegangen.
 Diese Bemerkung mag dazu dienen, die geographische
 Lage dieser Cordillere, die bis jetzt sehr wenig bekannt geworden,
-dem Leser besser einzuprägen. – Eine dritte Bergkette
+dem Leser besser einzuprägen. — Eine dritte Bergkette
 verbindet unter dem 16. und 18. Grad südl. Breite (über Santa
 Cruz de la Sierra, die Serranias von Aguapehy und die
 vielberufenen Campos dos Parecis) die peruanischen Anden
@@ -26910,7 +26910,7 @@ schmücken, beleuchteten im Niedergang einen Theil des Land-Horizonts.
 Das erhabene Schauspiel des Sternengewölbes in
 seiner ganzen unermeßlichen Ausdehnung, der frische Luftzug,
 der bei Nacht über die Ebene streicht, das Wogen des Grases,
-überall wo es eine gewisse Höhe erreicht – Alles erinnerte
+überall wo es eine gewisse Höhe erreicht — Alles erinnerte
 uns an die hohe See. Vollends stark wurde die Täuschung
 (man kann es nicht oft genug sagen), als die Sonnenscheibe
 am Horizont erschien, ihr Bild durch die Strahlenbrechung
@@ -27350,8 +27350,8 @@ Niemanden zu Rathe ziehen konnte, der die elektrischen Erscheinungen
 nur aus der Schrift des 
 **Sigaud de la Fond** und
 aus 
-**Franklin**s Denkwürdigkeiten kannte. Carlos del Pozo –
-so heißt der achtungswürdige, sinnreiche Mann – hatte zuerst
+**Franklin**s Denkwürdigkeiten kannte. Carlos del Pozo —
+so heißt der achtungswürdige, sinnreiche Mann — hatte zuerst
 aus großen Glasgefäßen, an denen er die Hälse abschnitt,
 Cylindermaschinen gebaut. Erst seit einigen Jahren hatte er
 sich aus Philadelphia zwei Glasplatten verschafft, um eine
@@ -28099,7 +28099,7 @@ der heißeste, weil ihm die Luft zugeführt wird, welche bereits
 über die ganze dürre Steppe weggegangen ist. Denselben
 Unterschied hat man zwischen den östlichen und westlichen
 Strichen der afrikanischen Wüsten da bemerkt, wo die Passate
-wehen. – In der Regenzeit nimmt die Hitze in den Llanos
+wehen. — In der Regenzeit nimmt die Hitze in den Llanos
 bedeutend zu, besonders im Juli, wenn der Himmel bedeckt
 ist und die strahlende Wärme gegen den Erdboden zurückwirft.
 In dieser Zeit hört der Seewind ganz auf, und nach 
@@ -28215,7 +28215,7 @@ Linien auseinander, dreimal weiter, als ich in Europa mit
 demselben Instrument bei heiterem Wetter in der Regel
 beobachtet. Vom 26. Mai an schien nun aber das elektrische
 Gleichgewicht in der Luft völlig gestört. Stundenlang war die
-Elektricität Null, wurde dann sehr stark – 4 bis 5 Linien –
+Elektricität Null, wurde dann sehr stark — 4 bis 5 Linien —
 und bald daraus war sie wieder unmerklich. 
 **Deluc**’s
 Hygrometer zeigte fortwährend große Trockenheit an, 33–35°, und
@@ -31093,8 +31093,8 @@ Es erscheint auffallend, daß die Indianer am Orinoco,
 wie die Eingeborenen in Nordamerika, rothe Farbstoffe allen
 andern vorziehen. Rührt diese Vorliebe davon her, daß der
 Wilde sich leicht ockerartige Erden oder das Farbmehl des
-Rocou und des Chica verschafft? Das möchte ich sehr be-
-zweifeln. In einem großen Theil des tropischen Amerika
+Rocou und des Chica verschafft? Das möchte ich sehr bezweifeln.
+In einem großen Theil des tropischen Amerika
 wächst der Indigo wild, und diese Pflanze, wie so viele andere
 Schotengewächse, hätten den Eingeborenen reichlich Mittel geboten,
 sich blau zu färben wie die alten Britannier, und doch
@@ -31855,7 +31855,8 @@ das die Augustiner auf den Ebenen am Casanare und Meta
 befolgen. In Macuco haben die Eingeborenen durch den Verkehr
 mit den Weißen im Dorf, die fast lauter 
 *Flüchtlinge
-  von Socorro*^[  Die Stadt Socorro, südlich vom Rio Sogamoza und nord-nord-östlich
+  von Socorro*^[  Die Stadt Socorro, südlich vom Rio Sogamoza und
+  nord-nord-östlich
   von Santa Fe de Bogota, war der Hauptherd des Aufruhrs, der
   im Jahr 1781 im Königreich Neu-Grenada unter dem Erzbischof Vicekönig
   Gongora wegen der Plackereien ausbrach, denen das Volk in Folge der
@@ -34671,8 +34672,8 @@ Wenn die Angabe des Instruments und die Empfindung so
 wenig übereinstimmten, so rührte dieß vom beständigen Hautreiz
 durch die Moskitos her. Eine von giftigen Insekten
 wimmelnde Luft kommt einem immer weit heißer vor, als sie
-wirklich ist. Das Saussuresche Hygrometer – im Schatten
-beobachtet, wie immer – zeigte bei Tag, im Minimum (um
+wirklich ist. Das Saussuresche Hygrometer — im Schatten
+beobachtet, wie immer — zeigte bei Tag, im Minimum (um
 drei Uhr Nachmittags), 78°2; bei Nacht, im Maximum, 81°5.
 Diese Feuchtigkeit ist um 5 Grad geringer als die mittlere
 Feuchtigkeit an der Küste von Cumana, aber um 10 Grad
@@ -41468,7 +41469,7 @@ Erinnerungen. Hier hatte Cocuy, der Häuptling der Manitivitanos,
 von dem oben die Rede war [S. Bd. III. Seite 277.],
 sein 
 **Harem**, und
-hier verspeiste er – um Alles zu sagen –
+hier verspeiste er — um Alles zu sagen —
 aus besonderer
 Vorliebe die schönsten und fettesten seiner Weiber. Ich zweifle
 nicht, daß Cocuy allerdings ein wenig ein Menschenfresser
@@ -41677,7 +41678,7 @@ der grünen Steine, die unter dem Namen
 bekannt sind, weil die Indianer nach einer alten Sage behaupten,
 sie kommen aus dem Lande der »Weiber ohne Männer«
 ( *Cougnantainsecouima* oder
-*Aikeambenano* – Weiber,
+*Aikeambenano* — Weiber,
 die allein leben). In San Carlos und den benachbarten
 Dörfern nannte man uns die Quellen des Orinoco östlich
 von Esmeralda, in den Missionen am Carony und in Angostura
@@ -41999,8 +42000,8 @@ die den größten Theil des Jahrs keinen Verkehr mit
 Männern hätten. Anderemale sahen die Conquistadoren einen
 Amazonenfreistaat, wo sie nur Weiber vor sich hatten, die in
 Abwesenheit der Männer ihre Hütten vertheidigten, oder auch
-– und dieses Mißverständniß ist schwerer zu entschuldigen
-– jene religiösen Vereine, jene Klöster mexicanischer
+— und dieses Mißverständniß ist schwerer zu entschuldigen
+— jene religiösen Vereine, jene Klöster mexicanischer
 Jungfrauen, die zu keiner Zeit im Jahre Männer bei sich
 aufnahmen, sondern nach der strengen Regel Quetzalcohuatls
 lebten. Die allgemeine Stimmung brachte es mit sich, daß
@@ -42092,7 +42093,7 @@ Punkt (unter 3°12′ nördlicher Breite und
 Länge), wo ich so glücklich war, bei ganz stiller Luft beobachten
 zu können.
 
-Vierundzwanzigster Kapitel.
+Vierundzwanzigstes Kapitel.
 ===========================
 
 <sc>Der Cassiquiare. — Gabeltheilung des Orinoco.</sc>
@@ -42202,7 +42203,7 @@ zu. Südlich vom Raudal von Caravine bemerkten wir,
 daß der Cassiquiare auf seinem gekrümmten Lauf San Carlos
 wieder nahe kommt. Von der Schanze in die Mission San
 Francisco, wo wir übernachteten, sind es zu Lande nur zwei
-und eine halbe Meile, während man auf dem Fluß 7—8 rechnet.
+und eine halbe Meile, während man auf dem Fluß 7–8 rechnet.
 Ich verweilte einen Theil der Nacht im Freien in der
 vergeblichen Hoffnung, die Sterne zum Vorschein kommen zu
 sehen. Die Luft war nebligt trotz der **weißen Wasser**, die
@@ -42780,7 +42781,7 @@ um ihn zu verzehren. Ein sehr glaubwürdiger Schriftsteller,
 Abd-Allatif, erzählt uns, »wie eine Sitte, die Anfangs Abscheu
 und Entsetzen einflößte, bald gar nicht mehr auffiel.«^[*Abd-Allatif,
 Médecin de Bagdad, Relation de l’Égypte, trad.
-par Silvestre de Sacy.* —- »Als die Armen anfingen
+par Silvestre de Sacy.* — »Als die Armen anfingen
 Menschenfleisch zu
 essen, war der Abscheu und das Entsetzen
 über so gräßliche Gerichte so
@@ -42992,7 +42993,7 @@ Zierde der Wälder hier und am Rio Negro. Wir untersuchten
 mehrmals am Tage die Temperatur des Cassiquiare.
 Das Wasser zeigte an der Oberfläche nur 24° (in der Luft
 stand der Thermometer auf 25°,6), also ungefähr so viel
-als der Rio Negro, aber 4—5° weniger als der Orinoco.
+als der Rio Negro, aber 4–5° weniger als der Orinoco.
 Nachdem wir westwärts die Mündung des Caño Caterico,
 der schwarzes, ungemein durchsichtiges Wasser hat, hinter uns
 gelassen, verließen wir das Flußbett und landeten an einer
@@ -43390,7 +43391,7 @@ selbst brechen und den Einfluß dieser Wasserscheiden, so zu
 sagen, in bedeutender Entfernung fühlen. Geographen, welche
 Topographie nach der Natur studirt und selbst Bodenvermessungen
 vorgenommen haben, können sich nicht wundern, daß auf
-Karten, auf denen wegen ihres Maßstabes ein Gefälle von 3—5
+Karten, auf denen wegen ihres Maßstabes ein Gefälle von 3–5
 Grad sich nicht angeben läßt, die Ursachen der großen Flußkrümmungen
 materiell gar nicht ersichtlich sind. Der Orinoco
 läuft von der Mündung des Apure bis zu seinem Ausfluß
@@ -43631,7 +43632,7 @@ Baron Hermelins schöne Karten von Norwegen nach allen
 Theilen bekannt geworden ist. In Lappland sendet der
 Torneofluß einen Arm (den Tärendo-Elf) zum Calix-Elf, der
 ein kleines hydraulisches System für sich bildet. Dieser Cassiquiare
-der nördlichen Zone ist nur 10—12 Meilen lang,
+der nördlichen Zone ist nur 10–12 Meilen lang,
 er macht aber alles Land am bothnischen Busen zu einer
 wahren Flußinsel. Durch Leopold von Buch wissen wir, daß
 die Existenz dieses natürlichen Canals lange so hartnäckig geläugnet
@@ -43671,7 +43672,7 @@ Zustand keineswegs *placidus et mitissimus amnis*
 ist, wie es bei den Poeten Latiums heißt; er gleicht durchaus
 nicht dem *errans languido flumine Cocytus*, da er im
 größten Theile seines Laufs die ungemeine Geschwindigkeit
-von 6—8 Fuß in der Sekunde hat. Es ist also wohl nicht
+von 6–8 Fuß in der Sekunde hat. Es ist also wohl nicht
 zu fürchten, daß er ein mehrere hundert Toisen breites Bett
 ganz verstopft. Dieser Arm des obern Orinoco ist eine zu
 großartige Erscheinung, als daß die kleinen Umwandlungen,
@@ -44057,7 +44058,7 @@ an der Stelle, wo letzterer Fluß aus seiner Richtung
 von Ost nach West rasch in die von Süd nach Nord übergeht,
 sah er von weitem eine Pirogue, so groß wie die seinige,
 voll von europäisch gekleideten Leuten. Er ließ, gemäß der
-Sitte der Missionäre, wenn sie in unbekanntem -Land auf
+Sitte der Missionäre, wenn sie in unbekanntem Land auf
 dem Wasser sind, als Friedenszeichen das Crucifix am Vordertheil
 seines Fahrzeugs aufpflanzen. Die Weißen (es waren
 portugiesische Sklavenhändler vom Rio Negro) erkannten mit
@@ -44508,7 +44509,7 @@ haben gesehen, daß sie in ihren Folgen eben nicht sehr bedenklich
 sind.
 
 Wenn die **Villa** Esmeralda mit ihrer Bevölkerung von
-12—15 Familien gegenwärtig für einen schrecklichen Aufenthaltsort
+12–15 Familien gegenwärtig für einen schrecklichen Aufenthaltsort
 gilt, so kommt dieß nur vom Mangel an Anbau,
 von der Entlegenheit von allen bewohnten Landstrichen und
 von der furchtbaren Menge der Moskitos. Die Lage der
@@ -44668,7 +44669,7 @@ frisch oder seit mehreren Wochen getrocknet verarbeitet. Der
 frische Saft der Liane gilt nicht für giftig; vielleicht zeigt
 er sich nur wirksam, wenn er stark concentrirt ist. Das
 furchtbare Gift ist in der Rinde und einem Theil des Splints
-enthalten. Man schabt mit einem Messer 4—5 Linien dicke
+enthalten. Man schabt mit einem Messer 4–5 Linien dicke
 Mavacurezweige ab und zerstößt die abgeschabte Rinde auf
 einem Stein, wie er zum Reiben des Maniocmehls dient, in
 ganz dünne Fasern. Da der giftige Saft gelb ist, so nimmt
@@ -44745,7 +44746,7 @@ den Früchten der Crescentia verkauft; da aber die Bereitung
 desselben in den Händen weniger Familien ist und an jedem
 Pfeile nur unendlich wenig Gift haftet, so ist das Curare
 bester Qualität, das von Esmeralda und Mandavaca, sehr
-theuer. Ich sah für zwei Unzen 5—6 Franken bezahlen.
+theuer. Ich sah für zwei Unzen 5–6 Franken bezahlen.
 Getrocknet gleicht der Stoff dem Opium; er zieht aber die
 Feuchtigkeit stark an, wenn er der Luft ausgesetzt wird. Er
 schmeckt sehr angenehm bitter und Bonpland und ich haben
@@ -44840,8 +44841,8 @@ bringen. Er hätte eine Operation, auf die er trotz
 seines Schwächezustandes ein sehr großes Gewicht legte, keinem
 Andern überlassen mögen. Große Vögel, z.&nbsp;B. ein Guan
 (*Pava de monte*) oder ein Hocco (*Alector*) sterben, wenn
-man sie in den Schenkel sticht, in 2—3 Minuten; bei einem
-Schwein oder Pecari dauert es oft 10—12. Bonpland fand,
+man sie in den Schenkel sticht, in 2–3 Minuten; bei einem
+Schwein oder Pecari dauert es oft 10–12. Bonpland fand,
 daß dasselbe Gift in verschiedenen Dörfern, wo man es kaufte,
 sehr verschieden war. Wir bekamen am Amazonenstrom ächtes
 Gift der Ticunas-Indianer, das schwächer war als alle Sorten
@@ -45394,10 +45395,10 @@ von Cumana an den obern Orinoco geführt. Das Land zwischen
 Javita, Vasiva und Esmeralda ist eine weite Ebene, und da
 ich an den beiden ersteren Orten den Barometer beobachtet habe,
 so kann ich mich hinsichtlich der absoluten Höhe der Savanen
-am Sodomoni höchstens um 15—20 Toisen irren. Der
+am Sodomoni höchstens um 15–20 Toisen irren. Der
 Cerro Duida steht an Höhe dem St. Gotthard und der Silla
 bei Caracas am Küstenland von Venezuela nur wenig (kaum
-80—100 Toisen) nach. Er gilt auch hier zu Lande für einen
+80–100 Toisen) nach. Er gilt auch hier zu Lande für einen
 colossalen Berg, woraus wir ziemlich sicher auf die mittlere
 Höhe der Sierra Parime und aller Berge im östlichen Amerika
 schließen können. Oestlich von der Sierra Nevada de
@@ -45493,7 +45494,7 @@ Tamatama, Sodomoni, Guapo, Caurimoni und Simirimoni,
 gegen Süd dem Einfluß des Cuca zwischen dem Hügel Guaraco,
 der Flammen auswerfen soll, und dem Cerro Canelilla,
 hinter sich gelassen. Auf diesem Strich bleibt der Orinoco
-300—400 Toisen breit. Auf dem rechten Ufer kommen mehr
+300–400 Toisen breit. Auf dem rechten Ufer kommen mehr
 Flüsse herein, weil sich an dieser Seite die hohen Berge Duida
 und Maraguaca hinziehen, auf welchen sich die Wolken lagern,
 während das linke Ufer niedrig ist und an die Ebene stößt,
@@ -45604,7 +45605,7 @@ mitten aus dem Flußbett erheben. Diese Brücke, die
 sämmtliche Einwohner in Esmeralda wohl kennen, scheint zu
 beweisen, daß der Orinoco an dieser Stelle bereits ziemlich
 schmal ist. Die Indianer geben seine Breite meist nur zu
-200—300 Fuß an; sie behaupten, oberhalb des Raudals
+200–300 Fuß an; sie behaupten, oberhalb des Raudals
 der Guaharibos sey der Orinoco kein Fluß mehr, sondern ein
 *Riachuelo* (ein Bergwasser), wogegen ein sehr unterrichteter
 Geistlicher, Fray Juan Gonzales, der das Land besucht hat,
@@ -45786,7 +45787,7 @@ der Civilisation sind, ihnen abgerungen. Solanos
 Grenzexpedition und der abenteuerliche Eifer, mit dem ein
 Statthalter von Guyana^[Don Manuel Centurion,
 *Governador y Comendante general de
-la Guayana* von 1766—1777.] den Dorado suchte, hatten in der
+la Guayana* von 1766–1777.] den Dorado suchte, hatten in der
 zweiten Hälfte des achtzehnten Jahrhunderts den Unternehmungsgeist
 wieder wach gerufen, der die Castilianer bei der
 Entdeckung von Amerika beseelte. Man hatte am Rio Padamo
@@ -45959,7 +45960,7 @@ liegen auf den Grenzen der Missionen am Rio
 Carony, am Rio Caura und am obern Orinoco.] die muthigsten,
 verständigsten und in den Indianersprachen bewandertsten Missionäre
 stellt. Das kleine Stück, das vom Orinoco noch zu
-berichtigen ist (wahrscheinlich eine Strecke von 25—30 Meilen),
+berichtigen ist (wahrscheinlich eine Strecke von 25–30 Meilen),
 wird bald entdeckt seyn; in Süd- wie in Nordamerika sind
 die Missionäre überall zuerst auf dem Platz, weil ihnen Vortheile
 zu statten kommen, die andern Reisenden abgehen.
@@ -46406,12 +46407,12 @@ gegangen.
 
 Wir haben oben gesehen, daß die Region der Felsen mit
 Bildwerk oder der **gemalten Steine** weit über den untern
-Orinoco, über den Landstrich (7°5′—7°40′ der Breite,
+Orinoco, über den Landstrich (7°5′–7°40′ der Breite,
 68°50′—69°45′ der Länge) hinausreicht, dem die Sage
 angehört, die man als den **Localmythus** der Tamanaken
 bezeichnen kann. Man findet dergleichen Felsen mit Bildern
-zwischen dem Cassiquiare und Atabapo (2°5′—3°20′ der
-Breite, 69°—70° der Länge), zwischen den Quellen des Essequebo
+zwischen dem Cassiquiare und Atabapo (2°5′–3°20′ der
+Breite, 69°–70° der Länge), zwischen den Quellen des Essequebo
 und des Rio Branco (3°50′ der Breite, 62°32′
 der Länge). Ich behaupte nicht, daß diese Bilder beweisen,
 daß ihre Verfertiger den Gebrauch des Eisens gekannt, auch
@@ -46473,7 +46474,7 @@ Jao hinaus, und die Seekühe kommen sogar oberhalb des
 Katarakts von Maypures nicht mehr vor. Hinsichtlich der
 ersteren kann man sich leicht täuschen. Wenn der Reisende
 an ihren Anblick noch so sehr gewöhnt ist, kann er einen
-12—15 Fuß langen Baumstamm für ein schwimmendes Krokodil
+12–15 Fuß langen Baumstamm für ein schwimmendes Krokodil
 halten, von dem man nur Kopf und Schwanz zum
 Theil über dem Wasser sieht.
 
@@ -46504,7 +46505,7 @@ Wäldern so massenhaft daliegt, als ohne die dicke
 Thonschicht, die in den Llanos von Venezuela den Sandstein
 bedeckt. Kleine krautartige Mimosen helfen in dieser Zone
 das Vieh satt machen, sie werden aber zwischen dem Rio Jao
-und-der Mündung des Guaviare sehr selten.
+und der Mündung des Guaviare sehr selten.
 
 In den wenigen Stunden, die wir uns in der Mission
 Santa Barbara aufhielten, erhielten wir ziemlich genaue Angaben
@@ -46521,7 +46522,7 @@ der Mariata und der Manipiare, an denen die Macos- und
 Curacicanas-Indianer wohnen. Letztere Nation zeichnet sich
 durch ihren Eifer für den Baumwollenbau aus. Bei einem
 Streifzug (*entrada*) fand man ein großes Haus, in dem
-30—40 sehr fein gewobene Hängematten, gesponnene Baumwolle,
+30–40 sehr fein gewobene Hängematten, gesponnene Baumwolle,
 Seilwerk und Fischereigeräthe waren. Die Eingeborenen
 waren davongelaufen und Pater Valor erzählte uns, »die
 Indianer aus seiner Mission, die er bei sich hatte, haben das
@@ -46664,7 +46665,7 @@ obgleich dieses Dorf mit seinen schönen
 Pihiguao-Palmen^[S. Bd. III. Seite 281, 300.] mit Pfirsichfrüchten
 uns ein köstlicher Aufenthalt schien.
 Zahme **Pauxis**^[Es ist dieß nicht Cuviers Ourax
-(*Crax Pauxi*, Lin.), sondern der
+( *Crax Pauxi*, Lin.), sondern der
 *Crax alector*.] liefen um die Hütten der Indianer her.
 In einer derselben sahen wir einen sehr seltenen Affen, der am
 Guaviare lebt. Es ist dieß der **Caparro**, den ich in meinen
@@ -47345,8 +47346,8 @@ Indianer im Dorf verpflichtet sind, »für das Kloster zu fischen«.
 Zur Zeit der Ueberschwemmungen nun, die zwei bis drei
 Monate dauern, verschlingen die Otomaken Erde in unglaublicher
 Masse. Wir fanden in ihren Hütten pyramidalisch
-aufgesetzte, 3—4 Fuß hohe Kugelhaufen; die Kugeln hatten
-3—4 Zoll im Dnrchmesser. Die Erde, welche die Otomaken
+aufgesetzte, 3–4 Fuß hohe Kugelhaufen; die Kugeln hatten
+3–4 Zoll im Durchmesser. Die Erde, welche die Otomaken
 essen, ist ein sehr feiner, sehr fetter Letten; er ist gelbgrau,
 und da er ein wenig am Feuer gebrannt wird, so sticht die
 harte Kruste etwas ins Rothe, was vom darin enthaltenen
@@ -47354,7 +47355,7 @@ Eisenoxyd herrührt. Wir haben von dieser Erde, die wir
 vom Wintervorrath der Indianer genommen, mitgebracht.
 Daß sie specksteinartig sey und Magnesia enthalte, ist durchaus
 unrichtig. Vauquelin fand keine Spur davon darin, dagegen
-mehr Kieselerde als Alaunerde und 3—4 Procent Kalk.
+mehr Kieselerde als Alaunerde und 3–4 Procent Kalk.
 
 Die Otomaken essen nicht jede Art Thon ohne Unterschied;
 sie suchen die Alluvialschichten auf, welche die fetteste, am
@@ -47393,8 +47394,8 @@ einfach Folgendes. Die Otomaken essen mehrere Monate lang
 täglich dreiviertel Pfund am Feuer etwas gehärteten Letten,
 ohne daß ihre Gesundheit dadurch merklich leidet. Sie netzen
 die Erde wieder an, bevor sie sie verschlucken. Es ließ sich
-bis jetzt nicht genau ermitteln, wie viel nährende vegetabi-
-lische oder thierische Substanz sie während dieser Zeit in der
+bis jetzt nicht genau ermitteln, wie viel nährende vegetabilische
+oder thierische Substanz sie während dieser Zeit in der
 Woche zu sich nehmen; so viel ist aber sicher, sie selbst
 schreiben ihr Gefühl der Sättigung dem Letten zu und nicht
 den kümmerlichen Nahrungsmitteln, die sie von Zeit zu Zeit
@@ -47490,7 +47491,7 @@ Erdegenuß ist der Gesundheit nachtheilig; die Weiber verlieren
 allmählich die Eßlust und nehmen nur mit Widerwillen sehr
 wenig Speise zu sich. Aber der Wunsch, mager und schlank
 zu bleiben, läßt sie aller Gefahr trotzen und erhält den Ampo
-bei Credit.«« — Auch die barbarischen Bewohner von Neu-Caledonien
+bei Credit.« — Auch die barbarischen Bewohner von Neu-Caledonien
 essen zur Zeit der Noth, um den Hunger zu beschwichtigen,
 mächtige Stücke eines weißen, zerreiblichen Topfsteins.
 Vauquelin fand darin bei der Analyse, neben Magnesia
@@ -48103,7 +48104,7 @@ und der Stromenge am Baragnan sollte einmal von einem
 guten Zoologen besucht werden. Der Lagarto ohne Hinterbeine
 ist vielleicht eine Art Siren, abweichend vom *Siren
 lacertina* in Carolina. Wäre es ein Saurier, ein eigentlicher
-»Bimane« (*Chirotes*, Cuvier), so hätten die Eingeborenen
+»Bimane« ( *Chirotes*, Cuvier), so hätten die Eingeborenen
 das Thier nicht mit einer Eidechse verglichen. Außer
 den Arau-Schildkröten, von denen ich oben ausführlich
 gesprochen,^[S. Bd. III. Seite 67.]
@@ -48119,7 +48120,7 @@ dieselbe Lebensweise. Ich habe schon oben vom **Sommerschlaf**
 mancher Thiere unter den Tropen
 gesprochen.^[S. Bd. II. Seite 412. III. 81.] Die
 Eingeborenen kennen die Löcher, in denen die Schildkröten
-im ausgetrockneten Boden schlafen, und graben sie 15—18 Zoll
+im ausgetrockneten Boden schlafen, und graben sie 15–18 Zoll
 tief in Menge auf einmal aus. Nach Pater Gili, der solches
 mit angesehen, ist dieß nicht gefahrlos, weil sich im Sommer
 häufig Schlangen mit den **Terekays** eingraben.
@@ -49893,8 +49894,8 @@ offen, voll schöner Savanen, ganz anders als das Land,
 werden die Wälder erst dem Süden zu, gegen Nord
 sind Wiesgründe, von bewaldeten Hügeln durchschnitten. Die
 malerischsten Landschaften sind bei den Fällen des Carony
-und in der 250 Toisen hohen Bergkette zwischen den Neben-
-flüssen des Orinoco und denen des Cuyuni. Hier liegen
+und in der 250 Toisen hohen Bergkette zwischen den Nebenflüssen
+des Orinoco und denen des Cuyuni. Hier liegen
 Villa de Upata, der Hauptort der Missionen, Santa Maria
 und Cupapui. Auf kleinen Hochebenen herrscht ein gesundes,
 gemäßigtes Klima; Cacao, Reis, Baumwolle, Indigo und
@@ -49954,7 +49955,7 @@ Klippen über dem Wasser hat. Der große **Salto**, vielberufen
 wegen der malerischen Reize der Landschaft, liegt etwas
 oberhalb des Dorfes Aguacagua oder Carony, das zu meiner
 Zeit eine Bevölkerung von 700 Indianern hatte. Der Wasserfall
-soll 15—20 Fuß hoch seyn, aber die Schwelle läuft nicht
+soll 15–20 Fuß hoch seyn, aber die Schwelle läuft nicht
 über das ganze mehr als 300 Fuß breite Flußbett. Wenn
 sich einmal die Bevölkerung mehr gegen Ost ausbreitet, so
 kann sie die kleinen Flüsse Imataca und Aquire benützen, die
@@ -49997,8 +49998,8 @@ die Canäle oder *Esteres* zwischen dem Rio Barima und dem
 Rio Moroca Vorschub; sie treiben den Missionären das Vieh
 weg und verleiten die neubekehrten Indianer (die **unter der
 Glocke** leben), wieder in den Wald zu laufen. Die freien
-Horden haben überall den natürlichen Trieb, sich den Fort-
-schritten der Cultur und dem Vordringen der Weißen zu
+Horden haben überall den natürlichen Trieb, sich den Fortschritten
+der Cultur und dem Vordringen der Weißen zu
 widersetzen. Die Caraiben und Aruacas verschaffen sich in
 Essequebo und Demerary Feuergewehre, und als der Handel
 mit amerikanischen Sklaven (*poitos*) in Blüthe stand, 
@@ -50956,7 +50957,7 @@ auf Lamas reitenden Volke, die Ordaz vom Meta mitgebracht.
 Pedro de Limpias, ein alter Soldat, der mit Federmann auf
 der Hochebene von Bogota gewesen war, brachte die erste Kunde
 vom Dorado nach Coro, wo das Andenken an die Expedition
-Georgs von Speier (1535—37) an den Rio Papamene noch
+Georgs von Speier (1535–37) an den Rio Papamene noch
 ganz frisch war. Von dieser selben Stadt Coro aus unternahm
 auch Felipe de Hutten (Urre, Utre) seine vielberufene Reise
 in das Gebiet der Omaguas, während Pizarro, Orellana
@@ -51133,8 +51134,8 @@ ersichtlich, daß man annahm, die **Laguna de Manoa** (del
 aus dem man die **Laguna Cassipa** gemacht hatte. »Diese
 beiden Wasserbecken hatten goldhaltigen Sand; aber am Ufer
 des Cassipa lag Macureguaira (Margureguaira), die Hauptstadt
-des Caziken Aromaja und die vornehmste Stadt des ein-
-gebildeten Reiches Guyana.«
+des Caziken Aromaja und die vornehmste Stadt des eingebildeten
+Reiches Guyana.«
 
 Da diese häufig überschwemmten Landstriche von jeher
 von Völkern caraibischen Stammes bewohnt waren, die tief
@@ -51444,7 +51445,7 @@ er in der zweiten Ausgabe seiner schönen Karte von Amerika
 (1760) die **Laguna Parime** wieder auf und ließ sie ganz
 willkürlich durch den Mazuruni und den Cuyuni mit drei
 Flüssen (dem Orinoco, dem Rio Branco und dem Essequebo)
-in Verbindung stehen. Er verlegte sie unter den 3—4. Grad
+in Verbindung stehen. Er verlegte sie unter den 3–4. Grad
 nördlicher Breite, wohin man bisher den See Cassipa gesetzt hatte.
 
 Der spanische Geograph la Cruz Olmedilla (1775) folgte
@@ -52160,7 +52161,7 @@ deutet, unser Interesse so lebhaft in Anspruch.
 Mitten auf den Niederungen von Nordamerika hat ein
 mächtiges ausgestorbenes Volk kreisrunde, viereckigte, achteckigte
 Festungswerke gebaut, Mauern, 6000 Toisen lang,
-Erdhügel von 600—700 Fuß Durchmesser und 140 Fuß
+Erdhügel von 600–700 Fuß Durchmesser und 140 Fuß
 Höhe, die bald rund sind, bald mehrere Stockwerke haben
 und Tausende von Skeletten enthalten. Diese Skelette gehörten
 Menschen an, die nicht so hoch gewachsen, untersetzter
@@ -52640,7 +52641,7 @@ ordnenden Instinct,^[Wilhelm von Humboldt, »über das
 vergleichende Sprachstadium in
 Beziehung auf die verschiedenen Epochen
 der Sprachentwicklung.« (S. 13).
-S. auch Bd. II. Seite 28—47.] der auf den verschiedensten Stufen der
+S. auch Bd. II. Seite 28–47.] der auf den verschiedensten Stufen der
 Barbarei und der Cultur als das eigentliche Wesen der
 menschlichen Geisteskraft erscheint. An Festtagen versammelt
 sich nach der Messe die ganze Gemeinde vor der Kirche. Die
@@ -54084,7 +54085,7 @@ zwischen der Temperatur der Luft und des verwitterten Gesteins
 gemacht hatten. Erstere betrug gegen 11 Uhr Vormittags,
 des Seewinds wegen, nur 27 Grad, letztere dagegen 49°6.
 Der Saft in den Fackeldisteln (*Cactus quadrangularis*)
-zeigte 38-41°; soviel zeigte ein Thermometer, dessen Kugel
+zeigte 38–41°; soviel zeigte ein Thermometer, dessen Kugel
 ich in den fleischigten, saftigen Stamm der Cactus hineinsteckte.
 Diese innere Temperatur eines Gewächses ist das
 Produkt der Wärme des Sandes, in dem die Wurzeln sich
@@ -54184,7 +54185,7 @@ das Geringste wuchs. Der Glimmerschiefer geht zuweilen in
 schwarzgrauen Thonschiefer über. Auch hier fiel mir wieder
 die ungemeine Regelmäßigkeit im Streichen und Fallen der
 Schichten auf. Sie streichen Nord 50 Grad Ost und fallen
-unter einem Winkel von 60—70° nach Nordwest. Dieses
+unter einem Winkel von 60–70° nach Nordwest. Dieses
 allgemeine Streichungsverhältniß hatte ich auch am granitischen
 Gneiß bei Caracas und am Orinoco, an den Hornblendeschiefern
 bei Angostura beobachtet, sogar an den meisten
@@ -54200,7 +54201,7 @@ büschelförmiger Krystalle von Titanerz. Vergeblich suchten
 wir darin nach Cyanit, den wir in Blöcken bei Maniquarez
 gefunden. Weiterhin erscheinen im Glimmerschiefer nicht
 Gänge, sondern kleine Schichten von Graphit oder Kohlenstoffeisen.
-Sie sind 2—3 Zoll dick und streichen und fallen
+Sie sind 2–3 Zoll dick und streichen und fallen
 genau wie die Gebirgsart. Mit dem Graphit im Urgebirge
 tritt zum erstenmal in den Gebirgsschichten der Kohlenstoff
 auf, und zwar als nicht an Wasserstoff gebundener Kohlenstoff.
@@ -54265,7 +54266,7 @@ dem Urgebirge zuzuweisen.
 
 Als sich im Jahr 1783 bei einem Erdbeben im Aroyo
 del Robalo eine große Felsmasse abgelöst hatte, lasen die
-Guayqueries in los Serritos 5—6 Zoll starke, ungemein
+Guayqueries in los Serritos 5–6 Zoll starke, ungemein
 durchsichtige und reine Alaunstücke auf. Zu meiner Zeit verkaufte
 man in Cumana an Färber und Gerber das Pfund zu
 zwei Realen (ein Viertheil eines harten Piasters), während der
@@ -54289,8 +54290,8 @@ Südamerika erhält gegenwärtig seinen Alaun aus Europa,
 wie ihn Europa seinerseits bis zum fünfzehnten Jahrhundert
 von den asiatischen Völkern erhielt. Vor meiner Reise
 kannten die Mineralogen keine andern Substanzen, aus denen
-man, geröstet oder nicht, unmittelbar Alaun (schwefel-
-saures Alaunerdekali) gewann, als Gebirgsarten aus der
+man, geröstet oder nicht, unmittelbar Alaun (schwefelsaures
+Alaunerdekali) gewann, als Gebirgsarten aus der
 Trachytformation und kleine Gänge, welche Schichten von
 Braunkohlen und bituminösem Holz durchsetzen. Beide Substanzen,
 so verschiedenen Ursprungs sie sind, enthalten alle
@@ -54935,7 +54936,7 @@ Entfernung nach einander die Ranaseilande (Morant Kays),
 Cap Portland und Pedro Kays zu peilen. Wahrscheinlich irrte
 man sich bei mehreren dieser Peilungen vom Mastkorbe aus;
 ich habe dieser Bestimmungen anderswo Erwähnung gethan,^[Observations
-astronomiques. T. I. p. XLIII. T. II. p. 7—10.]
+astronomiques. T. I. p. XLIII. T. II. p. 7–10.]
 nicht um sie gegen die Beobachtungen geübter englischer
 Seefahrer in diesen stark befahrenen Seestrichen aufzustellen,
 sondern allein, um die Punkte, die ich in den Wäldern
@@ -55015,7 +55016,7 @@ Karten sehr unsicher, und ich fürchte nicht glücklicher
 gewesen zu seyn als andere Beobachter, die ihre wahre Lage
 ausgemacht zu haben glaubten. Die schönen Karten des Deposito
 zu Madrid gaben dem Ostcap von Gran-Cayman zu
-verschiedenen Zeiten 82°58′ (von 1799—1804), 83°43′
+verschiedenen Zeiten 82°58′ (von 1799–1804), 83°43′
 (1809), wieder 82°59′ (1821). Letztere Angabe, die auf
 der Karte von Barcaiztegui aufgenommen ist, stimmt mit der
 überein, bei der ich stehen geblieben war; aber nach der Versicherung
@@ -55027,7 +55028,7 @@ der Länge liegt.
 
 Das Wetter war fortwährend schlecht und die See ging
 ungemein hoch; der Thermometer stand zwischen 19°2 und
-20°3 (15°4—16°2 Reaumur). Bei dieser niedrigen Temperatur
+20°3 (15°4–16°2 Reaumur). Bei dieser niedrigen Temperatur
 wurde der Geruch des Salzfleisches, mit dem das
 Schiff beladen war, noch unerträglicher. Der Himmel zeigte
 zwei Wolkenschichten; die untere war sehr dick und wurde

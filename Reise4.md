@@ -10103,7 +10103,7 @@ Jahrhunderts alle Völker des neuen Continents mit Ausnahme
 der Gebirgsvölker antrafen. Wenn es wahr ist, daß
 die meisten Wilden, wie ihre Sprachen, ihre kosmogonischen
 Mythen und so viele andere Merkmale darzuthun scheinen, nur
-verwilderte Gesch1echter sind, Trümmer, die einem großen
+verwilderte Geschlechter sind, Trümmer, die einem großen
 gemeinsamen Schiffbruch entgangen, so wird es doppelt von
 Wichtigkeit, zu untersuchen, auf welchen Wegen diese Trümmer
 aus einer Halbkugel in die andere geworfen worden sind.
@@ -10256,7 +10256,7 @@ Ost begrenzt, heiße noch jetzt Punta Caribana. Früher war so
 ziemlich die Ansicht herrschend, die Caraiben der antillischen
 Inseln stammen von den kriegerischen Völkern in Darien ab,
 und haben sogar den Namen von ihnen. »<i>Inde Uraban ab
-orienta1i prehendit ora, quam appellant indigenae Caribana,
+orientali prehendit ora, quam appellant indigenae Caribana,
 unde Caribes insulares originem habere nomenque
 retinere dicuntur.</i>« So drückt sich Anghiera in den Oceanica
 aus. Ein Neffe Amerigos Vespucci hatte ihm gesagt, von dort
@@ -10548,7 +10548,7 @@ Beziehung auf die verschiedenen Epochen
 der Sprachentwicklung.« (S. 13).
 S. auch Bd. II. Seite 28—47.] der auf den verschiedensten Stufen der
 Barbarei und der Cultur als das eigentliche Wesen der
-menschlichen Geiste-skraft erscheint. An Festtagen versammelt
+menschlichen Geisteskraft erscheint. An Festtagen versammelt
 sich nach der Messe die ganze Gemeinde vor der Kirche. Die
 jungen Mädchen legen zu den Füßen des Missionärs Holzbündel,
 Mais, Bananenbüschel und andere Lebensmittel nieder,
@@ -10763,7 +10763,7 @@ auftreten, können sich diese kleinen wehrlosen und in ihren
 Bewegungen schwerfälligen Wiederkäuer nicht in Masse halten.
 
 Am 15. Juli langten wir in der <b>Fundacion</b> oder
-Villa del Pao an, die im«Jahr l744 gegründet wurde und
+Villa del Pao an, die im Jahr 1744 gegründet wurde und
 sehr vortheilhaft gelegen ist, um zwischen Nueva Barcelona
 und Angostura als Stapelplatz zu dienen. Ihr eigentlicher
 Name ist <i>Conception del Pao</i>; Alcedo, la Cruz Olmedilla
@@ -10870,7 +10870,7 @@ Venezuela liegen 13 Grade ostwärts von den Punkten, wo
 einerseits die französischen Akademiker mittelst Dreiecken, die
 sich auf die Gipfel der Cordilleren stützten, andererseits Mason
 und Dixon, ohne trigonometrische Mittel (auf den Ebenen
-von Pennsylvanien), ihre Mess1mgen ausgeführt haben; sie
+von Pennsylvanien), ihre Messungen ausgeführt haben; sie
 liegen fast unter demselben Parallel (und dieser Umstand ist
 von großem Belang) wie die indische Hochebene zwischen
 Junne und Madura, wo Oberst Lambton so ausgezeichnet
@@ -11100,7 +11100,7 @@ ist. Es steht nicht in der Macht des Menschen, die klimatischen
 Unterschiede zu ändern, die aus der auf kleinem Flächenraum
 rasch wechselnden Bodenhöhe hervorgehen, und welche
 die Quelle des Widerwillens sind, der zwischen den Bewohnern
-der der<b>terra caliente</b> und denen der <b>terra fria</b> besteht,
+der der <b>terra caliente</b> und denen der <b>terra fria</b> besteht,
 eines Widerwillens, der auf Gegensätzen im Charakter, in
 Sitten und Gebrauchen beruht. Diese moralischen und politischen
 Einflüsse machen sich besonders in Ländern geltend, wo
@@ -11374,7 +11374,7 @@ acht- oder zehntägigem Marsch gewöhnt an das Spiel der
 Luftspiegelung und an das glänzende Grün der Mauritiabüsche,^[Die
 Fächerpalme, der guyanische Sagobaum.] die von Meile zu Meile
 zum Vorschein kommen, so
-fühlt man das Bedürfniß mannigfaltigerer Eindrücke; -man
+fühlt man das Bedürfniß mannigfaltigerer Eindrücke; man
 sehnt sich nach dem Anblick der gewaltigen Bäume der Tropen,
 des wilden Sturzes der Bergströme, der Gelände und Thalgründe,
 bebaut von der Hand des Landmanns. Wenn unglücklicherweise
@@ -11404,7 +11404,7 @@ große afrikanische Ebene, die sogenannte
 Sahara ist 194,000 Quadratmeilen groß,
 die verschiedenen Oasen dazu
 gerechnet, aber nicht Bornu und Darfur.
-(Das Mittel1neer hat nur 79,800
+(Das Mittelmeer hat nur 79,800
 Quadratmeilen Oberfläche).] Die nordischen
 Heiden, die Steppen an Wolga und Don sind kaum ärmer
 an Pflanzen und Thierarten als unter dem herrlichsten Himmel
@@ -11434,7 +11434,7 @@ Holland und Deutschland und in den baltischen Ländern
 zerstreut vorkommen. Es scheint jetzt bewiesen, daß diese wie
 strahlenförmig vertheilten Gesteine bei den alten Umwälzungen
 unseres Erdballs aus der scandinavischen Halbinsel gegen Süd
-herabgekommen sind, und daß sie nicht von den« Granitketten
+herabgekommen sind, und daß sie nicht von den Granitketten
 des Harzes und in Sachsen stammen, denen sie nahe kommen,
 ohne indessen ihren Fuß zu erreichen. Ich bin auf den sandigten
 Ebenen der baltischen Länder geboren, und bis zu meinem
@@ -11679,7 +11679,7 @@ von selbst. Die Stadt Barcelona hat nicht, wie Cumana,
 eine indianische Vorstadt, und sieht man hie und da
 einen Indianer, so sind sie aus den benachbarten Missionen,
 oder aus den über die Ebene zerstreuten Hütten. Beide sind
-nicht von cataibischem Stamm, sondern ein Mischvolk von
+nicht von caraibischem Stamm, sondern ein Mischvolk von
 Cumanagotos, Palenques und Piritus, von kleinem Wuchs,
 untersetzt, arbeitsscheu und dem Trunk ergeben. Der gegohrene
 Manioc ist hier das beliebteste Getränk; der Palmwein, den
@@ -11959,7 +11959,7 @@ Kalkgebirgskette des Festlandes. Der ganze dazwischen liegende
 Boden scheint einst mit Salzthon ausgefüllt gewesen zu seyn,
 und vom Meere beständig angefressen, verschwand ohne Zweifel
 die Formation allmählig und aus der Ebene wurden zuerst
-Lagunen, dann Buchten und —uletzt schiffbare Canäle. Der
+Lagunen, dann Buchten und zuletzt schiffbare Canäle. Der
 neueste Vorgang am Schlosse Araya beim Einbruch des Meeres
 in das alte Salzwerk, die Form der Lagune Chacopata und
 ein vier Meilen langer See, der die Insel Margarita beinahe
@@ -12002,7 +12002,7 @@ der zu der großen Sandstein- und Kalkformation von Cumana
 gehört, besteht fast ganz aus Seeschalthieren, die so wohl erhalten
 sind, wie die in den andern tertiären Kalkgebilden in
 Frankreich und Italien. Wir brachen für das königliche Cabinet
-zu Madrid Blöcke ab, die Austern von acht Zoll Durchniesser,
+zu Madrid Blöcke ab, die Austern von acht Zoll Durchmesser,
 Kammmuscheln, Venusmuscheln und Polypengehäuse enthielten.
 Ich möchte Naturforscher, welche bessere Paläontologen sind,
 als ich damals war, auffordern, diese Felsenküste genau zu
@@ -12187,114 +12187,107 @@ das Geheimniß, und so verheimlichen sie auch gern die Orte,
 wo sie den natürlichen Alaun graben; das Mineral muß
 aber ziemlich reich sehn, denn ich habe in ihren Händen ganz
 ansehnliche Massen auf einmal gesehen. Es wäre für die
-Regierung von Belang, entweder das oben beschriebene Mi-
-neral oder die Alaunschieser, die damit vorkommen, ordentlich
+Regierung von Belang, entweder das oben beschriebene Mineral
+oder die Alaunschiefer, die damit vorkommen, ordentlich
 abbauen zu lassen. Letztere könnte man rösten und sie zur
-Au.slaugung an der glühenden tropischen Sonne gradiren.
+Auslaugung an der glühenden tropischen Sonne gradiren.
 Südamerika erhält gegenwärtig seinen Alaun aus Europa,
-
-390
 wie ihn Europa seinerseits bis zum fünfzehnten Jahrhundert
 von den asiatischen Völkern erhielt. Vor meiner Reise
-kannten die Mineralogen keine andern Substanzen, - gis de
-nen man, geröstet oder nicht, unmittelbar Mann (schwefel-
+kannten die Mineralogen keine andern Substanzen, aus denen
+man, geröstet oder nicht, unmittelbar Alaun (schwefel-
 saures Alaunerdekali) gewann, als Gebirgsarten aus der
-«Trachytformation und kleine Gäng«e, welche Schichten von
-Vraunkohlen und bituminösem Holz dnrchsetzen.. Beide Sub-
-stanzen, so verschiedenen Ursprungs sie sind, enthalten alle
+Trachytformation und kleine Gänge, welche Schichten von
+Braunkohlen und bituminösem Holz durchsetzen. Beide Substanzen,
+so verschiedenen Ursprungs sie sind, enthalten alle
 Elemente des Alauns, nämlich Thonerde, Schwefelsäure und
-Kaki. Die alaunhaltigen Gesteine im T-.«achyt verschiedener
-Länder rühren unzweifelhaft daher, daß schwefligtfaure Dampfe
+Kali. Die alaunhaltigen Gesteine im Trachyt verschiedener
+Länder rühren unzweifelhaft daher, daß schwefligtsaure Dämpfe
 die Gebirgsart durchdrungen haben. Sie sind, wie man sich
-in den Solfataren bei Puzzuoli und auf dem Pic von Te-
-neriffa überzeugen kann, Produkte einer schwachen, lange an-
-dauernden vulkanischen Thätigkeit. Das Wasser, das diese
+in den Solfataren bei Puzzuoli und auf dem Pic von Teneriffa
+überzeugen kann, Produkte einer schwachen, lange andauernden
+vulkanischen Thätigkeit. Das Wasser, das diese
 alaunhaltigen Gebirgsarten vulkanischer Herkunft durchdringt,
-setzt indessen keine Massen natürlichen Alauns ab; zur Ge-
-winnung desselben müssen die Gesteine geröstet werden. Ich
+setzt indessen keine Massen natürlichen Alauns ab; zur Gewinnung
+desselben müssen die Gesteine geröstet werden. Ich
 kenne nirgends Alaunniederschläge, ähnlich denen, wie ich sie
-aus Cumana mitgebracht; denn die haarförmigen und fasrig-
-ten Massen, die man in Gängen in Braunkol)lenschichten
+aus Cumana mitgebracht; denn die haarförmigen und fasrigten
+Massen, die man in Gängen in Braunkohlenschichten
 findet (an den Ufern der Egra, zwischen Saatz und Commothau
-in Böhmen) oder sich in Hohlrüumen (Freienwalde in Bran-
-denburg, Segario in Sardinien) durch AuswitterUng bilden,
-sind unreine Salze, oft ohne Kaki, vermengt. mit schwefel-
-saurem Ammoniak und schwefelsaurer Bittererde. Eine lang-
-same Zerfetzung der Schwefelkiese, die vielleicht als eben so
+in Böhmen) oder sich in Hohlräumen (Freienwalde in Brandenburg,
+Segario in Sardinien) durch Auswitterung bilden,
+sind unreine Salze, oft ohne Kaki, vermengt mit schwefelsaurem
+Ammoniak und schwefelsaurer Bittererde. Eine langsame
+Zersetzung der Schwefelkiese, die vielleicht als eben so
 viele kleine galvanische Säulen wirken, macht die Gewässer,
-welche die Braunkohle und die Alaunerde durchziehen, alaun-
-haltig. Aehnliche chemische Vorgänge können nun aber in
-
-391
-Ur- und Uebergangsschiefern so gut wie in tertiären Bil-
-dungen stattsinden. Alle Schiefer, und dieser U·mstand ist
-sehr wichtig, enthalten gegen fünf Procent Kali, Schwefel-
-eisen, E·isenperoxhd, Kohle u. s. w. So viele ungleichartige
-Stoffe, in gegeuscitigek"Veu1ykuug und von Wasser des«-uchtet,
-müssen nothwendig Neigung haben, sich nach Form und Zu-
-sammensetzung zu verändern. Die ausgewitterten Salze,
+welche die Braunkohle und die Alaunerde durchziehen, alaunhaltig.
+Aehnliche chemische Vorgänge können nun aber in
+Ur- und Uebergangsschiefern so gut wie in tertiären Bildungen
+stattfinden. Alle Schiefer, und dieser Umstand ist
+sehr wichtig, enthalten gegen fünf Procent Kali, Schwefeleisen,
+Eisenperoxyd, Kohle u.&nbsp;s.&nbsp;w. So viele ungleichartige
+Stoffe, in gegenseitiger Berührung und von Wasser befeuchtet,
+müssen nothwendig Neigung haben, sich nach Form und Zusammensetzung
+zu verändern. Die ausgewitterten Salze,
 welche in der Schlucht Robalo die Alaunschiefer in Menge
 bedecken, zeigen, wie sehr diese chemischen Vorgänge durch die
 hohe Temperatur dieses Klimas gefördert werden; aber —
 ich wiederhole es — in einem Gestein ohne Spalten, ohne
 dem Streichen und Fallen seiner Schichten parallel laufende
-Hohlräutne ist ein natürlicher, seine Lagerstätte völlig aus-
-fiIllender, halbdurchsichtiger Alaun mit muschligtem Bruch als
+Hohlräume ist ein natürlicher, seine Lagerstätte völlig ausfüllender,
+halbdurchsichtiger Alaun mit muschligtem Bruch als
 gleichen Alters mit der einschließenden Gebirgsart zu betrachten.
-Nachdem wir lange in dieser Ginöde unter den völlig
+
+Nachdem wir lange in dieser Einöde unter den völlig
 kahlen Felsen umhergeirrt, ruhten unsere Blicke mit Lust auf
 den Malpighia- und Crotonbüschen, die wir auf dem Wege
-zur Küste hinab trafen. Diese baumartigen C-roton waren
+zur Küste hinab trafen. Diese baumartigen Croton waren
 sogar zwei neue, durch ihren Habitus sehr interessante, der
-Halbinsel Araya allein angehörige Arten.I Wir kamen zu
-spät zur Lugano. (-biegt. um noch eine andere Bucht weiter
-ostwärts, als l«aguaa granste oder del 01isp0 vielberufen,
+Halbinsel Araya allein angehörige Arten.^[<i>Croton argyrophyllus</i>
+und <i>C. marginatus</i>] Wir kamen zu
+spät zur <i>Laguna chica</i> um noch eine andere Bucht weiter
+ostwärts, als <i>Laguna grande</i> oder <i>del olispo</i> vielberufen,
 besuchen zu können. Wir begnügten uns, dieselbe von den
 sie beherrschenden Bergen herab zu bewundern. Außer den
-Hafen von Ferrol und Acapulco gibt es vielleicht ·leinen
+Häfen von Ferrol und Acapulco gibt es vielleicht keinen
 mehr von so sonderbarer Bildung. Es ist eine von Ost
 nach West dritthalb Seemeilen lange, eine Seemeile breite
-I O:-oton akgyrophyllns und C. maI·ginotus.
-
-3.92 ·
-geschlossene Bucht. Die Glinmierschiefetfelsen,- die den Hafen
-einschließen, lassen nur eine Ist) Toifen breite Einfahrt.
-Ueberall findet man 15 bis 20 Faden Wafsettiese. Wahr-
-scheinlich wird die Regierung von Cumana diese geschlossene
-Bucht und die von Mochima, die acht Seein"eilen ostwärts
-von der schlechten Rhede von Nuev·a Barcelona liegt, einmal
+geschlossene Bucht. Die Glimmerschieferfelsen, die den Hafen
+einschließen, lassen nur eine 250 Toisen breite Einfahrt.
+Ueberall findet man 15 bis 20 Faden Wassertiefe. Wahrscheinlich
+wird die Regierung von Cumana diese geschlossene
+Bucht und die von Mochima, die acht Seemeilen ostwärts
+von der schlechten Rhede von Nueva Barcelona liegt, einmal
 zu benützen wissen. Navaretes Familie erwartete uns mit
-Ungeduld am Strand, und obgleich unser Eunoe ein großes
-Segel führte, kamen wir doch erst bei Nacht nach Mani-
-TUTTI·
+Ungeduld am Strand, und obgleich unser Canoe ein großes
+Segel führte, kamen wir doch erst bei Nacht nach Maniquarez.
+
 Wir blieben nur noch vierzehn Tage in Cumana. Da
-wir alle Hoffnung aufgegeben hatten, ein Postschiff aus Ci-
-runna eintreffen zu sehen, so benützten wir ein amerikanisches
-Fahrzeug, das in Nueva Barcelona Salzsleisch lud, um es
+wir alle Hoffnung aufgegeben hatten, ein Postschiff aus Corunna
+eintreffen zu sehen, so benützten wir ein amerikanisches
+Fahrzeug, das in Nueva Barcelona Salzfleisch lud, um es
 auf die Insel Cuba zu bringen. Wir hatten sechzehn Monate
-auf diesen Küsten und im Innern von Venezuela zugebracht
+auf diesen Küsten und im Innern von Venezuela zugebracht.
 Wir hatten zwar noch über 50,000 Francs in Wechseln auf
-die ersten Häuser in der Havana; dennoch wären wir hin-
-sichtlich der bauten Mittel in großer Verlegenheit gewesen,
+die ersten Häuser in der Havana; dennoch wären wir hinsichtlich
+der baaren Mittel in großer Verlegenheit gewesen,
 wenn uns nicht der Statthalter von Cumana vorgeschossen
-hätte, so viel wir verlangen mochten. Das Zartgesühl, mit
-dem Herr von Emparan ihm ganz unbekannte Fremde behan-
-delte, verdient die höchste Anerkennung und meinen lebhastesten
+hätte, so viel wir verlangen mochten. Das Zartgefühl, mit
+dem Herr von Emparan ihm ganz unbekannte Fremde behandelte,
+verdient die höchste Anerkennung und meinen lebhaftesten
 Dank. Ich erwähne dieser Umstände, die nur unsere Person
-betrafen, um die Reisenden zu warneu, daß sie sich nicht zu
-sehr auf den Verkehr unter den verschiedenen Colonien des-
-selben Mutterlandes verlassen. Wie es im Jahr 1799 in
+betrafen, um die Reisenden zu warnen, daß sie sich nicht zu
+sehr auf den Verkehr unter den verschiedenen Colonien desselben
+Mutterlandes verlassen. Wie es im Jahr 1799 in
 Cumana und Caracas mit dem Handel stand, hätte man einen
 Wechsel leichter auf Cadix und London ziehen können, als
 auf Carthagena de Indias, die Havana oder Vera Cruz.
-X
 
-393
-Am 16. November verabschiedeten wir uns von unsern Freun-
-den, "um nun zum dritten male von der Mündung des Busens
+Am 16. November verabschiedeten wir uns von unsern Freunden,
+um nun zum dritten male von der Mündung des Busens
 von Cariaco nach Nueva Barcelona überzufahren. Die Nacht
-war köstlich kühl. Nicht ohne Rührung sahen wir die Mond-
-scheibe zum letztenmal die Spitzen der Cocospalmen an den Ufern
+war köstlich kühl. Nicht ohne Rührung sahen wir die Mondscheibe
+zum letztenmal die Spitzen der Cocospalmen an den Ufern
 des Manzanares beleuchten. Lange hingen unsere Blicke an
 der weißlichten Küste, wo wir uns nur ein einziges mal über
 die Menschen zu beklagen gehabt hatten. Der Seewind war
@@ -12302,76 +12295,75 @@ so stark, daß wir nach nicht ganz sechs Stunden beim Morro
 von Nueva Barcelona den Anker auswarfen. Das Fahrzeug,
 das uns nach der Havana bringen sollte, lag segelfertig da.
 
-·SiebennudzwanzigIieH Kapitel. -
-Allgemeine Bemerkungen über das Berhältniß des neuen zum alten Conn-
-nent. — Ueberfahrt von den Küsten von Venezuela nach der Havana.
-Ms ich nach meiner Rückkehr nach « Deutschland den
-,,1-Essai po1üique sur la «n0uve1Ie« E)spo«gne-«
+# Siebenundzwanzigstes Kapitel.
+
+Allgemeine Bemerkungen über das Verhältniß des neuen zum alten 
+Continent. — Ueberfahrt von den Küsten von Venezuela nach der Havana.
+
+Als ich nach meiner Rückkehr nach Deutschland den
+»<i>Essai politique sur la nouvelle Espagne</i>«
 herausgab, veröffentlichte ich zugleich einen Theil des von mir
-über den Bodenreichthum von «Südamerika gesammelten Ma-
-terials. Diese vergleichende Schilderung der Bevölkerung, des
+über den Bodenreichthum von Südamerika gesammelten Materials.
+Diese vergleichende Schilderung der Bevölkerung, des
 Ackerbaus und des Handels aller spanischen Colonien wurde
-zu einer Zeit entworfen, wo große Mängel in der gesellschaft-
-lichen Verfassung, das Prohibitivsystem und andere gleich ver-
-derbliche Mißgriffe in der Regierungs-kunst die Entwicklung
+zu einer Zeit entworfen, wo große Mängel in der gesellschaftlichen
+Verfassung, das Prohibitivsystem und andere gleich verderbliche
+Mißgriffe in der Regierungskunst die Entwicklung
 der Cultur niederhielten. Seit ich auseinandergesetzt, welch
 unermeßliche Hülfsmittel den Völkern des gedoppelten Amerika
 durch ihre Lage an sich und durch ihren Handelsverkehr mit
-Europa und Asien in Aussicht ständen, sobald-sie der Seg-
-nungen einer vernünftigen Freiheit genößen, hat eine der
-großen 11mwälzungeu, welche von Zeit zu Zeit das Menschen-
-geschlecht aufrütteln, die gefellschaftlichen Zustände in den von
-mir durchreisten gewaltigen Ländern umgewandelt. Gegen-
-wärtig theilen sich, kann man wohl sagen, drei Völker euro-
-päischer Abkunft in das Festland der neuen Welt: das eine,
-das inächtigste, ist germanischen Stammes, die beiden andern
-
-395 «
+Europa und Asien in Aussicht ständen, sobald sie der Segnungen
+einer vernünftigen Freiheit genößen, hat eine der
+großen Umwälzungen, welche von Zeit zu Zeit das Menschengeschlecht
+aufrütteln, die gesellschaftlichen Zustände in den von
+mir durchreisten gewaltigen Ländern umgewandelt. Gegenwärtig
+theilen sich, kann man wohl sagen, drei Völker europäischer
+Abkunft in das Festland der neuen Welt: das eine,
+das mächtigste, ist germanischen Stammes, die beiden andern
 gehören nach Sprache, Literatur und Sitten dem lateinischen
-Europa tm. Die Theile der alten Welt, die am weitesten
-gegen West vorspringen, die iberische Halbinsel und die bri-
-tannischen Inseln, sind auch diejenigen, deren Colonien die
+Europa an. Die Theile der alten Welt, die am weitesten
+gegen West vorspringen, die iberische Halbinsel und die britannischen
+Inseln, sind auch diejenigen, deren Colonien die
 bedeutendste Ausdehnung haben; aber ein viertausend Meilen
 langer, nur von Nachkommen von Spaniern und Portugiesen
-bewohnter Küstenstrich legt Zeugnis; dafür ab, wie hoch sich
-die Völker der Halbinsel im fünfzehnten und sechzehnten Jahr-
-hundert durch ihre Unternehmungen zur See über die andern
-seefahrenden Völker emporgeschwungen hatten. Die Verbrei-
-tung ihrer Sprachen von »Calisornien bis an den Rio de la
+bewohnter Küstenstrich legt Zeugniß dafür ab, wie hoch sich
+die Völker der Halbinsel im fünfzehnten und sechzehnten Jahrhundert
+durch ihre Unternehmungen zur See über die andern
+seefahrenden Völker emporgeschwungen hatten. Die Verbreitung
+ihrer Sprachen von Californien bis an den Rio de la
 Plata, auf dem Rücken der Cordilleren wie in den Wäldern
 am Amazonenstrom ist ein Denkmal nationalen Ruhms, das
 alle politischen Revolutionen überdauern wird.
-Gegenwärtig überwiegt die« Bevölkerung des spanischen
-und portugiesischen Amerika die von englischer Rate ums
-Doppelte. Die französischen, holländischen und dänischen Be-
-sitzungen auf dem neuen Continent sind von geringem Um-
-fang; zählt man aber die Völker her, welche auf das Geschick
-der.andern Halbkugel Einfluß äußern können, so sind noch
-zwei nicht zu übergehen, einerseits die Ansiedler slavischer Ab-
-kunft, die von der Halbinsel Alaska bis nach Californien
-Niederlassungen suchen, andererseits die freien Afrikaner auf
-Haiti, welche wahr gemacht haben, was der Mailänder Rei-
-sende Benzoni schon im Jahr 1545 vorausgesagt. Daß die
-Asrikaner auf einer Insel, zweieinhalbmal größer als Sicilien,
-im Schoße des Mittelmeeres der Antillen hausen, macht sie
-politisch um so wichtiger. Alle Freunde der Menschheit wün-
-schen aufrichtig, daß eine Civilisation, welche wider alles Er-
-warten nach so viel Gräueln und Blut Wurzel geschlagen,
 
-396
-sich fort und fort entwickeln möge· Das rufsische Amerika
-gleicht bis jetzt nicht sowohl einer Acketbaucolonie als einem
-der Comptoirs, wie sie die Europa« zum Verderben der Ein-
-geborenen auf den Küsten von Afrika" errichtet. Es besteht
-nur aus Militärposten, aus Sammelplatzen für Fischer und
-sibirische Jäger. .Allerdings ist es eine merkwürdige Erschei-
-nung, daß sich der Ritus der griechischen Kirche auf einem
-Striche Am·erikas festgesetzt hat, und daß zwei Nationen,
+Gegenwärtig überwiegt die Bevölkerung des spanischen
+und portugiesischen Amerika die von englischer Race ums
+Doppelte. Die französischen, holländischen und dänischen Besitzungen
+auf dem neuen Continent sind von geringem Umfang;
+zählt man aber die Völker her, welche auf das Geschick
+der andern Halbkugel Einfluß äußern können, so sind noch
+zwei nicht zu übergehen, einerseits die Ansiedler slavischer Abkunft,
+die von der Halbinsel Alaska bis nach Californien
+Niederlassungen suchen, andererseits die freien Afrikaner auf
+Haiti, welche wahr gemacht haben, was der Mailänder Reisende
+Benzoni schon im Jahr 1545 vorausgesagt. Daß die
+Afrikaner auf einer Insel, zweieinhalbmal größer als Sicilien,
+im Schoße des Mittelmeeres der Antillen hausen, macht sie
+politisch um so wichtiger. Alle Freunde der Menschheit wünschen
+aufrichtig, daß eine Civilisation, welche wider alles Erwarten
+nach so viel Gräueln und Blut Wurzel geschlagen,
+sich fort und fort entwickeln möge. Das russische Amerika
+gleicht bis jetzt nicht sowohl einer Ackerbaucolonie als einem
+der Comptoirs, wie sie die Europa zum Verderben der Eingeborenen
+auf den Küsten von Afrika errichtet. Es besteht
+nur aus Militärposten, aus Sammelplätzen für Fischer und
+sibirische Jäger. Allerdings ist es eine merkwürdige Erscheinung,
+daß sich der Ritus der griechischen Kirche auf einem
+Striche Amerikas festgesetzt hat, und daß zwei Nationen,
 welche das Ost- und das Westende von Europa bewohnen,
-Nussen und Spanier, Nachbarn werden auf einem Festlande,
-in das sie auf entgegengefetzten Wegen gekommen; aber beim
+Russen und Spanier, Nachbarn werden auf einem Festlande,
+in das sie auf entgegengesetzten Wegen gekommen; aber beim
 halb wilden Zustand der Küsten von Ochotsk und Kamtschatka,
-bei der Geringfügigkeit der Mittel, welche die asiatischen Hafen
+bei der Geringfügigkeit der Mittel, welche die asiatischen Häfen
 liefern können, und bei der Art und Weise, wie bis jetzt
 die slavischen Colonien in der neuen Welt verwaltet worden,
 müssen diese noch lange in der Kindheit verharren. Da man
@@ -12379,524 +12371,495 @@ nun bei nationalökonomischen Untersuchungen gewöhnt ist,
 nur Massen ins Auge zu fassen, so stellt es sich heraus, daß
 das amerikanische Festland eigentlich nur unter drei große
 Nationen von englischer, spanischer und portugiesischer Abkunft
-getheilt ist. Die erste derselben, die Angloamerikaner, ist zu-
-gleich nach dem englischen Volk in Europa diejenige, welche
+getheilt ist. Die erste derselben, die Angloamerikaner, ist zugleich
+nach dem englischen Volk in Europa diejenige, welche
 ihre Flagge über die weitesten Meeresstrecken trägt. Ohne
-entlegene Colonien hat sich ihr Handel zu einer Höhe aufge-
-schwungen, zu- der niemals ein Volk der alten Welt gelangt
+entlegene Colonien hat sich ihr Handel zu einer Höhe aufgeschwungen,
+zu der niemals ein Volk der alten Welt gelangt
 ist, mit Ausnahme desjenigen, das seine Sprache, den Glanz
-feiner Literatur, feine Arbeit-slust, seinen Hang zur Freiheit
-und einen Theil seiner bürgerlichen Einrichtungen· nach Nord-
-amerika hinübergetragen hat.
-Die englischen und portugiesischen Ansiedler haben nur
+seiner Literatur, seine Arbeitslust, seinen Hang zur Freiheit
+und einen Theil seiner bürgerlichen Einrichtungen nach Nordamerika
+hinübergetragen hat.
 
-. « M
+Die englischen und portugiesischen Ansiedler haben nur
 die Europa gegenüberliegenden Küsten bevölkert; die Castilianer
-dagegen sind gleich zu Anfang der Ekoberung über die Kette
+dagegen sind gleich zu Anfang der Eroberung über die Kette
 der Anden gedrungen und haben selbst in den am weitesten nach
 West gelegenen Landstrichen Niederlassungen gegründet. Nur
-dort, in Mexico, Cundinamarea, O,uito und Petri, fanden sie
-Spuren einer alten «Cultur, ackerbauende Völker, blühende
+dort, in Mexico, Cundinamarca, Quito und Peru, fanden sie
+Spuren einer alten Cultur, ackerbauende Völker, blühende
 Reiche. Durch diesen Umstand, durch die rasche Zunahme einer
-eingeborenen Gebirgsbevölkerung, durch den fast ausschließli-
-chen Besitz großer Metallsrhätze, und durch die .Handel3ver-
-bindungen mit dem indischen Archipel, die gleich mit dem
-Anfang des sechzehnten Jahrhunderts in Gang kamen, erhiel-
-ten die«spauischen Besitzungen in Amerika ein ganz eigenes
-Gepräge. In den östlichen, von den englischen und portu-
-giesischen Ansiedleru in Besitz genommenen Landstrichen waren
-die Eingeborenen umherziehende Jågervölker. Statt, wie auf
-der Hochebene von Anahuac, it; Guatimala und im obern
-Pera, einen Bestandtheil der arbeitsamen, ackerbauenden B-
-völkerung zu bilden, zogen sie sich vor den vorrückenden Weißen
+eingeborenen Gebirgsbevölkerung, durch den fast ausschließlichen
+Besitz großer Metallschätze, und durch die Handelsverbindungen
+mit dem indischen Archipel, die gleich mit dem
+Anfang des sechzehnten Jahrhunderts in Gang kamen, erhielten
+die spanischen Besitzungen in Amerika ein ganz eigenes
+Gepräge. In den östlichen, von den englischen und portugiesischen
+Ansiedlern in Besitz genommenen Landstrichen waren
+die Eingeborenen umherziehende Jägervölker. Statt, wie auf
+der Hochebene von Anahuac, in Guatimala und im obern
+Peru, einen Bestandtheil der arbeitsamen, ackerbauenden Bevölkerung
+zu bilden, zogen sie sich vor den vorrückenden Weißen
 größtentheils zurück. Man brauchte Arbeiterhände, man baute
-vorzugsweise ,8uckerrohr, .Indigo und Baumwolle, und dieß,
-mit der Habsucht, welche so oft die Begleiterin des Gewerb-
-sleißes ist und fein Schandfleck, führte den sihändlichen Neger-
-handel herbei, der in seinen Folgen für beide Welten gleich
-verderblich geworden ist. Zum Glück ist aus dem Festlande
-von spanisch Amerika die Zahl der asrilanischen Sklaven so
+vorzugsweise Zuckerrohr, Indigo und Baumwolle, und dieß,
+mit der Habsucht, welche so oft die Begleiterin des Gewerbfleißes
+ist und sein Schandfleck, führte den schändlichen Negerhandel
+herbei, der in seinen Folgen für beide Welten gleich
+verderblich geworden ist. Zum Glück ist auf dem Festlande
+von spanisch Amerika die Zahl der afrikanischen Sklaven so
 unbedeutend, daß sie sich zur Sklavenbevölkerung in Brasilien
-und in den südlichen Theilen der Bereinigten Staaten wie
-I zu 5 verhält. .Die gesammten spanischen Colonien, mit
-Einschluß der Inseln Cuba und Portorico, haben aus einem
-Areal, das mindesten-s um ein Fünftheil größer ist als Europa,
+und in den südlichen Theilen der Vereinigten Staaten wie
+1 zu 5 verhält. Die gesammten spanischen Colonien, mit
+Einschluß der Inseln Cuba und Portorico, haben auf einem
+Areal, das mindestens um ein Fünftheil größer ist als Europa,
+nicht so viel Neger als der Staat Virginien allein. Mit den
+vereinigten Ländern Neuspanien und Guatimala liefern die
+Hispano-Amerikaner das einzige Beispiel im heißen Erdstrich,
+daß eine Nation von acht Millionen nach europäischen Gesetzen
+und Einrichtungen regiert wird, Zucker, Cacao, Getreide
+und Wein zumal baut, und fast keine Sklaven besitzt, die dem
+Boden von Afrika gewaltsam entführt worden.
 
-M .
-nicht so viel Neger als der Staat Birg"inien allein. Mit den
-vereinigten Ländern Neuspan·ien und Guatimala liefern die
-Hispano-Amerikaner das einzige Beispiel ün.heißen Erdstrich,
-daß eine Nation von acht Millionen nach europäifthen G-
-setzen und Einrichtungen regiert wird, Zucker, Cacao, Getreide
--und Wein zumal baut, und fast keine Sklaven besitzt, die dein
-Boden von Asrika gewaltsam entführt worden. «
-Die Bevölkerung des neuen. Continents ist bis jetzt kaum
+Die Bevölkerung des neuen Continents ist bis jetzt kaum
 etwas stärker als die von Frankreich oder Deutschland. In
 den Vereinigten Staaten verdoppelt sie sich in dreiundzwanzig
-bis fünsundzwanzig Jahren; in Mexiko hat sie sich, sogar
-unter der Herrschaft des Mutterlandes, in vierzig bis fünf-
-undvierzig Jahren verdoppelt. Ohne der Zukunft allznviel
-zuzutrauen, läßt sich annehmen, daß in weniger als andert-
-halbhundert Jahren Amerika so stark bevölkert seyn wird als
-Europa. Dieser schöne Wetteifer in der Cultur, in den Kün-
-sten des Gewerbsleißes und des Handels wird keineswegs, wie
-man so oft prophezeien hört, den alten Continent aus Kosten
+bis fünfundzwanzig Jahren; in Mexiko hat sie sich, sogar
+unter der Herrschaft des Mutterlandes, in vierzig bis fünfundvierzig
+Jahren verdoppelt. Ohne der Zukunft allzuviel
+zuzutrauen, läßt sich annehmen, daß in weniger als anderthalbhundert
+Jahren Amerika so stark bevölkert seyn wird als
+Europa. Dieser schöne Wetteifer in der Cultur, in den Künsten
+des Gewerbfleißes und des Handels wird keineswegs, wie
+man so oft prophezeien hört, den alten Continent auf Kosten
 des neuen ärmer machen; er wird nur die Consumtionsmittel
 und die Nachfrage darnach, die Masse der productiven Arbeit
-und die Lebhaftigleit des Austausches steigern. Allerdings ist
-in Folge der großen Umwälzungen, denen die menschlichea
-Gesellschaftsvereine unterliegen, das Gefammtvermögen, das
+und die Lebhaftigkeit des Austausches steigern. Allerdings ist
+in Folge der großen Umwälzungen, denen die menschlichen
+Gesellschaftsvereine unterliegen, das Gesammtvermögen, das
 gemeinschaftliche Erbgut der Cultur, unter die Völker beider
-Welten ungleich vertheilt; aber allgemach stellt sich das Gleich-
-gewicht her, und es ist ein verderbliches, ja ich möchte sagen
+Welten ungleich vertheilt; aber allgemach stellt sich das Gleichgewicht
+her, und es ist ein verderbliches, ja ich möchte sagen
 gottloses Vorurtheil, zu meinen, es sey ein Unheil für das
-alte Europa, wenn auf irgend einem andern St1·ick unseres
-Planeten der össentliche Wohlstand gedeiht. Die Unabhängig-
-keit der Colonien wird nicht zur Folge haben, sie zu ifoliren,
-
-399
+alte Europa, wenn auf irgend einem andern Stück unseres
+Planeten der öffentliche Wohlstand gedeiht. Die Unabhängigkeit
+der Colonien wird nicht zur Folge haben, sie zu isoliren,
 sie werden vielmehr dadurch den Völkern von alter Cultur
 näher gebracht werden. Der Handel wirkt naturgemäß dahin,
-zu verbinden, was eifersüchtige Staatskunst so lange ausein-
-andergehalten. Noth mehr: es liegt im Wesen der Civilisation,
+zu verbinden, was eifersüchtige Staatskunst so lange 
+auseinandergehalten. Noch mehr: es liegt im Wesen der Civilisation,
 daß sie sich ausbreiten kann, ohne deßhalb da, von wo sie
-ausgegangen, zu erlöschen. Jhr allmähliges Von-ücken von
+ausgegangen, zu erlöschen. Ihr allmähliges Vorrücken von
 Ost nach West, von Asien nach Europa, beweist nichts gegen
 diesen Satz. Ein starkes Licht behält seinen Glanz, auch wenn
-es einen größerm Raum beleuchtet. Geistesbildung, die frucht-
-bare Qu·elle des Nationalwohlstands, theilt sich durch Berüh-
-rung m·it; sie breitet sich aus, ohne von der Stelle zu rücken.
+es einen größerm Raum beleuchtet. Geistesbildung, die fruchtbare
+Quelle des Nationalwohlstands, theilt sich durch Berührung
+mit; sie breitet sich aus, ohne von der Stelle zu rücken.
 Ihre Bewegung vorwärts ist keine Wanderung; im Orient
-kam uns dieß nur so vor, weil barbarische Horden sich Egyp-
-tens, Kleinasiens;ben"tächtigt hatten, und Griechenlands, des
+kam uns dieß nur so vor, weil barbarische Horden sich Egyptens,
+Kleinasiens bemächtigt hatten, und Griechenlands, des
 einst freien, der verlassenen Wiege der Cultur unserer Väter.
-Die Verwilderung der Völker ist eine Folge der Unter-«
-drückung durch einheimischen Despotismus oder durch einen
-fremden Eroberer; mit ihr Hand in Hand geht immer stei-
-gende Verm-mung, Versiegung des öffentlichen Wohlstands.
-Freie, starke, den Interessen Aller entsprechende Staa«tssornien
+
+Die Verwilderung der Völker ist eine Folge der Unterdrückung
+durch einheimischen Despotismus oder durch einen
+fremden Eroberer; mit ihr Hand in Hand geht immer steigende
+Verarmung, Versiegung des öffentlichen Wohlstands.
+Freie, starke, den Interessen Aller entsprechende Staatsformen
 halten diese Gefahren fern, und die Zunahme der Cultur in
 der Welt, die Mitwerbung in Arbeit und Austausch bringen
-Staaten nicht herab, deren Gedeihen aus nat1'irlicher Quelle
+Staaten nicht herab, deren Gedeihen aus natürlicher Quelle
 fließt. Das gewerbfleißige und handeltreibende Europa wird
 aus der neuen Ordnung der Dinge, wie sie sich im spanischen
-Amerika gestaltet, seinen Nutzen ziehen, wie ihm die Steige-
-rung der Consumtion zu gute« käme, wenn der Weltlauf der
-Barbarei in Griechenland, auf der Nordkitste von Afrika und
+Amerika gestaltet, seinen Nutzen ziehen, wie ihm die Steigerung
+der Consumtion zu gute käme, wenn der Weltlauf der
+Barbarei in Griechenland, auf der Nordküste von Afrika und
 in andern Ländern, auf denen die Tyrannei der Ottomanen
 lastet, ein Ende machte. Die einzige Gefahr, die den Wohlstand
-
--
-M .
-des alten Eontinents bedro·hte, wäre, wenn· die innern
-Zwist- kein Ende nahmen, weiche die Pwducti«-is niederh-1i-u
-uud die Zahl de: Verzehrend-« und zu greichet Zeit deren
-Vedürfnisse verringern. Im spanischen Amerika geht der
-Kampf, der sechs Jahre, nachdem ich es Verlassen, ausgebro-
-chen, allmählich seinem Ende entgegen.- Bald werden wir un-
-abhängige, unter sehr verschiedenen Verfassungsformen lebende,
-aber durch das Andenken gemeinsamer Herkunft, durch die-
-selbe Sprache und durch die Vedürfnisse, wie sie von selbst
+des alten Continents bedrohte, wäre, wenn die innern
+Zwiste kein Ende nahmen, weiche die Production niederhalten
+und die Zahl der Verzehrenden und zu gleicher Zeit deren
+Bedürfnisse verringern. Im spanischen Amerika geht der
+Kampf, der sechs Jahre, nachdem ich es verlassen, ausgebrochen,
+allmählich seinem Ende entgegen. Bald werden wir unabhängige,
+unter sehr verschiedenen Verfassungsformen lebende,
+aber durch das Andenken gemeinsamer Herkunft, durch dieselbe
+Sprache und durch die Bedürfnisse, wie sie von selbst
 aus der Cultur entspringen, verknüpfte Völker auf beiden
 Ufern des atlantischen Oceans wohnen sehen. Man kann
-wohl sagen, durch die ungeheuren Fortschritte in der Schiff-
-fahrtskunft sind die Meeresbecken enger geworden. Schon «jetzt
-erscheint unsern Blicken das atlantische Meer. als ein schmaler
-Eanal, der die neue Welt und die europäischen Handels-staaten
-nicht weiter auseinander hält, als in der Kindheit der Schiff-
-fahrt das Mittelmeer die Griechen in Peloponnes und die in
-Jonien, auf Sicilien und in Cyrenaiea auseinander hielt.
-Allerdings wird noch manches Jahr vergehen, bis fieb-
-zehn Millionen, über eine Länderstrecke zerstreut, die um ein
+wohl sagen, durch die ungeheuren Fortschritte in der Schifffahrtskunst
+sind die Meeresbecken enger geworden. Schon jetzt
+erscheint unsern Blicken das atlantische Meer als ein schmaler
+Canal, der die neue Welt und die europäischen Handelsstaaten
+nicht weiter auseinander hält, als in der Kindheit der Schifffahrt
+das Mittelmeer die Griechen in Peloponnes und die in
+Ionien, auf Sicilien und in Cyrenaica auseinander hielt.
+
+Allerdings wird noch manches Jahr vergehen, bis siebzehn
+Millionen, über eine Länderstrecke zerstreut, die um ein
 Fünftheil größer ist als ganz Europa, durch Selbstregierung
 zu einem festen Gleichgewicht kommen. Der eigentlich kritische
 Zeitpunkt ist der, wo es lange Zeit unterjochten Völkern auf
-einmal in die Hand gegeben ist, ihr Leben nach den Erforder-
-nissen ihres Wohlergehens einzurichten. Man hört immer
-wieder behaupten, die Hispano-Amerikaner seyen für freie In-
-stitutionen nicht weit genug in« der Culrur vorgeschritten. Es
+einmal in die Hand gegeben ist, ihr Leben nach den Erfordernissen
+ihres Wohlergehens einzurichten. Man hört immer
+wieder behaupten, die Hispano-Amerikaner seyen für freie Institutionen
+nicht weit genug in der Cultur vorgeschritten. Es
 ist noch nicht lange her, so sagte man dasselbe von andern
-Völkern aus, bei denen aber die Civilifation überreif seyn follte.
+Völkern aus, bei denen aber die Civilisation überreif seyn sollte.
 Die Erfahrung lehrt, daß bei Nationen wie beim Einzelnen
-
-. » · M
 das Glück ohne Talent und Wissen bestehen kann; aber ohne
 läugnen zu wollen, daß ein gewisser Grad von Aufklärung
-und Volksbildung zum Bestand von Republiken oder consti-
-tutionellen Monai«chien unentbehrlich ist, sind wir der Ansicht,
-daß dieser Bestand lange nicht so sehr vom Grade der geisti-
-gen Bildung abhängt, als von der Stärke des Volkscharakters,
+und Volksbildung zum Bestand von Republiken oder constitutionellen
+Monarchien unentbehrlich ist, sind wir der Ansicht,
+daß dieser Bestand lange nicht so sehr vom Grade der geistigen
+Bildung abhängt, als von der Stärke des Volkscharakters,
 vom Verein von Thatkraft und Ruhe, von Leidenschaftlichkeit
-und Geduld, der eine Verfassung aufrecht und am Leben er-
-hält, ferner von den örtlichen Zuständen,· in denen sich das
+und Geduld, der eine Verfassung aufrecht und am Leben erhält,
+ferner von den örtlichen Zuständen, in denen sich das
 Volk befindet, und von den politischen Verhältnissen zwischen
 einem Staate und seinen Nachbarstaaten.
+
 Wenn die heutigen Colonien nach ihrer Emancipation
-mehr oder weniger zu republilanischer Verfassungs-form hin-
-neigen, so ist die Ursache dieser Erscheinung nicht allein im
-Nachahmungstrieb zu suchen, der bei Volksmassen noch mäch-
-tiger ist als beim Einzelnen; sie liegt vielmehr zunächst im
-eigenthümlichen Verhältniss, in dem eine Gesellschaft sich be
-findet, die sich auf einmal von einer Welt mit älterer Cultur
-losgetrennt, aller äußern Bande entledigt sieht und aus Indi-
-viduen besteht, die nicht Einer Kaste das 1»Iebergewicht im
-Staate zugestehen. Durch die Vorrechte, welche das Mutter-
-land ’einer sehr beschränkten Anzahl von Familien in Amerika
+mehr oder weniger zu republikanischer Verfassungsform hinneigen,
+so ist die Ursache dieser Erscheinung nicht allein im
+Nachahmungstrieb zu suchen, der bei Volksmassen noch mächtiger
+ist als beim Einzelnen; sie liegt vielmehr zunächst im
+eigenthümlichen Verhältniss, in dem eine Gesellschaft sich befindet,
+die sich auf einmal von einer Welt mit älterer Cultur
+losgetrennt, aller äußern Bande entledigt sieht und aus Individuen
+besteht, die nicht Einer Kaste das Uebergewicht im
+Staate zugestehen. Durch die Vorrechte, welche das Mutterland
+einer sehr beschränkten Anzahl von Familien in Amerika
 ertheilte, hat sich dort durchaus nicht gebildet, was in Europa
 eine Adelsaristokratie heißt. Die Freiheit mag in Anarchie
 oder durch die vorübergehende Usurpation eines verwegenen
 Parteihauptes zu Grunde gehen, aber die wahren Grundlagen
 der Monarchie sind im Schooße der heutigen Colonien nirgends
-zu finden. Nach Vrasilien wurden sie von außen hereingebracht
+zu finden. Nach Brasilien wurden sie von außen hereingebracht
 zur Zeit, da dieses gewaltige Land des tiefsten Friedens genoß,
 während das Mutterland unter ein fremdes Joch gerathen war.
-s-«-t«pm, preise. us. AS
 
--MS
-Ueberdenkt man die Berketiung menschlicher Geschicke, so
+Ueberdenkt man die Verkettung menschlicher Geschicke, so
 sieht man leicht ein, wie die Existenz der heutigen Colonien,
 oder vielmehr wie die Entdeckung eines halb mensehenleeren
 Continents, auf dem allein eine so erstaunliche Entwicklung
-des Colonialsystems möglich war, republikanische Staatssvr1nen
+des Colonialsystems möglich war, republikanische Staatsformen
 in großem Maßstab und in so großer Zahl wieder ins Leben
 rufen mußte. Nach der Anschauung berühmter Schriftsteller
 sind die Umwandlungen auf dem Boden der Gesellschaft, welche
 ein bedeutender Theil von Europa in unsern Tagen erlitten
 hat, eine Nachwirkung der religiösen Reform zu Anfang des
 sechzehnten Jahrhunderts. Es ist nicht zu vergessen, daß in
-diese denkw1«irdige Zeit, in der ungezügelte Leidenschaften und
+diese denkwürdige Zeit, in der ungezügelte Leidenschaften und
 der Hang zu starren Dogmen die Klippen der europäischen
-Staatskunst waren, auch die C«roberung von Mexico, Pera
-und Cundinamarca fällt, eine Groberung, durch die, wie sich
-der Verfasser des Esp1-it des 1ois so schön ausdrückt, das
+Staatskunst waren, auch die Eroberung von Mexico, Peru
+und Cundinamarca fällt, eine Eroberung, durch die, wie sich
+der Verfasser des <i>Esprit des lois</i> so schön ausdrückt, das
 Mutterland eine unermeßliche Schuld auf sich genommen, die
-es der Menschheit abzutragen hat. Ungeheure Provinzen wur-
-den durch castilianische Tapferkeit den Ansiedlern aufgethan und
-durch die Bande gemeinsamer Sprache, Sitte und Gottesver-
-ehrung verknüpft. Und so hat denn durch das merkwürdigste
-Zusammentreffen von Ereignissen die Regierung des mächtig-
-sten und unumschränktesten Monarchen Europas, Carls I-’.,
-die Keime ausgestreut zum Kampfe des neunzehnten Jahr-
-hunderts und den Grund gelegt zu den staatlichen Vereinen,
+es der Menschheit abzutragen hat. Ungeheure Provinzen wurden
+durch castilianische Tapferkeit den Ansiedlern aufgethan und
+durch die Bande gemeinsamer Sprache, Sitte und Gottesverehrung
+verknüpft. Und so hat denn durch das merkwürdigste
+Zusammentreffen von Ereignissen die Regierung des mächtigsten
+und unumschränktesten Monarchen Europas, Carls&nbsp;V.,
+die Keime ausgestreut zum Kampfe des neunzehnten Jahrhunderts
+und den Grund gelegt zu den staatlichen Vereinen,
 die, eben erst ins Leben getreten, uns durch ihren Umfang
 und die Gleichförmigkeit der dabei herrschenden Grundsätze in
 Erstaunen setzen. Befestigt sich die Emancipation des spanischen
 Amerika, wie man bis jetzt mit allem Grund hoffen darf, so
 sieht ein Meeresarm, der atlantische Ocean, auf seinen beiden
-
-403«
-« .
-Ufern Regierungsformen, die, so grnndverschieden sie find,
-einander nicht nothwendig feindfelig gegenübertreten. Nicht
+Ufern Regierungsformen, die, so grundverschieden sie sind,
+einander nicht nothwendig feindselig gegenübertreten. Nicht
 allen Völkern beider Welten mag dieselbe Verfassung zum
 Heile gereichen; der wachsende Wohlstand einer Republik ist
-kein Schimpf für monarchische Staaten, so lange sie mit Weis-
-heit und Achtung vor den Gesetzen und den össentlichen Frei-
-heiten regiert werden.
+kein Schimpf für monarchische Staaten, so lange sie mit Weisheit
+und Achtung vor den Gesetzen und den öffentlichen Freiheiten
+regiert werden.
+
 Seit die Entwicklung der Schifffahrtskunst und die sich
 steigernde Thätigkeit der Handelsvölker die Küsten der beiden
-Festländer einander »näher gerückt haben, seit die Havana,
-Mo Janeiro und der Senegal uns kaum entlegener vorkom-
-men als Cadix, Smyrna und die Hafen des baltischen Meeres,
+Festländer einander näher gerückt haben, seit die Havana,
+Rio Janeiro und der Senegal uns kaum entlegener vorkommen
+als Cadix, Smyrna und die Häfen des baltischen Meeres,
 nimmt man Anstand, die Leser mit einer Ueberfahrt von der
-Küste von Caracas nach der Insel Cuba zu behelIigen. Das
-Meer der Antillen ist so bekannt wie das Becken des Mittel-
-meers, und wenn ich hier ans meinem Seetagebuch einige
+Küste von Caracas nach der Insel Cuba zu behelligen. Das
+Meer der Antillen ist so bekannt wie das Becken des Mittelmeers,
+und wenn ich hier aus meinem Seetagebuch einige
 Beobachtungen niederlege, so thue ich es nur, um den Faden
 meiner Reisebeschreibung nicht zu verlieren und allgemeine
 Betrachtungen über Meteorologie und physische Geographie
-daran zu knüpfen. Um die wechselnden Zustände der Atmo-
-sphäre recht kennen zu lernen, muß man am Abhang der
-Gebirge und auf der unermeßlichen Meeressläche beobachten;
-in einem Forscher, der seinen Scharfsinn im Befragen der Na-
-tur lange nur im Studirzimmer geübt hat, mögen schon auf
+daran zu knüpfen. Um die wechselnden Zustände der Atmosphäre
+recht kennen zu lernen, muß man am Abhang der
+Gebirge und auf der unermeßlichen Meeresfläche beobachten;
+in einem Forscher, der seinen Scharfsinn im Befragen der Natur
+lange nur im Studirzimmer geübt hat, mögen schon auf
 der kleinsten Ueberfahrt, auf einer Reise von den Canarien
 nach Madera, ganz neue Ansichten sich gestalten.
+
 Am 24. November um neun Uhr Abends gingen wir
 auf der Rhede von Nueva Barcelona unter Segel und fuhren
 um die kleine Felseninsel Borrachita herum. Zwischen derselben
 und Gran Borracha ist eine tiefe Straße. Die Nacht brachte
-
--
-40-l"
-die Kühle, welche den tropisrhen- Nächten eigen ist und·einen
-angenehmen E-indruck macht, von dem man sich "erst Rechen-
-schaft geben kann, wenn man die nächtliche. Temperatur von
-23 bis 24 Graden des hunderttheiligen Ther1nometers mit de,r
-mittleren Tagestemperatur vergleicht, die in diesen Strithen,
-selbst auf den Küsten, meist 28 bis As) Grad beträgt. Tags
+die Kühle, welche den tropischen Nächten eigen ist und einen
+angenehmen Eindruck macht, von dem man sich erst Rechenschaft
+geben kann, wenn man die nächtliche Temperatur von
+23 bis 24 Graden des hunderttheiligen Ther1nometers mit der
+mittleren Tagestemperatur vergleicht, die in diesen Strichen,
+selbst auf den Küsten, meist 28 bis 29 Grad beträgt. Tags
 darauf, kurz nach der Beobachtung um Mittag, befanden wir
-uns im Meridian der Insel Tortuga; sie ist, gleich den Ei-
-landen Coche und Cubagua, ohne Pflanzenwuchs und erhebt
-sich auffalIend wenig über den Meeresspiegel. Da man in
-neuester Zeit über die astronomische Lage« von Tortuga Zweifel
-geäußert hat, so bemerke ich hier, daß Loui-S Berthouds Chro-
-nometer mir für den Mittelpunkt der Insel 0049« 40« west-
-wärts von Nueva Barcelona ergab; diese Länge ist aber doch
+uns im Meridian der Insel Tortuga; sie ist, gleich den Eilanden
+Coche und Cubagua, ohne Pflanzenwuchs und erhebt
+sich auffallend wenig über den Meeresspiegel. Da man in
+neuester Zeit über die astronomische Lage von Tortuga Zweifel
+geäußert hat, so bemerke ich hier, daß Louis Berthouds Chronometer
+mir für den Mittelpunkt der Insel 0°49′40″ westwärts
+von Nueva Barcelona ergab; diese Länge ist aber doch
 wohl noch ein wenig zu weit westlich.
+
 Am 26. November. — Windstille, auf die wir um so
 weniger gefaßt waren, da der Ostwind in diesen Strichen von
 Anfang Novembers an meist sehr stark ist, während vom Mai
 bis Oktober von Zeit zu Zeit die Nordwest- und die Südwinde
-austreten. Bei Nordwestwind bemerkt man eine Strömung!
+auftreten. Bei Nordwestwind bemerkt man eine Strömung
 von West nach Ost, welche zuweilen zwei, drei Wochen lang
 die Fahrt von Carthagena nach Trinidad beschleunigt. Der
 Südwind gilt auf der ganzen Küste von Terra firma für sehr
 ungesund, weil er (so sagt das Volk) die fauligten Effluvien
 aus den Wäldern am Orinoco herführt. Gegen neun Uhr
 Morgens bildete sich ein schöner Hof um die Sonne, und im
-selben Moment fiel in der tiefen Lnftregion der Thermometer
-plötzlich um :-IV, Grad. War dieses Fallen die Folge eines
-« S. Bd. 11. Seite 100.
-
-40-5
+selben Moment fiel in der tiefen Luftregion der Thermometer
+plötzlich um 3½ Grad. War dieses Fallen die Folge eines
 niedergehenden Luftstroms? Der einen Grad breite Streif,
-der den Hof bildete, war nicht weiß, sondern hatte die leb-
-haftesten Regenbogenfarben, während das Innere des Hofes
-und das ganze Himmel-sgewölbe blau waren ohne eine Spur
-von Dunst. — - '
+der den Hof bildete, war nicht weiß, sondern hatte die lebhaftesten
+Regenbogenfarben, während das Innere des Hofes
+und das ganze Himmelsgewölbe blau waren ohne eine Spur
+von Dunst.
+
 Wir verloren nachgerade die Insel Margarita aus dem
 Gesicht, und ich versuchte die Höhe der Felsgruppe Macanao zu
-bestimmen. Sie erschien unter einem Winkel von 0016«35«,
+bestimmen. Sie erschien unter einem Winkel von 0°16′35″,
 woraus sich beim geschätzten Abstand von 60 Seemeilen für
 den Glimmerschieferstock Macanao eine Höhe von etwa 660
-Toisen ergäbe, und dieses Resultat« läßt mich in einem Erd-
-strich, wo die irdischen Refractionen so gleichförmig sind, ver-
-muthen, daß wir uns nicht so weit von der Insel befanden,
-als wir meinten. Die .Kuppel der Silla bei Caracas, die in
-Süd 620 West liegen blieb, fesselte lange unsern Blick. Mit
+Toisen ergäbe, und dieses Resultat^[S. Bd. I. Seite 203.]
+läßt mich in einem Erdstrich,
+wo die irdischen Refractionen so gleichförmig sind, vermuthen,
+daß wir uns nicht so weit von der Insel befanden,
+als wir meinten. Die Kuppel der Silla bei Caracas, die in
+Süd&nbsp;62°&nbsp;West liegen blieb, fesselte lange unsern Blick. Mit
 Vergnügen betrachtet man den Gipfel eines hohen Berges, den
 man nicht ohne Gefahr bestiegen hat, wie er nach und nach
 unter den Horizont sinkt. Wenn die Küste dunstfrei ist, muß
 die Silla auf hoher See, den Einfluß der Refraction nicht
-gerechnet, auf 33 Meilen zu sehen seyn. T An diesem und
+gerechnet, auf 33 Meilen zu sehen seyn.^[S. Bd. II. Seite 187 ff.]
+An diesem und
 den folgenden Tagen war die See mit einer bläulichten Haut
-bedeckt, die unter dem zusammengesetzten Microscop aus zahl-
-losen Fäden zu bestehen schien. Man findet dergleichen Fäden
+bedeckt, die unter dem zusammengesetzten Microscop aus zahllosen
+Fäden zu bestehen schien. Man findet dergleichen Fäden
 häufig im Golfstrom und im Canal von Bahama, so wie im
-Seest1-ich von Buenos Ayres. Manche Naturforscher halten
-sie für Reste von Mollu-3keneiern, mir schienen sie vielmehr
+Seestrich von Buenos Ayres. Manche Naturforscher halten
+sie für Reste von Molluskeneiern, mir schienen sie vielmehr
 zerriebene Algen zu seyn. Indessen scheint das Leuchten der
 See durch sie gesteigert zu werden, namentlich zwischen dem
--« -Seite 203.
-Seite 187 ff. »
-nor?
-L?
-F!-«
-N
+28. und 30.&nbsp;Grad der Breite, was allerdings auf thierischen
+Ursprung hindeutete.
 
-is-G ·
-28. und 30. Grad der Breite, was allerdings ans- thierischen
-Ursprung·hindeutete. « . «
-Am 27. November. Wir "rückten langsam ans die Insel
-Orchila zu; wie alle kleinen Gilande in der Nähe der frucht-
-baren Küste von Terra fmna« ist sie nnbewohnt geblieben.
-Ich fand die Breite des nördlichen Vokgebirge·s U« 51« 44«
-und die Länge des östlichen Vorgebirges 680 26« Z« (Nneva
-Barcelona zu 670 4« 48« angenommen). Dem westlichen
- gegenüber liegt ein Fels, an« dem sich die Wellen mit
-starkem Getöse brechen. Einige mit dem Sextanten aufg-
-nommene Winkel ergaben für die Länge der Insel von Ost
-nach West 8,4 Seemeilen (zu 950 Toisen), für die Breite
-kaum :s Seemeilen. Die Insel Orchila, die ich mir nach
+Am 27. November. Wir rückten langsam auf die Insel
+Orchila zu; wie alle kleinen Eilande in der Nähe der fruchtbaren
+Küste von Terra firma ist sie unbewohnt geblieben.
+Ich fand die Breite des nördlichen Vorgebirges 11°51′44″
+und die Länge des östlichen Vorgebirges 68°26′5″ (Nueva
+Barcelona zu 67°4′48″ angenommen). Dem westlichen
+Cap gegenüber liegt ein Fels, an dem sich die Wellen mit
+starkem Getöse brechen. Einige mit dem Sextanten aufgenommene
+Winkel ergaben für die Länge der Insel von Ost
+nach West 8,4&nbsp;Seemeilen (zu 950 Toisen), für die Breite
+kaum 3&nbsp;Seemeilen. Die Insel Orchila, die ich mir nach
 ihrem Namen als ein dürres, mit Flechten bedecktes Eiland
-vorgestellt hatte, zeigte sich jetzt in schönem Grün; die Gneisp
-hügel waren mit Gräsern bewachsen. Im geologischen Bau
-scheint Orchila im Kleinen mit der Insel Margarita überein-
-zukommen; sie besteht aus zwei, durch eine Landzunge ver-
-bundenen Felsgrnppen; jene ist ein mit Sand bedeckter Jsth-
-mus·, der aussieht, als wäre er beim allmähligen Sinken
+vorgestellt hatte, zeigte sich jetzt in schönem Grün; die Gneißhügel
+waren mit Gräsern bewachsen. Im geologischen Bau
+scheint Orchila im Kleinen mit der Insel Margarita übereinzukommen;
+sie besteht aus zwei, durch eine Landzunge verbundenen
+Felsgruppen; jene ist ein mit Sand bedeckter Isthmus,
+der aussieht, als wäre er beim allmähligen Sinken
 des Meeresspiegels aus dem Wasser gestiegen. Die Felsen
 erschienen hier, wie überall, wo sie sich einzeln steil aus der
-See erheben, weit höherT, als sie wirklich sind; sie sind kaum
-80 bis 90 Toisen hoch. Gegen Nordwest streicht die Pontia
-kasa hinaus und verliert sich als Untiese im Wasser. Sie
-kann den Schiffen gefährlich werden, wie auch der Mogote,
-der, zwei Seemeilen vom westlichen Cap, von Klippen um-
-geben ist. Wir betrachteten diese Felsen ganz in der Nähe
+See erheben, weit höher, als sie wirklich sind; sie sind kaum
+80 bis 90&nbsp;Toisen hoch. Gegen Nordwest streicht die <i>Punta
+rasa</i> hinaus und verliert sich als Untiefe im Wasser. Sie
+kann den Schiffen gefährlich werden, wie auch der <b>Mogote</b>,
+der, zwei Seemeilen vom westlichen Cap, von Klippen umgeben
+ist. Wir betrachteten diese Felsen ganz in der Nähe
 und sahen die Gneißschichten nach Nordwest fallen und von
 dicken Quarzlagern durchzogen. Von der Verwitterung dieser
-
--
-407
-Lager rührt ohne Zweifel der Sand des umgebenden Strand-es
+Lager rührt ohne Zweifel der Sand des umgebenden Strandes
 her. Ein paar Baumgruppen beschatten die Gründe; oben
-auf den Hügeln stehen Palmen mit fåcherförmigem Laub. Es
-ist wahrscheinlich die Palme de sombrek0 der Llanos (Gok·y-
-pha tecta!-am). Es regnet wenig in diesen St1ichen, indessen
-fände man auf der Insel Orchila wahrscheinli·h doch einige
-Quellen, wenn man sie so eifrig suchte, wie im Glimmer-
-schiefergestein auf Punta Araya. Wenn man bedenkt, wie
-viele dürre Felseneilande zwischen dem 16. und W. Grad der
-Breite im Archipel der kleinen Antillen und der Bahama-
-inseln bewohnt und gut angebaut sind, so wundes-t man sieh,
-diese den .Küsten von Cumcma, Barcelona und Caracas so
-nahe gelegenen Eilande wüste liegen zusehen Es wäre längst
+auf den Hügeln stehen Palmen mit fächerförmigem Laub. Es
+ist wahrscheinlich die <i>Palma de sombrero</i> der Llanos (<i>Corypha
+tectorum</i>). Es regnet wenig in diesen Strichen, indessen
+fände man auf der Insel Orchila wahrscheinlich doch einige
+Quellen, wenn man sie so eifrig suchte, wie im Glimmerschiefergestein
+auf Punta Araya. Wenn man bedenkt, wie
+viele dürre Felseneilande zwischen dem 16. und 26.&nbsp;Grad der
+Breite im Archipel der kleinen Antillen und der Bahama-Inseln
+bewohnt und gut angebaut sind, so wundert man sich,
+diese den Küsten von Cumana, Barcelona und Caracas so
+nahe gelegenen Eilande wüste liegen zu sehen. Es wäre längst
 anders, wenn sie unter einer andern Regierung als unter der
 von Terra firma ständen. Nichts kann Menschen veranlassen,
-ihre Thätigkeit auf dar engen Bezirk einer Insel zu beschrän-
-ken, wenn das nahe Festland ihnen größere Vortheile bietet.
+ihre Thätigkeit auf den engen Bezirk einer Insel zu beschränken,
+wenn das nahe Festland ihnen größere Vortheile bietet.
+
 Bei Sonnenuntergang kamen uns die zwei Spitzen der
-R-o(-a de at’ue1-a zu Gesicht, die sich wie Thürme aus der
+<i>Roca de afuera</i> zu Gesicht, die sich wie Thürme aus der
 See erheben. Nach der Aufnahme mit dem Compaß liegt der
-östlichste dieser Felsen O« I9« westwärt-s vom westlichen Gan
-von Orchila. Die Wolken blieben lange um diese Insel ge
-ballt, so daß man ihre Lage weit in See erkannte. Der Ein-
-fluß, den eine kleine Landmasse auf die Verdichtung der 800
+östlichste dieser Felsen 0°19′ westwärts vom westlichen Cap
+von Orchila. Die Wolken blieben lange um diese Insel geballt,
+so daß man ihre Lage weit in See erkannte. Der Einfluß,
+den eine kleine Landmasse auf die Verdichtung der 800
 Toisen hoch schwebenden Wasserdünste äußert, ist eine sehr
 auffallende Erscheinung, aber allen Seefahrern wohl bekannt.
 Durch diese Ansammlung von Wolken erkennt man die Lage
-der niedrigsten Inseln in sehr bedentender Entfernung.
-Am 29. November. Bei Sonnenaufgang sahen wir fast
-dicht am Meereshorizont die .liuppel der SilIa bei Caracas
+der niedrigsten Inseln in sehr bedeutender Entfernung.
 
-408 --
-noch ganz deutlich. Wir glaubten «?-9 bis 40 Meilen (Lieues)
-davon entfernt zu seyn, woraus; die Höhe des Berges (1350
-Toisen), seine astronomische Lage und den Schisfsort als richtig
-bestimmt angenommen, eine für diese Breite etwas starke Re-
-sraction zwischen «-» und «!-, folgte. Um Mittag verktindeten
+Am 29. November. Bei Sonnenaufgang sahen wir fast
+dicht am Meereshorizont die Kuppel der Silla bei Caracas
+noch ganz deutlich. Wir glaubten 39 bis 40 Meilen (Lieues)
+davon entfernt zu seyn, woraus, die Höhe des Berges (1350
+Toisen), seine astronomische Lage und den Schiffsort als richtig
+bestimmt angenommen, eine für diese Breite etwas starke Refraction zwischen ¹⁄₆ und ¹⁄₇, folgte. Um Mittag verkündeten
 alle Zeichen am Himmel gegen Nord einen Witterungswechsel;
-die Luft kühlte sich auf einmal auf 220s ab, während die
-See an der Oberfläche eine Temperatur von. 25 Es behielt.
+die Luft kühlte sich auf einmal auf 22°8 ab, während die
+See an der Oberfläche eine Temperatur von 25°6 behielt.
 Während der Beobachtung um Mittag brachten daher auch
 die Schwingungen des Horizonts, der von schwarzen Streifen
 oder Bändern von sehr veränderlicher Breite durchzogen war,
 einen Wechsel von 3 bis 4 Minuten in der Refraction hervor.
-Bei ganz stiller Luft sing die See an hoch zu gehen; Alles
+Bei ganz stiller Luft fing die See an hoch zu gehen; Alles
 deutete auf einen Sturm zwischen den Caymanseilanden und
-dem Cap San Antonio. Und wirklich sprang am so. Novem-
-ber der Wind auf einmal nach Nordnordost um, und die
-Wogen wurden ausnehmend hoch. Gegen Nord war der Him-
-mel schwarzblau, und unser kleines Fahrzeug schlingerte um
-so stärker, da man im Anschlagen der Wellen zwei sich kreu-
-zende Seen unterschied, eine aus Nord, eine andere aus
-Nordnordost. Auf eine Seemeile weit bildeten sich Wasser-
-hosen und liefen rasch von Nordnordost nach Nordnordwest.
+dem Cap San Antonio. Und wirklich sprang am 30.&nbsp;November
+der Wind auf einmal nach Nordnordost um, und die
+Wogen wurden ausnehmend hoch. Gegen Nord war der Himmel
+schwarzblau, und unser kleines Fahrzeug schlingerte um
+so stärker, da man im Anschlagen der Wellen zwei sich kreuzende
+Seen unterschied, eine aus Nord, eine andere aus
+Nordnordost. Auf eine Seemeile weit bildeten sich Wasserhosen
+und liefen rasch von Nordnordost nach Nordnordwest.
 So oft die Wasserhose uns am nächsten kam, fühlten wir
-den Wind stärker werden. Gegen Abend brach durch die Un-
-vorsichtigkeit unseres amerikanischen Kochs Feuer auf dem
-Oberleus aus. Es wurde leicht gelöscht; bei sehr schlimmem
+den Wind stärker werden. Gegen Abend brach durch die Unvorsichtigkeit
+unseres amerikanischen Kochs Feuer auf dem
+Oberleuf aus. Es wurde leicht gelöscht; bei sehr schlimmem
 Wetter mit Windstößen, und da wir Fleisch geladen hatten,
 das des Fettes wegen ungemein leicht brennt, hätte aber das
-Feuer rasch um sich greifen können. Am I. December Morgens
+Feuer rasch um sich greifen können. Am 1.&nbsp;December Morgens
 wurde die See allmählig ruhiger, je mehr sich der Wind in
-
-409 ,
-Nordost sestsetzte. Ich war zu dieser Zeit des gleichförmigen
+Nordost festsetzte. Ich war zu dieser Zeit des gleichförmigen
 Ganges meines Chronometers ziemlich gewiß; der Capitän
-wollte aber zur Beruhigung einige Punkte der Insel St.
-Domingo peilen. Am 2. December kam wirklich Cap Beata
+wollte aber zur Beruhigung einige Punkte der Insel St.&nbsp;Domingo
+peilen. Am 2.&nbsp;December kam wirklich Cap Beata
 in Sieht, an einem Punkt, wo wir schon lange Wolkenhaufen
-gesehm hatten. Nach Höhen des Achernar, die ich in der Nacht
-aufnahm, waren wir 64«Seemeilen davon entfernt. In dieser
+gesehen hatten. Nach Höhen des Achernar, die ich in der Nacht
+aufnahm, waren wir 64&nbsp;Seemeilen davon entfernt. In dieser
 Nacht beobachtete ich eine sehr interessante optische Erscheinung,
 die ich aber nicht zu erklären versuche. Es war über zwölf
-ein halb Uhr; der Wind wehte schwach aus Ost; der Thermo-
-meter stand ans 2302, der Fischbein-Hygrometer aus «570.
+ein halb Uhr; der Wind wehte schwach aus Ost; der Thermometer
+stand auf 23°2, der Fischbein-Hygrometer auf 57°.
 Ich war ans dem Oberleuf geblieben, um die Culmination
 einiger großen Sterne zu beobachten. Der volle Mond stand
-sehr hoch. Da aus einmal bildete sich auf der Seite des
-Mondes, 45 Minuten vor seinem Durchgang durch den Me-
-ridian, ein großer Bogen in allen Farben des Spectrums,
+sehr hoch. Da auf einmal bildete sich auf der Seite des
+Mondes, 45&nbsp;Minuten vor seinem Durchgang durch den Meridian,
+ein großer Bogen in allen Farben des Spectrums,
 aber unheimlich anzusehen. Der Bogen reichte über den Mond
 hinaus; der Streifen in den Farben des Regenbogens war gegen
 zwei Grad breit und seine Spitze schien etwa 80 bis 85 Grad
-über dem Meereshorizont zu liegen. Der Himmel war voll-
-kommen rein, von Regen keine Spur; am aufsallendsten war
-mir aber, daß die Erscheinung, die vollkommen einem Mond-
-regenbogen glich, sich nicht dem Mond gegenüber zeigte. Der
-Bogen blieb S bis 10 Minuten, scheinbar wenigstens, unver-
-rückt; im Moment aber, wo ich versuchte, ob er durch Re-
-flexion im Spiegel des Sextanten zu sehen seyn werde, sing
+über dem Meereshorizont zu liegen. Der Himmel war vollkommen
+rein, von Regen keine Spur; am auffallendsten war
+mir aber, daß die Erscheinung, die vollkommen einem Mondregenbogen
+glich, sich nicht dem Mond gegenüber zeigte. Der
+Bogen blieb 8 bis 10 Minuten, scheinbar wenigstens, unverrückt;
+im Moment aber, wo ich versuchte, ob er durch Reflexion
+im Spiegel des Sextanten zu sehen seyn werde, fing
 er an sich zu bewegen und über den Mond und Jupiter, der
 nicht weit unterhalb des Mondes stand, hinabzurücken. Es
-war zwölf Uhr vierundsünszig Minuten (wahre ,8eit), als die
+war zwölf Uhr vierundfünfzig Minuten (wahre Zeit), als die
 Spitze des Bogens unter dem Horizont verschwand. Diese
-
-« «I10 -
-Bewegung eines farbigen Bogens setzte die: wnchhabenden
-Matrofen auf dem Oberlauf in Q«staunen; sie behaupteten,
-wie beim E:scheiue-: jedes Organ-nd-u M-tm-, »das sähen«
+Bewegung eines farbigen Bogens setzte die wachhabenden
+Matrosen auf dem Oberlauf in Erstaunen; sie behaupteten,
+wie beim Erscheinen jedes auffallenden Meteors, »das bedeute
 Sturm.« Arago hat die Zeichnung dieses Bogens in meinem
-Reisetagebnche untersucht; nach seiner Anficht" hätte das im
+Reisetagebuche untersucht; nach seiner Ansicht hätte das im
 Wasser reflektirte Bild des Mondes keinen Hof von so großem
-Durchmesser geben können. Die Rasthheit der Bewegung ist
-ein weiteres Moment, das diese Erscheinung, die alle Beach-
-tung verdient, ebenso schwer erklärlich macht.
-Am Z. December. Man war unruhig, weil sich ein
+Durchmesser geben können. Die Raschheit der Bewegung ist
+ein weiteres Moment, das diese Erscheinung, die alle Beachtung
+verdient, ebenso schwer erklärlich macht.
+
+Am 3. December. Man war unruhig, weil sich ein
 Fahrzeug sehen ließ, das man für einen Caper hielt. Als
-es anf»uns zukam, sah man, daß es die Balandra del
-Frayle (Goelette des Mönchs) war. Was eine so seltsame
+es auf uns zukam, sah man, daß es die <b>Balandra del
+Frayle</b> (Goelette des Mönchs) war. Was eine so seltsame
 Benennung sagen wollte, war mir unklar. Es war aber
-nur das Fahrzeug eines Missionärs vom F-ranciseanerorden
-(F’ray1e 0bsekvante), eines sehr reichen Pfarrers eines
+nur das Fahrzeug eines Missionärs vom Franciscanerorden
+(<i>Frayle Observante</i>), eines sehr reichen Pfarrers eines
 indianischen Dorfs in den Llanos von Barcelona, der seit
-mehreren Jahren einen kleinen, ziemlich einträglichen Schmug-
-gelhandel mit den dänischen Inseln trieb. In der Nacht
+mehreren Jahren einen kleinen, ziemlich einträglichen Schmuggelhandel
+mit den dänischen Inseln trieb. In der Nacht
 sahen Bonpland und mehrere andere Passagiere auf eine
 Viertels-Seemeile unter dem Wind eine kleine Flamme an
-der Meeresfläche, die gegen Südwest fortlief und die Luft er-
-hellte. Man spürte keinen Erdstoß, keine Aenderung in der
+der Meeresfläche, die gegen Südwest fortlief und die Luft erhellte.
+Man spürte keinen Erdstoß, keine Aenderung in der
 Richtung der Wellen. War es ein phosphorischer Schein, den
 eine große Masse faulender Mollusken verbreitete, oder kam
 die Flamme vom Meeresboden herauf, wie solches zuweilen in
 von Vulkanen erschütterten Seestrichen beobachtet worden seyn
-soll? Letztere Annahme scheint mir durchaus nnwahrschein-
-lich. Vulkanische Flammen können nur dann aus den Wellen
-hervorbrechen, wenn der feste Boden des Meeres bereits empor-
-
-« 411
-gehoben ist, so daß Flammen und glühende Schla;ken aus
+soll? Letztere Annahme scheint mir durchaus unwahrscheinlich.
+Vulkanische Flammen können nur dann aus den Wellen
+hervorbrechen, wenn der feste Boden des Meeres bereits emporgehoben
+ist, so daß Flammen und glühende Schlacken aus
 dem obern gewölbten und zerklüfteten Theil hervorkommen
-und nicht durch das Wasser selbst hiudurchgehen.
-« Am 4. December. Um zehn ein halb Uhr Morgens
-befanden wir uns unter dem Meridian des Vorge«birgs Bacco
-(Punta Abaccu), dessen Länge ich gleich 760 7« 50« oder
-90 Z« 2« von Nueva Barcelona fand. I«m Frieden laufen,
+und nicht durch das Wasser selbst hindurchgehen.
+
+Am 4. December. Um zehn ein halb Uhr Morgens
+befanden wir uns unter dem Meridian des Vorgebirgs Bacco
+(Punta Abaccu), dessen Länge ich gleich 76°7′50″ oder
+90°3′2″ von Nueva Barcelona fand. Im Frieden laufen,
 nach dem alten Brauch der spanischen Schiffer, die Fahrzeuge,
-die zwischen Cumana. oder Barcelona und der Havana mit
+die zwischen Cumana oder Barcelona und der Havana mit
 Salzfleisch Handel treiben, durch den Canal von Portorico
-und über »den alten« Canal nördlich von Euba; zuweilen« gehen
-sie auch zwischen Eap Tiburon und Eap Morant durch und
-fahren an der Nordküste von Iamaica hin. In Kriegszeiten
+und über »den alten« Canal nördlich von Cuba; zuweilen gehen
+sie auch zwischen Cap Tiburon und Cap Morant durch und
+fahren an der Nordküste von Jamaica hin. In Kriegszeiten
 gelten diese Wege für gleich gefährlich, weil man zu lange
-im Angesicht des Landes bleibt. Aus Furcht vor den Eapern
-fuhren wir .daher, sobald wir den Paral1el von 17 Grad
+im Angesicht des Landes bleibt. Aus Furcht vor den Capern
+fuhren wir daher, sobald wir den Parallel von 17 Grad
 erreicht hatten, gerade über die Bank Vibora, bekannter unter
-dem Namen Pedro Shoals. Diese Bank ist über 280 Qua-
-dratseemeilen groß und ihr Umriß fällt dem Geologen stark
-ins Auge, weil derselbe mit dem des benachbarten Iamaica
+dem Namen Pedro Shoals. Diese Bank ist über 280 Quadratseemeilen
+groß und ihr Umriß fällt dem Geologen stark
+ins Auge, weil derselbe mit dem des benachbarten Jamaica
 so große Aehnlichkeit hat. Es ist als hätte eine Erhebung
 des Meerbodens die Wasserfläche nicht erreichen können, um
 sofort eine Insel zu bilden, fast so groß wie Portorico. Seit
 dem fünften December glaubten die Steuerleute in großer
 Entfernung nach einander die Ranaseilande (Morant Kays),
-Cap Portland und Pedro .Kays zu peilen. Wahrscheinlich irrte
+Cap Portland und Pedro Kays zu peilen. Wahrscheinlich irrte
 man sich bei mehreren dieser Peilungen vom Mastkorbe aus;
-ich habe dieser Bestimmungen anderswo Erwähnung gethan,I
-« 0bso1-vsüoas act-oaomiqnee. T. l. p. X!-Ill. T. H. p. ·7—10.
-
-» «
-US
+ich habe dieser Bestimmungen anderswo Erwähnung gethan,^[Observations
+astronomiques. T. I. p. XLIII. T. II. p. 7—10.]
 nicht um sie gegen die Beobachtungen geübter englischer
-Seefahrer in diesen stark befahrenen Seeftrichen aufzustel-
-len, .sondern allein, um die Punkte, die ich in den Wal-
-dern am Orinoco und im Archive! der Antillen bestimmt,
+Seefahrer in diesen stark befahrenen Seestrichen aufzustellen,
+sondern allein, um die Punkte, die ich in den Wäldern
+am Orinoco und im Archipel der Antillen bestimmt,
 zu Einem System von Beobachtungen zu verknüpfen. Die
-1nilchigte Farbe des Wassers zeigte uns, daß wir uns am
-östlichen Rande der Bank befanden; der hunderttheilige Ther-
-mometer, der an der Meeresflitche weit ab von der Bank seit
-mehreren Tagen auf 270 und 270 3 gestanden hatte (bei
-einer Lufttemperatur von 210 2), fiel schnell auf 25·I 7. Das
+milchigte Farbe des Wassers zeigte uns, daß wir uns am
+östlichen Rande der Bank befanden; der hunderttheilige Thermometer,
+der an der Meeresfläche weit ab von der Bank seit
+mehreren Tagen auf 27° und 27°3 gestanden hatte (bei
+einer Lufttemperatur von 21°2), fiel schnell auf 25°7. Das
 Wetter war vom vierten bis zum sechsten December sehr
-schlecht; es regnete in Strömen, in der Ferne tobte ein Ge-
-witter und die Windstöße ans Nordnordwest wurden immer
+schlecht; es regnete in Strömen, in der Ferne tobte ein Gewitter
+und die Windstöße aus Nordnordwest wurden immer
 heftiger. In der Nacht befanden wir uns eine Zeitlang in
-einer ziemlich bedenklichen Lage. Man hörte vor dem Vorder-
-theil die See an Klippen branden, auf die das Schiff zulief.
+einer ziemlich bedenklichen Lage. Man hörte vor dem Vordertheil
+die See an Klippen branden, auf die das Schiff zulief.
 Beim phosphorischen Schein des schäumenden Meeres sah man,
-in welcher Richtung die Niffe lagen. Das sah fast aus wie
+in welcher Richtung die Riffe lagen. Das sah fast aus wie
 der Raudal von Garcita und andere Stromschnellen, die wir
 im Bett des Orinoco gesehen. Der Capitän schob die Schuld
 weniger auf die Nachlässigkeit des Steuermanns, als auf die
@@ -12904,73 +12867,98 @@ Mangelhaftigkeit der Seekarten. Es gelang das Schiff zu
 wenden, und in weniger als einer Viertelstunde waren wir
 außer aller Gefahr. Das Senkblei zeigte zuerst 9, dann
 12, dann 15 Faden. Wir legten die Nacht vollends bei;
-der Nordwind drückte den Thermometer auf 190 7 (150 7
-Reaumur) herab. Am andern Tag fand ich nach chronome-
-trischer Beobachtung in Verbindung mit der corrigir-ten
+der Nordwind drückte den Thermometer auf 19°7 (15°7
+Reaumur) herab. Am andern Tag fand ich nach chronometrischer
+Beobachtung in Verbindung mit der corrigirten
 Schätzung vom vorigen Tag, daß jene Klippen ungefähr unter
-IS« 50« der Breite und 800 43« 49« der Länge liegen. Die
-
-413
+16°50′ der Breite und 80°43′49″ der Länge liegen. Die
 Klippe, an der das spanische Schiff el Monarca im Jahr 1798
-beinahe zu Grunde gegangen wäre, liegt unter 160 44« der
-Breite und 800 23« der Länge, also viel weiter gegen Ost.
-Während wir von Südsüd-st nach Nokduokdwest über die
-Bank Vibora fuhren, versuchte ich es-oft die Temperatur des
+beinahe zu Grunde gegangen wäre, liegt unter 16°44′ der
+Breite und 80°23′ der Länge, also viel weiter gegen Ost.
+Während wir von Südsüdost nach Nordnordwest über die
+Bank Vibora fuhren, versuchte ich es oft die Temperatur des
 Meerwassers an der Oberfläche zu messen. Mitten auf der
 Bank war die Abkühlung nicht so stark als an den Rändern,
 was wir den Strömungen zuschrieben, die in diesen Strichen
-die Wasser verschiedener Breiten mischen. Südwärts« von
-Pedro Kays zeigte die Meeresfläche bei 25 Faden Tiefe 26" 4,
-bei 15 Faden Tiefe 260»2. Oestlich von d·er Bank war die
-Temperatur der See 260 8 gewesen. Diese Versuche können
+die Wasser verschiedener Breiten mischen. Südwärts von
+Pedro Kays zeigte die Meeresfläche bei 25 Faden Tiefe 26°4,
+bei 15 Faden Tiefe 26°2. Oestlich von der Bank war die
+Temperatur der See 26°8 gewesen. Diese Versuche können
 in diesen Strichen nur dann genaue Resultate geben, wenn
-man sie zu einer Zeit anstelIt, wo der Wind nicht aus Nord
-blast und die Strömungen nicht so stark sind. Die Nord-
-winde und die Strömungen kühlen nach und nach das Wasser
-ab, selbst wo die See sehr tief ist. Südwärts vom Cap Eo-
-rientes unter 200 43« der Breite fand ich die Temperatur des
-Meeres an der Oberfläche 240 6, die der Luft 190 8. Manche
+man sie zu einer Zeit anstellt, wo der Wind nicht aus Nord
+bläst und die Strömungen nicht so stark sind. Die Nordwinde
+und die Strömungen kühlen nach und nach das Wasser
+ab, selbst wo die See sehr tief ist. Südwärts vom Cap Corientes
+unter 20°43′ der Breite fand ich die Temperatur des
+Meeres an der Oberfläche 24°6, die der Luft 19°8. Manche
 amerikanische Schiffer versichern, zwischen den Bahamainseln
 merken sie oft, wenn sie in der Cajüte sitzen, ob sie sich über
-1Intiefen befinden; sie behaupten, die Lichter bekommen kleine
-Höfe in den Regenbogenfarben und die ausgeathmete Lust
+Untiefen befinden; sie behaupten, die Lichter bekommen kleine
+Höfe in den Regenbogenfarben und die ausgeathmete Luft
 verdichte sich zu sichtbarem Dunst. Letzteres Factum ist denn
-doch wohl zu bezweifeln; unterhalb dem 30. Grad der Breite
-ist die Erkältung durch das Wasser der Untiefen nicht bedeu-
-tend genug, um diese Erscheinung hervorzubringen. Während
+doch wohl zu bezweifeln; unterhalb dem 30.&nbsp;Grad der Breite
+ist die Erkältung durch das Wasser der Untiefen nicht bedeutend
+genug, um diese Erscheinung hervorzubringen. Während
 wir über die Bank Vibora liefen, war der Zustand der Luft
 ganz anders, als gleich nachdem wir sie verlassen hatten. Der
 Regen hielt sich innerhalb der Grenzen der Bank, und wir
-
--U« «
 konnten von ferne ihren Umriß an den Dunstmassen erkennen,
-die darauf lagerten. .
-Am 9. December. Je näher wir den Cay1nauseilandenI
+die darauf lagerten.
+
+Am 9. December. Je näher wir den Caymanseilanden^[Christoph
+Columbus hatte im Jahr 1503 den Caymanseilanden den
+Namen <i>Penascales de las tortugas</i>
+gegeben, wegen der Seeschildkröten,
+die er in diesem Striche schwimmen sah.]
 kamen, desto stärker wurde wieder der Nordostwind. Trotz
-des stürmischen Wetters konnte ich einige Sonnenhöhen aus-
-nehmen, als wir uns auf 12 Seenieilen Entfernung im M-
-ridian des Gran-Cayman, der mit Cocosbäumen bewachsen
+des stürmischen Wetters konnte ich einige Sonnenhöhen aufnehmen,
+als wir uns auf 12 Seemeilen Entfernung im Meridian
+des Gran-Cayman, der mit Cocosbäumen bewachsen
 ist, zu befinden glaubten. Ich habe anderswo die Lage des
 Gran-Cayman und der beiden Eilande ostwärts von demselben
-erörtert. Seit lange find diese Punkte auf unsern hydrogra-
-phischen Karten sehr unsicher, und ich fürchte nicht glücklicher
+erörtert. Seit lange find diese Punkte auf unsern hydrographischen
+Karten sehr unsicher, und ich fürchte nicht glücklicher
 gewesen zu seyn als andere Beobachter, die ihre wahre Lage
-ausgemacht zu haben glaubten. Die schönen Karten des De»
-posito zu Madrid gaben dem Ostcap von Gran-Cayman zu
-verschiedenen Zeiten 820 58« (von 1799—1804), 83043«
-(1809), wieder 820 59« (1821). Letztere Angabe, die auf
+ausgemacht zu haben glaubten. Die schönen Karten des Deposito
+zu Madrid gaben dem Ostcap von Gran-Cayman zu
+verschiedenen Zeiten 82°58′ (von 1799—1804), 83°43′
+(1809), wieder 82°59′ (1821). Letztere Angabe, die auf
 der Karte von Barcaiztegui aufgenommen ist, stimmt mit der
-überein, bei der ich stehen geblieben war; aber nach der Ver-
-ficherung eines ausgezeichneten S-eefahrers, des Contreadmi-
-rals Roussin, dem man eine ausgezeichnete Arbeit über die
+überein, bei der ich stehen geblieben war; aber nach der Versicherung
+eines ausgezeichneten Seefahrers, des Contreadmirals
+Roussin, dem man eine ausgezeichnete Arbeit über die
 Küsten von Brasilien verdankt, scheint es jetzt ausgemacht,
-daß das westliche Vorgebirge von Gran-Cayman unter 830 45«
+daß das westliche Vorgebirge von Gran-Cayman unter 83°45′
 der Länge liegt.
+
 Das Wetter war fortwährend schlecht und die See ging
-ungemein hoch; der Therrnometer stand zwischen 190 2 und
-20 O Z (150 4—160 2 Reaumur). Bei dieser niedrigen Tem-
-peratur wurde der Geruch des Salzfleisches, mit dem das
-· Christoph Eolumbus hatte im Jahr 15()3 den Eaymanseilanden den
-Namen Fern-Saales de las iort-ugsis gegeben, wegen der Seeschildkrbten,
-die er in diesem Striche schwimmen sah.
+ungemein hoch; der Thermometer stand zwischen 19°2 und
+20°3 (15°4—16°2 Reaumur). Bei dieser niedrigen Temperatur
+wurde der Geruch des Salzfleisches, mit dem das
+Schiff beladen war, noch unerträglicher. Der Himmel zeigte
+zwei Wolkenschichten; die untere war sehr dick und wurde
+ausnehmend rasch gegen Südost gejagt, die obere stand still
+und war in gleichen Abständen in gekräuselte Streifen getheilt.
+In der Nähe des Cap San Antonio legte sich der
+Wind endlich. Ich fand die Nordspitze des Caps unter
+87°17′22″, oder 2°34′14″ ostwärts vom Morro von Havana
+gelegen. Diese Länge geben demselben die besten Karten
+noch jetzt. Wir waren noch drei Seemeilen vom Lande, und
+doch verrieth sich die Nähe von Cuba durch einen köstlichen
+aromatischen Geruch. Die Seeleute versichern, wenn man
+sich dem Vorgebirge Catoche an der dürren Küste von Mexico
+nähere, sey kein solcher Geruch zu spüren. Sobald das Wetter
+heiterer wurde, stieg der Thermometer im Schatten nach und
+nach auf 27&nbsp;Grad; wir rückten rasch nach Norden vor mittelst
+einer Strömung aus Süd-Süd-Ost, deren Temperatur
+an der Wasserfläche 26°7 betrug, während ich außerhalb
+derselben Strömung nur 24°6 gefunden hatte. In der Besorgniß,
+ostwärts von der Havana zu kommen, wollte man
+anfangs die Schildkröteninseln (<i>Dry Tortugas</i>) am Südwestende
+der Halbinsel Florida aufsuchen; aber seit Cap San Antonio
+in Sicht gewesen, hatten wir zu Louis Berthouds Chronometer
+so großes Zutrauen gefaßt, daß solches überflüssig erschien.
+Wir ankerten im Hafen der Havana am 19.&nbsp;December
+nach einer fünf und zwanzigtägigen Fahrt bei beständig
+schlechtem Wetter.
 

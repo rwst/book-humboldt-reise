@@ -102,7 +102,7 @@ gewährt hat.
 
 
 
-
+# ERSTER BAND
 
 
 
@@ -2465,8 +2465,6 @@ Belang.
 
 
 # Zweites Kapitel
-    
-
 
 Aufenthalt auf Teneriffa — Reise von Santa Cruz nach Orotava
 — Besteigung des Pics
@@ -5767,8 +5765,6 @@ einen eingebornen Dichter finden, der sie würdig besingt.
 
 
 # Drittes Kapitel
-    
-
 
 Überfahrt von Teneriffa an die Küste von Südamerika — Ankunft in
 Cumana
@@ -7023,8 +7019,6 @@ finden sollten.
 
 
 # Viertes Kapitel
-    
-
 
 Erster Auftenthalt in Cumana. — Die Ufer des Manzanares
 
@@ -7406,7 +7400,7 @@ c. 21). Aber schon der Scharfsinn der Alten machte die
 Bemerkung, daß die Art und Weise der Erdstöße viel zu
 veränderlich ist, als daß man sie unter solche vermeintliche
 Gesetze bringen könnte. (Plato bei Plutarch de placit.
-        Philos. L. III. c. 15.)]
+Philos. L. III. c. 15.)]
 
 
 Die Vorstädte von Cumana sind fast so stark bevölkert wie die
@@ -8380,8 +8374,6 @@ seiner Erdschichten beobachtet worden ist.
 
 
 # Fünftes Kapitel 
-    
-
 
 Die Halbinsel Araya — Salzsümpfe — Die Trümmer des Schlosses
 Santiago
@@ -8765,7 +8757,7 @@ Jahr 1622 bei den Salzwerken ein Fort errichtete, das unter
 dem Namen 
 *Castillo de Santiago* oder 
 *Real Fuerza de
-        Araya* berühmt geworden ist.
+Araya* berühmt geworden ist.
 
 
 Die großen Salzsümpfe sind auf den ältesten spanischen
@@ -9160,10 +9152,10 @@ zu, über Austern zu verfügen, die auf dem Meeresboden leben.
 
 
 Gegen das Ende des sechzehnten Jahrhunderts nahm die
-        Perlenfischerei rasch ab, und nach Laets Angabe^[»Insularum
-        Cubaguae et Coches quondam fuit dignitos, quum unionum
-        captura floreret, nunc, illa deficiente, obscura admodum
-        fama« Laet. Nov. Orbis, p. 669. Dieser
+Perlenfischerei rasch ab, und nach Laets Angabe^[»Insularum
+Cubaguae et Coches quondam fuit dignitos, quum unionum
+captura floreret, nunc, illa deficiente, obscura admodum
+fama« Laet. Nov. Orbis, p. 669. Dieser
 sorgfältige Compilater sagt, wo er von der Punta Araya spricht, weiter,
 das Land sey dergestalt in Vergessenheit gerathen, »ut vix
         ulla alia Americae meridionalis pars hodie obscurior sit«]
@@ -9655,11 +9647,9 @@ zu schöpfen.
 
 
 # Sechstes Kapitel 
-    
 
-
-        Die Berge von Neuandalusien — Das Tal von Cumanacoa —
-        Der Gipfel des Cocollar — Missionen der Chaymasindianer
+Die Berge von Neuandalusien — Das Tal von Cumanacoa —
+Der Gipfel des Cocollar — Missionen der Chaymasindianer
 
 
 Unserem ersten Ausflug auf die Halbinsel Araya folgte bald ein
@@ -11816,11 +11806,9 @@ niederzulassen.
 
 
 # Siebentes Kapitel 
-    
 
-
-        Das Kloster Caripe — Die Höhle des Guacharo —
-        Nachtvögel
+Das Kloster Caripe — Die Höhle des Guacharo —
+Nachtvögel
 
 
 Eine Allee von Perseabäumen führte uns zum Hospiz
@@ -12561,11 +12549,9 @@ zusammengebracht haben werden.
 
 
 # Achtes Kapitel 
-    
 
-
-        Abreise von Caripe. — Berg und Wald Santa Maria. —
-        Die Mission Catuaro. — Hafen von Cariaco.
+Abreise von Caripe. — Berg und Wald Santa Maria. —
+Die Mission Catuaro. — Hafen von Cariaco.
 
 
 Rasch verflossen uns die Tage, die wir im Kapuzinerkloster
@@ -13663,36 +13649,9 @@ Schotengewächse mit reizbaren Blättern schon ehe die Sonne
 sich zeigt, in der Morgendämmerung.
 
 
-
-
-
-
-  
-
-
-  
-
-  
-
-    
-
-      
-
-    
-
-
-  
-
-
-
-
-
-# Zweiter Band
+# ZWEITER BAND
 
 # Neuntes Kapitel.
-
-    
-
 
 Körperbeschaffenheit und Sitten der Chaymas. — Ihre Sprachen.
 
@@ -15745,9 +15704,6 @@ vis.*
 
 # Zehntes Kapitel.
 
-    
-
-
 Zweiter Aufenthalt in Cumana. — Erdbeben. — Ungewöhnliche Meteore.
 
 
@@ -16516,8 +16472,6 @@ von Feuermeteoren herrührte, die bis zur Höhe von 12 bis
 
 
 # Elftes Kapitel.
-
-    
 
 
 Reise von Cumana nach Guayra. — Morro de Nueva Barcelona. — Das
@@ -27878,17 +27832,13 @@ Monate April, Mai und Juni brachten wir auf den Strömen zu.
 
 
 
-# Dritter Band
+# DRITTER BAND
 
 
 # Achzehntes Kapitel.
 
-    
-
-<div class="sc">
 San Fernando de Apure. — Verschlingungen und Gabeltheilungen der
 Flüsse Apure und Arauca. — Fahrt auf dem Rio Apure.
-</div>
 
 
 Bis in die zweite Hälfte des achtzehnten Jahrhunderts
@@ -29584,12 +29534,9 @@ Punkte.
 
 #   Neunzehntes Kapitel.
 
-    
-
-
-    Zusammenfluß des Apure mit dem Orinoco. — Die Gebirge von Encaramada.
-    — Uruana. — Baraguan. — Carichana. — Der Einfluß
-    des Meta. — Die Insel Panumana.
+Zusammenfluß des Apure mit dem Orinoco. — Die Gebirge von Encaramada.
+— Uruana. — Baraguan. — Carichana. — Der Einfluß
+des Meta. — Die Insel Panumana.
 
 
 
@@ -33858,9 +33805,9 @@ an den Felsen brechen.
 
   
 
-    Cuncta fremunt undis; ac multo murmure montis
-    Spumens invictis canescit fluctibus amnis.^[Lucan., Pharsal.
-        X. 132.]
+>  Cuncta fremunt undis; ac multo murmure montis
+>  Spumens invictis canescit fluctibus amnis.^[Lucan., Pharsal.
+>  X. 132.]
   
 
 
@@ -34785,8 +34732,8 @@ Verse aus dem dritten Buch der Hölle geschrieben:
 
   
 
-    Noi sem venuti al luogo, ov’i’t’ho detto
-    Che tu vedrai le genti dolorose.^[*Inferno*. C. III. 16.]
+>  Noi sem venuti al luogo, ov’i’t’ho detto
+>  Che tu vedrai le genti dolorose.^[*Inferno*. C. III. 16.]
   
 
 Die tiefen Luftschichten vom Boden bis zu 15–20 Fuß
@@ -35538,12 +35485,10 @@ Natur in Trägheit niedergehalten hat.
 
 # Einundzwanzigstes Kapitel.
 
-    
 
-
-    Der Raudal von Garcita. — Maypures. — Die Katarakten von
-    Quittuna. — Der Einfluß des Vichada und Zama. — Der Fels 
-    Aricagua. — Siquita.
+Der Raudal von Garcita. — Maypures. — Die Katarakten von
+Quittuna. — Der Einfluß des Vichada und Zama. — Der Fels 
+Aricagua. — Siquita.
 
 
 
@@ -37293,12 +37238,10 @@ mit der liebenswürdigsten Gastlichkeit aufnahm.
 
 # Zweiundzwanzigstes Kapitel.
 
-    
 
-
-    San Fernando de Atabapo. — San Baltasar. — Die Flüsse
-    Temi und Tuamini. — Javita. — Trageplatz zwischen
-    dem Tuamini und dem Rio Negro.
+San Fernando de Atabapo. — San Baltasar. — Die Flüsse
+Temi und Tuamini. — Javita. — Trageplatz zwischen
+dem Tuamini und dem Rio Negro.
 
 
 
@@ -42092,6 +42035,8 @@ Punkt (unter 3°12′ nördlicher Breite und
 89°36′ westlicher
 Länge), wo ich so glücklich war, bei ganz stiller Luft beobachten
 zu können.
+
+# VIERTER BAND
 
 Vierundzwanzigstes Kapitel.
 ===========================
@@ -55056,4 +55001,22 @@ so großes Zutrauen gefaßt, daß solches überflüssig erschien.
 Wir ankerten im Hafen der Havana am 19.&nbsp;December
 nach einer fünf und zwanzigtägigen Fahrt bei beständig
 schlechtem Wetter.
+
+
+# Anmerkungen zur Transkription und zur EPUB-Version
+
+Zu Band 1 bis 3 siehe meine Gutenberg-Transkriptionen im TEI-Format.
+Zwei von Google digitalisierte Versionen dienten als Vorlage für
+Band 4, die OCR besorgte Tesseract, die Transkription erfolgte in
+Markdown.
+
+Nach Umwandlung der TEI-Versionen in Markdown wurden alle vier
+Bände in eine Datei zusammengeführt und die Typographie (Apostrophen,
+Striche) vereinheitlicht. Dabei gingen Formatinformationen innerhalb
+der Fußnoten von Band 1-3 verloren.
+
+Die Markdown-Source steht unter http://github.com/rwst/book-humboldt-reise
+als Reise.md zu Verfügung, womit weitere Formate erreicht werden
+können. Der dortige Tracker kann zur
+Fehlermeldung benutzt werden.
 

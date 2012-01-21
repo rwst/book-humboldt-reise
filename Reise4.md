@@ -1,7 +1,26 @@
-Vierundzwanzigster Kapitel.
+% Reise in die Aequinoctial-Gegenden des neuen Continents.
+% Alexander von Humboldt
+% 1865
+      
+In deutscher Bearbeitung
+von Hermann Hauff.
+
+      
+Nach der Anordnung und unter Mitwirkung des Verfassers.
+
+      
+Einzige von A. v. Humboldt anerkannte Ausgabe in deutscher Sprache.
+
+        
+Band 4
+      
+1865
+
+
+Vierundzwanzigstes Kapitel.
 ===========================
 
-<sc>Der Cassiquiare. — Gabeltheilung des Orinoco.</sc>
+Der Cassiquiare. — Gabeltheilung des Orinoco.
 
 Am 10. Mai. In der Nacht war unsere Pirogue geladen
 worden, und wir schifften uns etwas vor Sonnenaufgang
@@ -44,8 +63,8 @@ der Aerger wegen des trüben Himmels oder die Furcht vor
 den Moskitos auf dem Cassiquiare den Muth benommen.
 Unser indianischer Steuermann, der erst kürzlich in Mandavaca
 gewesen war, stellte uns die Sonne und »die großen
-Sterne, welche die Wolken <b>essen</b>,« in Aussicht, sobald wir
-die <b>schwarzen Wasser</b> des Rio Negro hinter uns haben
+Sterne, welche die Wolken **essen**,« in Aussicht, sobald wir
+die **schwarzen Wasser** des Rio Negro hinter uns haben
 würden. So brachten wir denn unser erstes Vorhaben, über
 den Cassiquiare nach San Fernando am Atabapo zurückzugehen,
 in Ausführung, und zum Glück für unsere Arbeiten
@@ -55,7 +74,7 @@ Himmel, Sterne, Moskitos und Krokodile.
 
 Wir fuhren zwischen den dicht bewachsenen Inseln Zaruma
 und Mini oder Mibita durch, und liefen, nachdem wir
-die Stromschnellen an der <i>Piedra de Uinumane</i> hinaufgegangen,
+die Stromschnellen an der *Piedra de Uinumane* hinaufgegangen,
 acht Seemeilen weit von der Schanze San Carlos
 in den Rio Cassiquiare ein. Jene Piedra, das Granitgestein,
 das den kleinen Katarakt bildet, zog durch die vielen
@@ -111,7 +130,7 @@ Francisco, wo wir übernachteten, sind es zu Lande nur zwei
 und eine halbe Meile, während man auf dem Fluß 7—8 rechnet.
 Ich verweilte einen Theil der Nacht im Freien in der
 vergeblichen Hoffnung, die Sterne zum Vorschein kommen zu
-sehen. Die Luft war nebligt trotz der <b>weißen Wasser</b>, die
+sehen. Die Luft war nebligt trotz der **weißen Wasser**, die
 uns einem allezeit sternhellen Himmel entgegen führen sollten.
 
 Die Mission San Francisco Solano auf dem linken
@@ -126,34 +145,34 @@ eines Mißverständnisses, das aus der Unkenntniß der spanischen
 Sprache entsprang, meinten manche Geographen auf La Cruz
 Olmedillas berühmter Karte einen 400 Meilen langen Weg angegeben
 zu finden, auf dem Don Joseph Solano zu den Quellen
-des Orinoco, an den See Parime oder das <b>weiße Meer</b>,
+des Orinoco, an den See Parime oder das **weiße Meer**,
 an die Ufer des Cababury und Uteta gekommen seyn sollte.
 Die Mission San Francisco wurde, wie die meisten christlichen
 Niederlassungen südlich von den großen Katarakten des Orinoco,
 nicht von Mönchen, sondern von Militärbehörden gegründet.
 Bei der Grenzexpedition legte man Dörfer an, wo
-ein <b>Subteniente</b> oder Corporal mit seiner Mannschaft Posto
+ein **Subteniente** oder Corporal mit seiner Mannschaft Posto
 gefaßt hatte. Die Eingeborenen, die ihre Unabhängigkeit
 behaupten wollten, zogen sich ohne Gefecht zurück, andere,
 deren einflußreichste Häuptlinge man gewonnen, schlossen sich
 den Missionen an. Wo man keine Kirche hatte, richtete man
 nur ein großes Kreuz aus rothem Holze auf und baute daneben
-eine <i>Casa fuerte</i>, das heißt ein Haus, dessen Wände
+eine *Casa fuerte*, das heißt ein Haus, dessen Wände
 aus starken, wagrecht übereinander gelegten Balken bestanden.
 Dasselbe hatte zwei Stockwerke; im obern standen zwei Steinböller
 oder Kanonen von kleinem Kaliber; zu ebener Erde
 hausten zwei Soldaten, die von einer indianischen Familie
 bedient wurden. Die Eingeborenen, mit denen man im Frieden
-lebte, legten ihre Pflanzungen um die <i>Casa fuerte</i>
+lebte, legten ihre Pflanzungen um die *Casa fuerte*
 an. Hatte man einen feindlichen Angriff zu fürchten, so
 wurden sie von den Soldaten mit dem Horn oder einem
-<b>Botuto</b> aus gebrannter Erde zusammengerusen. So waren
+**Botuto** aus gebrannter Erde zusammengerusen. So waren
 die neunzehn angeblichen christlichen Niederlassungen beschaffen,
 die Don Antonio Santos auf dem Wege von Esmeralda bis
 zum Everato gegründet. Militärposten, die mit der Civilisation
 der Eingeborenen gar nichts zu thun hatten, waren auf den
-Karten und in den Schriften der Missionäre als Dörfer (<i>pueblos</i>)
-und <i>redicciones apostolicas</i> angegeben. Die Militärbehörde
+Karten und in den Schriften der Missionäre als Dörfer (*pueblos*)
+und *redicciones apostolicas* angegeben. Die Militärbehörde
 behielt am Orinoco die Oberhand bis zum Jahr 1785,
 mit dem das Regiment der Franciskaner seinen Anfang nimmt.
 Die wenigen Missionen, die seitdem gegründet oder vielmehr
@@ -173,18 +192,18 @@ Fragen nicht deutlich machen. Sie wiederholten nur zum Ueberdruß,
 die Quellen des Rio Negro und des Inirida seyen so
 nahe beisammen, »wie zwei Finger der Hand«. In einer
 Hütte der Pacimonales kauften wir zwei schöne, große Vögel,
-einen Tucan (Piapoco), der dem <i>Ramphastos erythrorynchos</i>
-nahe steht, und den <b>Ana</b>, eine Art Aras, 17 Zoll lang
-mit durchaus purpurrothem Gefieder, gleich dem <i>Psittacus
-Macao</i>. Wir hatten in unserer Pirogue bereits sieben Papagaien,
+einen Tucan (Piapoco), der dem *Ramphastos erythrorynchos*
+nahe steht, und den **Ana**, eine Art Aras, 17 Zoll lang
+mit durchaus purpurrothem Gefieder, gleich dem *Psittacus
+Macao*. Wir hatten in unserer Pirogue bereits sieben Papagaien,
 zwei Felshühner, einen Motmot, zwei Guans oder
-Paoas de Monte, zwei Manaviris (<i>Cercoleptes</i> oder <i>Viverra
-caudivolvula</i>) und acht Affen, nämlich zwei Atelen (die Marimonda
-von den grossen Katarakten, Brissots <i>Simia Belzebuth</i>),
-zwei Titi’s (<i>Simia sciurea</i>, Buffon’s Saimiri), eine Viudita
-(<i>Simia lugens</i>), zwei Douroucoulis oder Nachtaffen (Cusicusi
-oder <i>Simia trivirgata</i>), und den Cacajao mit kurzem Schwanz
-(<i>Simia melanocephala</i>).^[Die drei letztgenannten Arten sind neu.]
+Paoas de Monte, zwei Manaviris (*Cercoleptes* oder *Viverra
+caudivolvula*) und acht Affen, nämlich zwei Atelen (die Marimonda
+von den grossen Katarakten, Brissots *Simia Belzebuth*),
+zwei Titi’s (*Simia sciurea*, Buffon’s Saimiri), eine Viudita
+(*Simia lugens*), zwei Douroucoulis oder Nachtaffen (Cusicusi
+oder *Simia trivirgata*), und den Cacajao mit kurzem Schwanz
+(*Simia melanocephala*).^[Die drei letztgenannten Arten sind neu.]
 Pater Zea war auch im Stillen
 sehr schlecht damit zufrieden, daß sich unsere wandernde Menagerie
 mit jedem Tag vermehrte. Der Tucan gleicht nach
@@ -205,7 +224,7 @@ zurückwerfen und den Schnabel, so lange er schlingt, aufrecht
 halten. Wenn er trinken will, macht der Vogel ganz seltsame
 Geberden. Die Mönche sagen, er mache das Zeichen des
 Kreuzes über dem Wasser, und wegen dieses Volksglaubens
-haben die Creolen dem Tucan den sonderbaren Namen <b>Diostedè</b>
+haben die Creolen dem Tucan den sonderbaren Namen **Diostedè**
 (Gott vergelt’s dir) geschöpft.
 
 Unsere Thiere waren meist in kleinen Holzkäfigten, manche
@@ -216,7 +235,7 @@ Titiaffen liefen Pater Zea zu und krochen in die ziemlich
 weiten Aermel seiner Franciskanerkutte. Dergleichen Auftritte
 kamen oft vor und wir vergaßen darüber der Plage der
 Moskitos. Nachts im Bivouac stellte man in die Mitte einen
-ledernen Kasten (<i>petaca</i>) mit dem Mundvorrath, daneben unsere
+ledernen Kasten (*petaca*) mit dem Mundvorrath, daneben unsere
 Instrumente und die Käfige mit den Thieren, ringsum wurden
 unsere Hängematten befestigt und weiterhin die der Indianer.
 Die äußerste Grenze bildeten die Feuer, die man anzündet,
@@ -225,14 +244,14 @@ Nachtlager am Ufer des Cassiquiare angeordnet. Die Indianer
 sprachen oft von einem kleinen Nachtthier mit langer Nase,
 das die jungen Papagaien im Nest überfalle und mit den
 Händen fresse wie die Affen und die Manaviri’s oder Kinkajous.
-Sie nannten es <b>Guachi</b>; es ist wahrscheinlich ein Coati, 
-vielleicht <i>Viverra nasua</i>, die ich in Mexico im freien Zustand
+Sie nannten es **Guachi**; es ist wahrscheinlich ein Coati, 
+vielleicht *Viverra nasua*, die ich in Mexico im freien Zustand
 gesehen, nicht aber in den Strichen von Südamerika, die ich
 bereist. Die Missionäre verbieten den Eingeborenen alles
 Ernstes, das Fleisch des Guachy zu essen, da sie einen weit
 verbreiteten Glauben theilen und diesem Fleisch stimulirende
 Eigenschaften zuschreiben, wie die Orientalen dem Fleisch der
-Skinkos (<i>Lacerta scincus</i>) und die Amerikaner dem der
+Skinkos (*Lacerta scincus*) und die Amerikaner dem der
 Caymans.
 
 Am 11. Mai. Wir brachen ziemlich spät von der Mission
@@ -249,8 +268,8 @@ Seemeilen weiterhin die Stromschnellen von Cananivacari. Die
 Strömung betrug 6,3 Fuß in der Secunde, und so hatten
 wir im Raudal mit Wellen zu kämpfen, die ein ziemlich starkes
 Scholken verursachten. Wir stiegen aus und Bonpland entdeckte
-wenige Schritte vom Ufer einen <b>Almandron</b> (Juvia),
-einen prachtvollen Stamm der <i>Bertholletia excelsa</i>. Die
+wenige Schritte vom Ufer einen **Almandron** (Juvia),
+einen prachtvollen Stamm der *Bertholletia excelsa*. Die
 Indianer vetsicherten uns, in San Francisco Solano, Vasiva
 und Esmeralda wisse man nichts davon, daß dieser kostbare
 Baum am Cassiquiare wachse. Sie glaubten übrigens nicht,
@@ -265,9 +284,9 @@ besteht. Wir wissen wenigstens bestimmt, daß dieser schöne
 Baum unter dem dritten Grad der Breite in den Cerros von
 Guanaya wild vorkommt. Die gesellig lebenden Gewächse
 haben selten scharf abgeschnittene Grenzen, und häufig stößt man,
-bevor man zu einem <b>Palmar</b> oder einem <b>Pinal</b>^[Zwei
+bevor man zu einem **Palmar** oder einem **Pinal**^[Zwei
 spanische Worte, die, entsprechend einer lateinischen Form,
-Palmwälder (<i>palmetum</i>) und Fichtenwälder (<i>pinetum</i>)
+Palmwälder (*palmetum*) und Fichtenwälder (*pinetum*)
 bedeuten.] gelangt,
 auf einzelne Palmen oder Fichten. Dieselben gleichen Colonisten,
 die in ein mit andern Gewächsen bevölkertes Land sich hinausgewagt
@@ -296,7 +315,7 @@ Einer Bergkette lang hingestreckt sah, wenn man der ungemein
 hohen Insel von drei Seemeilen Umfang gedenkt, die in
 jüngster Zeit bei Unalashka vom Boden des Weltmeeres aufgestiegen.
 
-Eine Zierde der Ufer des Cassiquiare ist die <b>Chirivapalme</b>
+Eine Zierde der Ufer des Cassiquiare ist die **Chirivapalme**
 mit gefiederten, an der untern Fläche silberweißen
 Blättern. Sonst besteht der Wald nur aus Bäumen mit großen
 lederartigen, glänzenden, nicht gezahnten Blättern. Diesen
@@ -305,7 +324,7 @@ Tuamini und Cassiquiare dadurch, daß in der Nähe des
 Aequators die Familien der Guttiferen, der Sapotillen und
 der Lorbeeren vorherrschen. Da der heitere Himmel uns eine
 schöne Nacht verhieß, schlugen wir schon um fünf Uhr Abends
-unser Nachtlager bei der <b>Piedra de Culimacari</b> auf,
+unser Nachtlager bei der **Piedra de Culimacari** auf,
 einem frei stehenden Granitfelsen, gleich allen zwischen Atabapo
 und Cassiquiare, deren ich Erwähnung gethan. Da wir
 die Flußkrümmungen aufnahmen, zeigte es sich, daß dieser
@@ -340,7 +359,7 @@ ergibt sich nun aber, daß San Carlos am Rio Negro, oder,
 wie man sich hier vornehm ausdrückt, die Grenzfestung keineswegs
 unter 0°20′, wie Pater Caulin behauptet, noch unter
 0°53′, wie La Cruz und Surville (die officiellen Geographen
-der <i>Real Expedition de limites</i>) annehmen, sondern unter
+der *Real Expedition de limites*) annehmen, sondern unter
 1°53′42″ der Breite liegt. Der Aequator läuft also nicht
 nördlich vom portugiesischen Fort San Jose de Marabitanos,
 wie bis jetzt alle Karten mit Ausnahme der neuen Ausgabe
@@ -352,7 +371,7 @@ Astronomen schon im Jahr 1783 bekannt war, also
 35 Jahre bevor man in Europa anfing dieselbe in die Karten
 aufzunehmen.
 
-Da man in der <i>Capitania general</i> von Caracas von
+Da man in der *Capitania general* von Caracas von
 jeher der Meinung war, der geschickte Ingenieur Don Gabriel
 Clavero habe die Schanze San Carlos del Rio Negro gerade
 auf die Aequinoctiallinie gebaut, und da in der Nähe derselben
@@ -387,8 +406,8 @@ brachen wir um halb zwei Uhr in der Nacht von
 der Piedra Culimacari aus. Die Plage der Moskitos, der
 wir jetzt wieder Unterlagen, wurde ärger, je weiter wir vom
 Rio Negro wegkamen. Im Thale des Cassiquiare gibt es
-keine Zancudos (<i>Culex</i>), aber die Insekten aus der Gattung
-<i>Simulium</i> und alle andern aus der Familie der <i>Tipulae</i> sind
+keine Zancudos (*Culex*), aber die Insekten aus der Gattung
+*Simulium* und alle andern aus der Familie der *Tipulae* sind
 um so häufiger und giftiger.^[S. Bd. III. Seite 198.]
 Da wir, ehe wir in die Mission
 Esmeralda kamen, in diesem nassen, ungesunden Klima noch
@@ -427,24 +446,24 @@ der aus dem Hochgebirg kommende Nilarm, der sich bei Halfaja
 mit dem Behar-el-Abiad vereinigt, grünes Wasser hat,
 das so durchsichtig ist, daß man die Fische auf dem Grund
 des Flusses sieht.^[Es ist auffallend,
-daß der <b>blaue Nil</b> (<i>Bahar el azrek</i>) bei manchen
-arabischen Geographen der <b>grüne Nil</b>
+daß der **blaue Nil** (*Bahar el azrek*) bei manchen
+arabischen Geographen der **grüne Nil**
 heißt, und daß die persischen
-	Dichter zuweilen den Himmel grün (<i>akhza</i>),
-sowie den Beryll blau (<i>zark</i>)
+	Dichter zuweilen den Himmel grün (*akhza*),
+sowie den Beryll blau (*zark*)
 nennen. Man kann doch nicht annehmen, daß die Völker vom semitischen
 Stamm in ihren Sinneseindrücken grün und blau verwechseln, wie nicht
 selten ihr Ohr die Vokale o und u, e und i verwechselt.
-Das Wort <i>azrek</i>
+Das Wort *azrek*
 wird von jedem sehr klaren, nicht
-milchigten Wasser gebraucht, und <i>abirank</i>
+milchigten Wasser gebraucht, und *abirank*
 (wasserfarbig) bedeutet blau. Abd-Allatif, wo er vom klaren grünen
 Arm des Nils spricht, der aus einem See im Gebirge südöstlich von
 Sennaar entspringt, schreibt bereits
 die grüne Farbe dieses Alpsees »vegetabilischen Substanzen
 zu, die sich in den stehenden Wassern in Menge finden.«
 Weiter oben (Bd. III. Seite 266) habe ich
-die gefärbten, unrichtig <i>aguas negras</i> 
+die gefärbten, unrichtig *aguas negras* 
 genannten Wasser ebenso erklärt. Ueberall
 sind die klarsten, durchsichtigsten Wasser
 gerade solche, die nicht weiß sind.]
@@ -464,7 +483,7 @@ Lande so stark gesucht, wie in der südlichen Halbkugel die
 Spinnen der Sippe Epeira, die für die Wilden auf Neuholland
 ein Leckerbissen sind. In Mandavaca fanden wir den
 guten alten Missionär, der bereits »seine zwanzig Moskitojahre
-in den <i>Bosques del Cassiquiare</i>« zugebracht hatte,
+in den *Bosques del Cassiquiare*« zugebracht hatte,
 und dessen Beine von den Stichen der Insekten so gefleckt
 waren, daß man kaum sah, daß er eine weiße Haut hatte.
 Er sprach uns von seiner Verlassenheit, und wie er sich in
@@ -472,7 +491,7 @@ der traurigen Nothwendigkeit sehe, in den beiden Missionen
 Mandavaca und Vasiva häufig die abscheulichsten Verbrechen
 straflos zu lassen. Vor wenigen Jahren hatte im letzteren
 Ort ein indianischer Alcade eines seiner Weiber verzehrt, die
-er in seinen <b>Conuco</b>^[Eine Hütte aus einem angebauten
+er in seinen **Conuco**^[Eine Hütte aus einem angebauten
 Grundstück, eine Art Landhaus,
 wo sich die Eingeborenen lieber aufhalten als in den Missionen.]
 hinausgenommen und gut genährt
@@ -510,18 +529,18 @@ werden bei den Mahlzeiten nach einem Gefecht oder einem
 Ueberfall vorzugsweise verzehrt.
 
 Der Haß der Wilden fast gegen alle Menschen, die eine
-andere Sprache reden und ihnen als <b>Barbaren</b> von niedrigerer
+andere Sprache reden und ihnen als **Barbaren** von niedrigerer
 Race als sie selbst erscheinen, bricht in den Missionen
 nicht selten wieder zu Tage, nachdem er lange geschlummert.
 Wenige Monate vor unserer Ankunft in Esmeralda war ein
-im Walde^[<i>En el monte.</i>
+im Walde^[*En el monte.*
 Man unterscheidet zwischen Indianern, die in den
 Missionen, und solchen die in den Wäldern geboren sind. Das Wort
-<b>Monte</b> wird in den Colonien häufiger
-für Wald (<i>bosque</i>) gebraucht als
+**Monte** wird in den Colonien häufiger
+für Wald (*bosque*) gebraucht als
 für Berg, und dieser Umstand hat auf unsern Karten große Irrthümer
-veranlaßt, indem man Bergletten (<i>sierras</i>)
-einzeichnete, wo nichts als dicker Wald, <i>monte espeso</i>so, ist.]
+veranlaßt, indem man Bergletten (*sierras*)
+einzeichnete, wo nichts als dicker Wald, *monte espeso*so, ist.]
 hinter dem Duida gebotener Indianer allein unterwegs
 mit einem andern, der von den Spaniern am Ventuario
 gefangen worden war und ruhig im Dorfe, oder, wie man
@@ -575,10 +594,10 @@ Festlande, auf den Ebenen zwischen dem untern Orinoco, dem
 Rio Branco, dem Essequebo und den Quellen des Oyapoc
 verabscheuen die Sitte, die Gefangenen zu verzehren. Diese
 barbarische Sitte^[Cardinal Bembo sagt:
-»<i>Insularum partem homines incolebant
+»*Insularum partem homines incolebant
 feri trucesque, qui puerorum et virorum carnibus, quos allüs in
 insulis bello aut latrocinüs coepissent, vescebantur; a feminis
-abstinebant, Canibales appellati.</i>«
+abstinebant, Canibales appellati.*«
 Ist das Wort Cannibale, das hier
 von den Caraiben auf den Antillen gebraucht wird, aus einer der Sprachen
 dieses Archipels (der haitischen) oder hat man es in einer Mundart zu
@@ -588,7 +607,7 @@ seyn soll? Hat das Wort überhaupt einen Sinn,
 so scheint es vielmehr »starke, tapfere Fremde«
 als Menschenfresser zu bedeuten. Garcia in seinen
 etymologischen Phantasieen erklärt es geradezu
-für phönikisch. <b>Annibal</b> und <b>Cannibal</b>
+für phönikisch. **Annibal** und **Cannibal**
 können nach ihm nur von
 derselben semitischen Wurzel herkommen.]
 bestand bei der Entdeckung von Amerika
@@ -601,7 +620,7 @@ caraibischen Stammes ist, zum Sklaven zu machen. Ich glaube
 übrigens, daß die Menschenfresserei der Bewohner der Antillen
 in den Berichten der ersten Seefahrer stark übertrieben ist.
 Ein ernster, scharfsinniger Geschichtschreiber, Herera, hat sich
-nicht gescheut, diese Geschichten in die <i>Decades historicas</i>
+nicht gescheut, diese Geschichten in die *Decades historicas*
 aufzunehmen; er glaubt sogar an den merkwürdigen Fall, der
 die Caraiben veranlaßt haben soll, ihrer barbarischen Sitte
 zu entsagen. »Die Eingeborenen einer kleinen Insel hatten
@@ -631,10 +650,10 @@ lösen, die ewig Räthsel bleiben werden, wenn man nur die
 gegenwärtigen Verhältnisse ins Auge fassen kann.
 
 »Sie machen sich keine Vorstellung davon,« sagte der
-alte Missionär in Mandavaca, »wie verdorben diese <i>famiglia
-de Indios</i> ist. Man nimmt Leute von einem neuen Stamm
+alte Missionär in Mandavaca, »wie verdorben diese *famiglia
+de Indios* ist. Man nimmt Leute von einem neuen Stamm
 im Dorfe auf; sie scheinen sanftmüthig, redlich, gute Arbeiter;
-man erlaubt ihnen einen Streifzug (<i>entrada</i>) mitzumachen,
+man erlaubt ihnen einen Streifzug (*entrada*) mitzumachen,
 um Eingeborene einzubringen, und hat genug zu thun, zu
 verhindern, daß sie nicht alles, was ihnen in die Hände
 kommt, umbringen und Stücke der Leichname verstecken.«
@@ -653,7 +672,7 @@ ihn in unsern Dienst zu nehmen. Wie groß war unser
 Verdruß, als wir im Gespräch mittelst eines Dolmetschers
 von ihm hören mußten, »das Fleisch der Manimondas-Affen
 sey allerdings schwärzer, er meine aber doch, es schmecke wie
-Menschenfleisch.« Er versicherte, »seine <b>Verwandten</b> (das
+Menschenfleisch.« Er versicherte, »seine **Verwandten** (das
 heißt seine Stammverwandten) essen vom Menschen wie vom
 Bären die Handflächen am liebsten.« Und bei diesem Ausspruch
 äußerte er durch Geberden seine rohe Lust. Wir
@@ -661,7 +680,7 @@ ließen den sonst sehr ruhigen und bei den kleinen Diensten,
 die er uns leistete, sehr gefälligen jungen Mann fragen, ob
 er hie und da noch Lust spüre, »Cheruvichahena-Fleisch zu
 essen;« er erwiederte ganz unbefangen, in der Mission werde
-er nur essen, was er <i>los padres</i> essen sehe. Den Eingeborenen
+er nur essen, was er *los padres* essen sehe. Den Eingeborenen
 wegen des abscheulichen Brauchs, von dem hier die Rede
 ist, Vorwürfe zu machen, hilft rein zu nichts; es ist gerade
 als ob ein Bramine vom Ganges, der in Europa reiste, uns
@@ -671,8 +690,8 @@ ein von ihm selbst völlig verschiedenes Wesen; ihn
 umzubringen war ihm kein größeres Unrecht, als die Jaguars
 im Walde umzubringen. Es war nur Gefühl für Anstand,
 wenn er, so lange er in der Mission war, nur essen wollte,
-was <i>los padres</i> genossen. Entlaufen die Eingeborenen zu
-den Ihrigen (<i>al monte</i>), oder treibt sie der Hunger, so werden
+was *los padres* genossen. Entlaufen die Eingeborenen zu
+den Ihrigen (*al monte*), oder treibt sie der Hunger, so werden
 sie alsbald wieder Menschenfresser wie zuvor. Und wie
 sollten wir uns über diesen Unbestand der Völker am Orinoco
 wundern, da uns aufs glaubwürdigste bezeugt ist, was sich
@@ -684,9 +703,9 @@ Hunger, so gab er sich für krank aus und ließ einen Arzt
 rufen, aber nicht um sich bei ihm Raths zu erholen, sondern
 um ihn zu verzehren. Ein sehr glaubwürdiger Schriftsteller,
 Abd-Allatif, erzählt uns, »wie eine Sitte, die Anfangs Abscheu
-und Entsetzen einflößte, bald gar nicht mehr auffiel.«^[<i>Abd-Allatif,
+und Entsetzen einflößte, bald gar nicht mehr auffiel.«^[*Abd-Allatif,
 Médecin de Bagdad, Relation de l’Égypte, trad.
-par Silvestre de Sacy.</i> —- »Als die Armen anfingen
+par Silvestre de Sacy.* —- »Als die Armen anfingen
 Menschenfleisch zu
 essen, war der Abscheu und das Entsetzen
 über so gräßliche Gerichte so
@@ -740,12 +759,12 @@ unterhalten, und doch hatten beide erst seit drei
 Monaten ihre Wälder verlassen. Alle Viertelstunden brachten
 sie einen mühselig zusammengestammelten Satz zu Tage, und
 dabei war das Zeitwort, ohne Zweifel nach der Contur ihrer
-eigenen Sprachen, immer im Gerundium gesetzt. <i>Quando
-io mirando Padre. Padre me dimendo.</i> Statt: als ich den
+eigenen Sprachen, immer im Gerundium gesetzt. *Quando
+io mirando Padre. Padre me dimendo.* Statt: als ich den
 Pater sah, sagte er mir. Ich habe oben erwähnt, wie verständig
 mir die Idee der Jesuiten schien, eine der cultivirten
-amerikanischen Sprachen, etwa das Peruanische, die <i>lingua
-del Inga</i>, zur allgemeinen Sprache zu machen und die Indianer
+amerikanischen Sprachen, etwa das Peruanische, die *lingua
+del Inga*, zur allgemeinen Sprache zu machen und die Indianer
 in einer Mundart zu unterrichten, die wohl in den
 Wurzeln, aber nicht im Bau und in den grammatischen
 Formen von den ihrigen abweicht. Man that damit nur,
@@ -782,8 +801,8 @@ großen Markt von Tenochtitlan verkauft wurde. Aber ein
 chemisch identischer Farbstoff kann aus Pflanzen gezogen werden,
 die einander nahe stehenden Gattungen angehören, und so
 möchte ich jetzt nicht entscheiden, ob die in Amerika einheimischen 
-<i>Indigofera</i> sich nicht generisch von <i>Indigofera anil</i>
-und <i>Indigofera argentea</i> der alten Welt unterscheiden. Bei
+*Indigofera* sich nicht generisch von *Indigofera anil*
+und *Indigofera argentea* der alten Welt unterscheiden. Bei
 den Kaffeebäumen der beiden Welten ist ein solcher Unterschied
 wirklich beobachtet.
 
@@ -863,8 +882,8 @@ Diese Erklärung ist so gezwungen als unbefriedigend.
 Ich will ihr keine andere Hypothese entgegenstellen,
 ich mache nur darauf aufmerksam, daß die Erscheinung auf einer
 Modifikation der Luft beruht, welche auf
-die <b>Schallwellen</b> und auf die
-<b>Lichtwellen</b> zumal Einfluß äußert.
+die **Schallwellen** und auf die
+**Lichtwellen** zumal Einfluß äußert.
 Wenn die Verstärkung des Schalls als
 Wetterzeichen gilt, so hängt dieß ganz genau damit zusammen, daß man
 der geringeren Schwächung des Lichts
@@ -892,7 +911,7 @@ uns herabfielen, wir hatten vollauf zu thun, uns dieser lästigen
 Insekten zu entledigen. Je weiter wir fuhren, desto
 schmaler wurde der Fluß und die Ufer waren so sumpfigt,
 daß Bonpland sich nur mit großer Mühe an den Fuß einer
-mit großen purpurrothen Blüthen bedeckten <i>Carolinea princeps</i> 
+mit großen purpurrothen Blüthen bedeckten *Carolinea princeps* 
 durcharbeiten konnte. Dieser Baum ist die herrlichste
 Zierde der Wälder hier und am Rio Negro. Wir untersuchten
 mehrmals am Tage die Temperatur des Cassiquiare.
@@ -928,7 +947,7 @@ Jahr 1785 übertrug man die Mission Padamo dem Pater
 Valor mit der Weisung, »sich unverzüglich zu den Indianern
 zu verfügen, die ohne Seelenhirten seyen.« Und seit
 länger als fünfzehn Jahren gab es kein Dorf Padamo mehr
-und die Indianer waren <i>al monte</i> gelaufen.
+und die Indianer waren *al monte* gelaufen.
 
 Vom 14. bis 21. Mai brachten wir die Nacht immer
 unter freiem Himmel zu — ich kann aber die Orte, wo wir
@@ -943,13 +962,13 @@ den Granithügeln von Daripabo zuläuft, sahen wir
 die sumpfigten Ufer des Stroms mit Bambusrohr bewachsen.
 Diese baumartigen Gräser werden 20 Fuß hoch; ihr Halm
 ist gegen die Spitze immer umgebogen. Es ist eine neue Art
-<i>Bambusa</i> mit sehr breiten Blättern. Bonpland war so
+*Bambusa* mit sehr breiten Blättern. Bonpland war so
 glücklich, ein blühendes Exemplar zu finden. Ich erwähne
-dieses Umstandes, weil die Gattungen <i>Nastus</i> und <i>Bambusa</i>
+dieses Umstandes, weil die Gattungen *Nastus* und *Bambusa*
 bis jetzt sehr schlecht auseinander gehalten waren, und man in
 der neuen Welt diese gewaltigen Gräser ungemein selten blühend
 antrifft. Mutis botanisirte zwanzig Jahre in einem Land,
-wo die <i>Bambusa Guadua</i> mehrere Meilen breite sumpfigte
+wo die *Bambusa Guadua* mehrere Meilen breite sumpfigte
 Wälder bildet, und war nie im Stande einer Blüthe habhaft
 zu werden. Wir schickten diesem Gelehrten die ersten Bambusa-Aehren
 aus den gemäßigten Thälern von Popayan. Wie
@@ -958,18 +977,18 @@ Pflanze entwickeln, die im Lande zu Hause ist und vom
 Meeresspiegel bis in 900 Toisen Höhe äußerst kräftig wächst,
 also in eine subalpinische Region hinaufreicht, wo unter den
 Tropen das Klima dem des mittägigen Spaniens gleicht?
-Die <i>Bambusa latifolia</i> scheint den Becken des obern Orinoco,
+Die *Bambusa latifolia* scheint den Becken des obern Orinoco,
 des Cassiquiare und des Amazonenstroms eigenthümlich
 zu seyn; es ist ein geselliges Gewächs, wie alle Gräser aus
 der Familie der Nastoiden; aber in dem Striche von spanisch
 Guyana, durch den wir gekommen, tritt sie nicht in den gewaltigen
-Massen auf, welche die Hispano-Amerikaner <b>Guaduales</b>
+Massen auf, welche die Hispano-Amerikaner **Guaduales**
 oder Bambuswälder nennen.
 
 Unser erstes Nachtlager oberhalb Vasiva war bald aufgeschlagen.
 Wir trafen einen kleinen trockenen, von Büschen
 freien Fleck südlich vom Caño Curamuni, an einem Ort, wo
-wir Kapuzineraffen,^[<i>Simia chiropotes</i>, eine neue Art.]
+wir Kapuzineraffen,^[*Simia chiropotes*, eine neue Art.]
 kenntlich am schwarzen Bart und der
 trübseligen, scheuen Miene, langsam auf den horizontalen
 Aesten einer Genipa hin und hergehen sahen. Die fünf folgenden
@@ -990,20 +1009,20 @@ wo unsere Indianer mit der Axt so weit aufräumen konnten,
 um für 12 bis 13 Personen ein Lager aufzuschlagen. In
 der Pirogue konnten wir die Nacht unmöglich zubringen.
 Die Moskitos, die uns den Tag über plagten, setzten sich
-gegen Abend haufenweise unter den <b>Toldo</b>, d.&nbsp;h. unter das
+gegen Abend haufenweise unter den **Toldo**, d.&nbsp;h. unter das
 Dach aus Palmblättern, das uns vor dem Regen schützte.
 Rio waren uns Hände und Gesicht so stark geschwollen gewesen.
 Pater Zea, der sich bis dahin immer gerühmt, er
 habe in seinen Missionen an den Katarakten die größten und
-wildesten (<i>las mas feroces</i>) Moskitos, gab nach und nach
+wildesten (*las mas feroces*) Moskitos, gab nach und nach
 zu, nie haben ihn die Insektenstiche ärger geschmerzt, als
 hier am Cassiquiare. Mitten im dicken Walde konnten wir
 uns nur mit schwerer Mühe Brennholz verschaffen; denn in
 diesen Ländern am Aequator, wo es beständig regnet, sind
 die Baumzweige so saftreich, daß sie fast gar nicht brennen.
 Wo es keine trockenen Ufer gibt, findet man auch so gut wie
-kein altes Holz, das, wie die Indier sagen, <b>an der Sonne
-gekocht</b> ist. Feuer bedurften wir übrigens nur als Schutzwehr
+kein altes Holz, das, wie die Indier sagen, **an der Sonne
+gekocht** ist. Feuer bedurften wir übrigens nur als Schutzwehr
 gegen die Thiere des Waldes; unser Vorrath an Lebensmitteln
 war so gering, daß wir zur Zubereitung der Speisen des
 Feuers ziemlich hätten entbehren können.
@@ -1014,10 +1033,10 @@ ist klein und bitter; die Indianer in den Wäldern
 saugen das Mark aus und werfen die Bohnen weg, und
 diese werden von den Indianern in den Missionen aufgelesen
 und an solche verkauft, die es bei der Bereitung ihrer
-Chokolate nicht genau nehmen. »Hier ist der <b>Puerto del
-Cacao</b>,« sagte der Steuermann, »hier übernachten <i>los Padres</i>,
+Chokolate nicht genau nehmen. »Hier ist der **Puerto del
+Cacao**,« sagte der Steuermann, »hier übernachten *los Padres*,
 wenn sie nach Esmeralda fahren, um Blaseröhren und
-<b>Juvia</b> (die wohlschmeckenden Mandeln der <i>Bertholletia</i>) zu
+**Juvia** (die wohlschmeckenden Mandeln der *Bertholletia*) zu
 kaufen.« Indessen befahren im Jahre nicht fünf Canoes den
 Cassiquiare, und seit Maypures, also seit einem Monat, war
 uns auf den Flüssen, die wir hinauffuhren, keine Seele begegnet,
@@ -1089,7 +1108,7 @@ unter dem Gewölk sieht. Die uns zu Gesicht kamen, liefen
 nach Nord und folgten auf einander fast in gleichen Pausen.
 Die Indianer, welche die Zerrbilder ihrer Phantasie nicht
 leicht durch den Ausdruck veredeln, nennen die Sternschnuppen
-den <b>Urin</b> und den Thau den <b>Speichel der Sterne</b>. Aber
+den **Urin** und den Thau den **Speichel der Sterne**. Aber
 das Gewölk wurde wieder dicker und wir sahen weder die
 Meteore mehr noch die wahren Sterne, deren wir seit mehreren
 Tagen mit so großer Ungeduld harrten.
@@ -1181,8 +1200,8 @@ Erscheinung, die ich an Ort und Stelle untersucht habe, verdient
 ganz besondere Aufmerksamkeit, um so mehr, als sie
 über ähnliche Fälle, die man im innern Afrika beobachtet zu
 haben glaubt, einigen Aufschluß geben kann. Ich beschließe
-dieses Capitel mit allgemeinen Betrachtungen über das <b>hydraulische
-System</b> von spanisch Guyana, und versuche
+dieses Capitel mit allgemeinen Betrachtungen über das **hydraulische
+System** von spanisch Guyana, und versuche
 es, durch Anführung von Fällen auf dem alten Continent
 darzuthun, daß diese Gabeltheilung, die für die Geographen,
 welche Karten von Amerika entwarfen, so lange ein Schreckbild
@@ -1226,7 +1245,7 @@ angenommen haben, eine Wasserscheide zwischen dem Becken
 des Orinoco und dem des Amazonenstroms, vielmehr entspringen
 am Südabhang derselben die Quellen des ersteren
 Stroms. Der Orinoco beschreibt (ganz wie der Arno in der
-bekannten <b>Voltata</b> zwischen Bibieno und Ponta Sieve) drei
+bekannten **Voltata** zwischen Bibieno und Ponta Sieve) drei
 Viertheile eines Ovals, dessen große Achse in der Richtung
 eines Parallels liegt. Er läuft um einen Bergstock herum,
 von dessen beiden entgegengesetzten Abhängen die Gewässer ihm
@@ -1236,7 +1255,7 @@ er sich in die Südsee ergießen; darauf, beim Einfluß des
 Guaviare, fängt er an nach Nord umzubiegen und läuft in
 der Richtung eines Meridians bis zur Mündung des Apure,
 wo ein zweiter »Wiederkehrungspunkt« liegt. Auf diesem
-Stücke seines Laufs füllt der Orinoco eine Art <b>Rinne</b>, die
+Stücke seines Laufs füllt der Orinoco eine Art **Rinne**, die
 durch das sanfte Gefälle, das sich von der sehr fernen Andenkette
 von Neu-Grenada herunterzieht, und durch den ganz
 kurzen Gegenhang, der ostwärts zur steilen Gebirgswand der
@@ -1251,10 +1270,10 @@ Strom bricht sich brüllend Bahn durch die Ausläufer, die
 gegen West fortstreichen, so daß aus der großen
 »Land-Meerenge«^[Es ist dieß eine 80 Meilen breite Oeffnung,
 die einzige, durch welche
-die <b>vereinigten Becken des obern Orinoco und des Amazonenstroms
+die **vereinigten Becken des obern Orinoco und des Amazonenstroms
 mit dem Becken des untern Orinoco oder den Llanos
-von Venezuela</b> in Verbindung stehen. Wir betrachten diese Oeffnung
-geologisch als ein <i>détroit terrestre</i>,
+von Venezuela** in Verbindung stehen. Wir betrachten diese Oeffnung
+geologisch als ein *détroit terrestre*,
 als eine Land-Meerenge, weil sie
 macht, daß aus einem dieser Becken
 in das andere Gewässer strömen, und
@@ -1264,7 +1283,7 @@ von Caracas und denen von Mato-Grosso
 oder Chiquitos, von Ost
 nach West streicht, unmittelbar mit den
 Anden von Neu-Grenada zusammenhinge. (S. Bd. II. Seite 379.)
-] (<i>détroit terrestre</i>) zwischen den Cordilleren von
+] (*détroit terrestre*) zwischen den Cordilleren von
 Neu-Grenada und der Sierra Parime die Felsen am westlichen
 Ufer des Stroms noch dieser Sierra angehören. Beim Einfluß
 des Rio Apure sieht man nun den Orinoco zum zweitenmal,
@@ -1362,7 +1381,7 @@ daß die großen Bodenflächen, die wir Ebenen nennen,
 ihre Thäler haben, so gut wie die Berge. Jede Ebene besteht
 aus verschiedenen Systemen alternativer Hänge,^[Hänge, die in
 entgegengesetzter Richtung gegen den Horizont geneigt sind.] und
-diese Systeme sind von einander durch <b>secundäre</b> Wasserscheiden
+diese Systeme sind von einander durch **secundäre** Wasserscheiden
 von so geringer Höhe getrennt, daß das Auge sie fast
 nicht bemerkt. Eine ununterbrochene, waldbedeckte Ebene füllt
 den ungeheuern Raum zwischen dem 3½ Grad nördlicher und
@@ -1376,7 +1395,7 @@ zu; aber weiter gegen Norden hat in Folge eigenthümlicher
 Terrainbildung auf einer Fläche von nicht 1500 Quadratmeilen
 ein anderer großer Strom, der Orinoco, sein eigenes
 hydraulisches System. Die Centralebene von Südamerika umfaßt
-also zwei <b>Strombecken</b>; denn ein Becken ist die Gesammtheit
+also zwei **Strombecken**; denn ein Becken ist die Gesammtheit
 aller umliegenden Bodenflächen, deren stärkste Falllinien
 dem Thalweg, das heißt der Längenvertiefung, welche
 das Bett des Hauptbehälters bildet, zulaufen. Auf dem kurzen
@@ -1389,7 +1408,7 @@ gehen in den Amazonenstrom. Also nur auf einer
 50 Meilen langen Strecke haben in diesem ungeheuern Thal
 unter dem Aequator die Bodenflächen zunächst am Fuß der
 Cordillere der Parime ihren stärksten Fall in einer Richtung,
-die <b>aus dem Thal hinaus</b> zuerst nordwärts, dann ostwärts
+die **aus dem Thal hinaus** zuerst nordwärts, dann ostwärts
 weist. In Ungarn sehen wir einen ähnlichen, sehr merkwürdigen
 Fall, wo Flüsse, die südwärts von einer Bergkette
 entspringen, dem hydraulischen System des Nordhangs angehören.
@@ -1418,7 +1437,7 @@ der Werra und dem der Ems, an.
 Ich komme zur dritten Eigenthümlichkeit im Laufe des
 Orinoco, zu jener Gabeltheilung, die man im Moment, da
 ich nach Amerika abreiste, wieder in Zweifel gezogen hatte.
-Diese Gabeltheilung (<i>divergium amnis</i>) liegt nach meinen
+Diese Gabeltheilung (*divergium amnis*) liegt nach meinen
 astronomischen Beobachtungen in der Mission Esmeralda unter
 dem 3°10′ nördlicher Breite und dem 68°37′ westlicher Länge
 vom Meridian von Paris. Im Innern von Südamerika
@@ -1427,7 +1446,7 @@ Küsten vorkommen sehen. Nach den einfachsten geometrischen
 Grundsätzen haben wir anzunehmen, daß die Bodenbildung
 und der Stoß der Zuflüsse die Richtung der strömenden Gewässer
 nach festen, gleichförmigen Gesetzen bestimmen. Die
-<b>Deltas</b> entstehen dadurch, daß auf der Ebene eines Küstenlandes
+**Deltas** entstehen dadurch, daß auf der Ebene eines Küstenlandes
 eine Gabeltheilung erfolgt, und bei näherer Betrachtung
 zeigen sich zuweilen in der Nähe dieser oceanischen Gabelung
 Verzweigungen mit andern Flüssen, von denen Arme nicht
@@ -1478,8 +1497,8 @@ hindurchzugehen.
 
 Es ist nun noch zu betrachten, in wie fern die Breite
 eines Flusses unter sonst gleichen Umständen die Bildung
-solcher Gabeltheilungen begünstigt, welche, gleich den <b>Kanälen
-mit Theilungspunkten</b>, in Folge der natürlichen Bodenbildung
+solcher Gabeltheilungen begünstigt, welche, gleich den **Kanälen
+mit Theilungspunkten**, in Folge der natürlichen Bodenbildung
 eine schiffbare Linie zwischen zwei benachbarten Strombecken
 herstellen. Sondirt man einen Fluß nach dem Querdurchschnitt,
 so zeigt sich, daß sein Bett gewöhnlich aus
@@ -1496,13 +1515,13 @@ der Wasserscheide zwischen zweien. Im ersteren Fall sind es
 entweder Arme, die in den Thalweg, von dem sie sich abgezweigt,
 früher oder später wieder einmünden, oder aber
 Arme, die sich mit weiter abwärts gelegenen Nebenflüssen vereinigen.
-Zuweilen sind es auch Deltas,^[Es gibt 1) <b>oceanische Deltas</b>,
+Zuweilen sind es auch Deltas,^[Es gibt 1) **oceanische Deltas**,
 wie an den Mündungen des
 Orinoco, des Rio Magdalena, des
-Ganges; 2) <b>Deltas an den Ufern
-von Binnenmeeren</b>, wie die des
-Oxus und Sihon; 3) <b>Deltas von
-Nebenflüssen</b>, wie an den Mündungen
+Ganges; 2) **Deltas an den Ufern
+von Binnenmeeren**, wie die des
+Oxus und Sihon; 3) **Deltas von
+Nebenflüssen**, wie an den Mündungen
 des Apure, des Arauca und des
 Rio Branco. Fließen mehrere untergeordnete
 Gewässer in der Nähe der
@@ -1522,7 +1541,7 @@ abzweigende Arm eine hydraulische Verbindung zwischen zwei
 Flußsystemen her und verdient desto mehr unsere Aufmerksamkeit,
 je breiter und schiffbarer er ist. Nun ist aber der
 Cassiquiare zwei- bis dreimal breiter als die Seine beim
-<i>Jardin des plantes</i> in Paris, und zum Beweis, wie merkwürdig
+*Jardin des plantes* in Paris, und zum Beweis, wie merkwürdig
 dieser Fluß ist, bemerke ich, daß eine sorgfältige
 Forschung nach Fällen von Gabeltheilungen im Innern der
 Länder, selbst zwischen weit weniger bedeutenden Flüssen,
@@ -1546,7 +1565,7 @@ Becken des Amazonenstroms läuft. Eine andere Gabeltheilung,
 die wegen des alten Verkehrs zwischen den Völkern
 Latiums und Etruriens noch mehr Interesse hat, scheint ehemals
 am Thrasimenischen See stattgefunden zu haben. Auf
-seiner vielberufenen <b>Voltata</b> von Süd nach West und Nord
+seiner vielberufenen **Voltata** von Süd nach West und Nord
 zwischen Bibieno und Ponta Sieve theilte sich der Arno bei
 Arezzo in zwei Arme, deren einer, wie jetzt, über Florenz
 und Pisa dem Meere zulief, während der andere durch das
@@ -1554,7 +1573,7 @@ Thal von Chiana floß und sich mit dem Tiber vereinigte,
 entweder unmittelbar oder durch die Paglia als Zwischenglied.
 Fossombroni hat dargethan, wie sich im Mittelalter durch
 Anschwemmungen im Thal von Chiana eine Wasserscheide
-bildete, und wie jetzt das nördliche Stück des <b>Arno Teverino</b>
+bildete, und wie jetzt das nördliche Stück des **Arno Teverino**
 von Süd nach Nord (auf dem Gegenhang) aus dem
 kleinen See von Montepulciano in den Arno fließt. So hatte
 denn der klassische Boden Italiens neben so vielen Wundern
@@ -1573,9 +1592,9 @@ die Verhältnisse, die in verschiedenen Ländern zwischen der
 Bodenbildung und dem Laufe der Gewässer bestehen, zu vergleichen,
 so habe ich alles bloß Hypothetische zu vermeiden.
 Zunachst bemerke ich, daß der Cassiquiare in seinem gegenwärtigen
-Zustand keineswegs <i>placidus et mitissimus amnis</i>
+Zustand keineswegs *placidus et mitissimus amnis*
 ist, wie es bei den Poeten Latiums heißt; er gleicht durchaus
-nicht dem <i>errans languido flumine Cocytus</i>, da er im
+nicht dem *errans languido flumine Cocytus*, da er im
 größten Theile seines Laufs die ungemeine Geschwindigkeit
 von 6—8 Fuß in der Sekunde hat. Es ist also wohl nicht
 zu fürchten, daß er ein mehrere hundert Toisen breites Bett
@@ -1603,7 +1622,7 @@ zwischen denselben abbröckeln. Was anfangs nur ein Arm
 war, wird bald der einzige Wasserbehälter, und bei Strömen,
 die langsam ziehen, verschwinden die Gabeltheilungen oder
 Verzweigungen zwischen zwei hydraulischen Systemen auf dreierlei
-Wegen: entweder der <b>Verbindungscanal</b> zieht den
+Wegen: entweder der **Verbindungscanal** zieht den
 ganzen gegabelten Strom in sein Becken hinüber, oder der
 Canal verstopft sich durch Anschwemmungen an der Stelle,
 wo er vom Strome abgeht, oder endlich in der Mitte seines
@@ -1622,7 +1641,7 @@ durch natürliche Canäle früher gewesen seyn mögen
 als jetzt.
 
 Nachdem ich die Gabeltheilung des Orinoco aus dem
-Gesichtspunkt der <b>vergleichenden Hydrographie</b> betrachtet,
+Gesichtspunkt der **vergleichenden Hydrographie** betrachtet,
 habe ich noch kurz die Geschichte der Entdeckung dieses
 merkwürdigen Phänomens zu besprechen. Es ging mit der
 Verbindung zwischen zwei großen Flußsystemen wie mit dem
@@ -1664,7 +1683,7 @@ unsichere Kunde von der Verzweigung zweier Ströme von der
 Mündung des Rio Negro nach Europa. Die Conquistadoren
 und mehrere Geschichtschreiber, wie Herera, Fray Pedro Simon
 und der Pater Garcia, verwechselten unter den Namen
-<i><b>Rio Grande</b></i> und <i><b>Mar dulce</b></i>
+***Rio Grande*** und ***Mar dulce***
 den Orinoco und den
 Maragnon. Der Name des ersteren Flusses kommt noch nicht
 einmal auf Diego Riberos vielberufener Karte von Amerika
@@ -1690,7 +1709,7 @@ nichts über eine hydraulische Verbindung zwischen Orinoco
 und Amazonenstrom in Erfahrung; aber sein Unterbefehlshaber
 Keymis, der aus Schmeichelei (besonders aber wegen
 des Vorgangs, daß der Maragnon nach Orellana benannt
-worden) dem Orinoco den Namen <b>Raleana</b> beigelegt, bekam
+worden) dem Orinoco den Namen **Raleana** beigelegt, bekam
 zuerst eine unbestimmte Vorstellung von den Trageplätzen
 zwischen dem Essequebo, dem Carony und dem Rio Branco
 oder Parime. Aus diesen Trageplätzen machte er einen großen
@@ -1710,16 +1729,16 @@ und Andres de Artedia, im Gefolge des Capitäns Texeira,
 die Fahrt von Quito nach Gran-Para. Am Einfluß des Rio
 Negro in den Amazonenstrom erfuhren sie, »ersterer Fluß,
 von den Eingeborenen wegen der braunen Farbe seines sehr
-hellen Wassers <b>Curiguacura</b> oder <b>Uruna</b> genannt, gebe
-einen Arm an den <b>Rio Grande</b> ab, der sich in die nördliche
+hellen Wassers **Curiguacura** oder **Uruna** genannt, gebe
+einen Arm an den **Rio Grande** ab, der sich in die nördliche
 See ergießt und an dessen Mündung sich holländische
 Niederlassungen befinden.« Acuña gibt den Rath, »nicht am
 Einfluß des Rio Negro in den Amazonenstrom, sondern am
 Punkt, wo der Verbindungsast abgeht,« eine Festung zu
 bauen. Er bespricht die Frage, was wohl dieser Rio Grande
 seyn möge, und kommt zum Schluß, der Orinoco sey es
-sicher nicht, vielleicht aber der <b>Rio Dulce</b> oder der <b>Rio
-de Felipe</b>, derselbe, durch den Aguirre zur See gekommen.
+sicher nicht, vielleicht aber der **Rio Dulce** oder der **Rio
+de Felipe**, derselbe, durch den Aguirre zur See gekommen.
 Letztere dieser Annahmen scheint ihm die wahrscheinlichste.
 Man muß bei dergleichen Angaben unterscheiden zwischen dem,
 was die Reisenden an der Mündung des Rio Negro von den
@@ -1728,9 +1747,9 @@ die ihnen der Zustand der Geographie zu ihrer Zeit
 an die Hand gab, selbst hinzusetzten. Ein Flußarm, der
 vom Rio Negro abgeht, soll sich in einen sehr großen Fluß
 ergießen, der in das nördliche Meer läuft an einer Küste,
-auf der <b>Menschen mit rothen Haaren</b> wohnen; so bezeichneten
+auf der **Menschen mit rothen Haaren** wohnen; so bezeichneten
 die Indianer die Holländer, da sie gewöhnt waren,
-nur <b>Weiße mit schwarzen oder braunen Haaren</b>,
+nur **Weiße mit schwarzen oder braunen Haaren**,
 Spanier oder Portugiesen, zu sehen. Wir kennen nun aber
 jetzt, vom Einfluß des Rio Negro in den Amazonenstrom bis
 zum Caño Pimichin, auf dem ich in den ersteren Fluß gekommen,
@@ -1868,9 +1887,9 @@ halten können, abgehen oder hereinkommen sehen.« »Zudem,«
 fährt er fort, »läuft eine große Cordillere^[
 Pater Caulin, der im Jahr 1759 schrieb,
 obgleich sein wahrheitgetreues,
-sehr werthvolles Buch (<i>Historia
+sehr werthvolles Buch (*Historia
 corografica de la Nueva Andalusia y
-vertientes del Rio Orinoco</i>) erst
+vertientes del Rio Orinoco*) erst
 1779 erschien, bestreitet mit vielem Scharfsinn
 die Vorstellung, daß eine Bergkette
 jede Verbindung zwischen den Betten
@@ -1884,7 +1903,7 @@ eine ungeheure Mauer fortziehen. Er
 beachtet nicht, daß Bergketten häufig
 von tiefen (Quer-) Thälern durchschnitten
 sind, während sie, aus der Ferne
-gesehen, sich als <i>contiguas ò indivisas</i> darstellen.«]
+gesehen, sich als *contiguas ò indivisas* darstellen.«]
 von Ost und West
 und läßt die Gewässer nicht in einander münden, wie sie auch
 alle Erörterung über die angebliche Verbindung beider Ströme
@@ -1907,7 +1926,7 @@ des ersten großen Katarakts mit eigenen Augen gesehn. Sein
 Werk (das erste über diese Länder vor Caulins und Gilis
 Schriften) wurde Anfangs gewaltig erhoben, und später in
 den spanischen Colonien um so weiter und zu weit herabgesetzt.
-Allerdings begegnet man im <b>Orinoco illustrado</b>
+Allerdings begegnet man im **Orinoco illustrado**
 nicht der genauen Kenntniß der Oertlichkeiten, der naiven
 Einfalt, wodurch die Berichte der Missionäre einen gewissen
 Reiz erhalten; der Styl ist gekünstelt und die Sucht zu übertreiben
@@ -1935,17 +1954,17 @@ Mitte des siebzehnten Jahrhunderts unternommen wurden,
 waren die Portugiesen nach und nach aus dem Rio Negro
 über den Cassiquiare in das Bett eines großen Stromes gekommen,
 von dem sie nicht wußten, daß es der Orinoco sey.
-Ein fliegendes Lager der <i>Tropa de rescate</i>^[Von
-<i>rescatar</i>, loskaufen.] leistete diesem
+Ein fliegendes Lager der *Tropa de rescate*^[Von
+*rescatar*, loskaufen.] leistete diesem
 unmenschlichen Handel Vorschub. Man hetzte die Eingeborenen,
 sich zu bekriegen, und kaufte dann die Gefangenen los;
 und um dem Sklavenhandel einen Anstrich von Rechtmäßigkeit
-zu geben, gingen Geistliche mit der <i>Tropa de rescate</i>, die
+zu geben, gingen Geistliche mit der *Tropa de rescate*, die
 untersuchten, »ob diejenigen, welche Sklaven verkauften, auch
 dazu berechtigt seyen, weil sie dieselben in offenem Kampfe
 zu Gefangenen gemacht« Vom Jahr 1737 an wiederholten
 sich diese Züge der Portugiesen an den obern Orinoco sehr
-oft. Die Gier, Sklaven (<i>poitos</i>) gegen Beile, Fischangeln
+oft. Die Gier, Sklaven (*poitos*) gegen Beile, Fischangeln
 und Glaswaaren zu vertauschen, trieb die indianischen Völkerschaften
 zum blutigen Streit gegen einander. Die Quipunaves,
 unter ihrem tapfern und grausamen Häuptling Macapu, waren
@@ -1972,7 +1991,7 @@ sich, als sie hörten, der Fluß, auf dem diese Begegnung
 stattgefunden, sey der Orinoco, und sie nahmen Pater
 Roman über den Cassiquiare in die Niederlassungen am Rio
 Negro mit sich. Der Superior der spanischen Missionen sah
-sich genöthigt, beim fliegenden Lager der <i>Tropa de rescate</i>
+sich genöthigt, beim fliegenden Lager der *Tropa de rescate*
 zu verweilen, bis der portugiesische Jesuit Avogadri, der in
 Geschäften nach Gran-Para gegangen, zurück war. Auf demselben
 Wege, über den Cassiquiare und den obern Orinoco,
@@ -2004,7 +2023,7 @@ Sogar Pater Gumilla, den Bouguer in Carthagena de Indias
 getroffen hatte, gestand, daß er sich geirrt, und kurz vor seinem
 Tode las er Pater Gili ein für eine neue Ausgabe seiner
 Geschichte des Orinoco bestimmtes Supplement vor, in dem
-er munter^[<i>Lepidamente, al suo solito</i>,
+er munter^[*Lepidamente, al suo solito*,
 sagt der Missionär Gili.] erzählte,
 in welcher Weise er enttäuscht worden.
 Durch Ituriagas und Solanos Grenzexpedition wurden die
@@ -2066,9 +2085,9 @@ er schon ziemlich richtig an. Durch die in den Jahren 1775
 und 1778 veröffentlichten Karten von la Cruz Olmedilla^[Die
 Karte von la Cruz liegt
 allen neuen Karten von Amerika zu
-Grunde. (<i>Mapa geografica de
+Grunde. (*Mapa geografica de
 America meridional por D. Juan de
-la Cruz Cano y Olmedilla.</i> 1775.)
+la Cruz Cano y Olmedilla.* 1775.)
 Die Originalausgabe, die ich besitze,
 ist desto seltener, als, wie man
 allgemein glaubt, die Kupferplatten
@@ -2098,7 +2117,7 @@ die Grenzexpedition zwischen der spanischen Schanze am Rio
 Negro und der Stadt Angostura, über den Cassiquiare und
 den obern Orinoco, den Verkehr eröffnete, der über ein halbes
 Jahrhundert regelmäßig im Gange war. Auf der im
-Jahr 1798 erschienenen <i>Carte général de la Guyane</i> ist
+Jahr 1798 erschienenen *Carte général de la Guyane* ist
 der Cassiquiare und das Stück des obern Orinoco ostwärts von
 Esmeralda als ein Nebenfluß des Rio Negro, der mit dem
 Orinoco gar nicht zusammenhängt, dargestellt. Eine Bergkette
@@ -2135,11 +2154,11 @@ gut angegeben; ohne Zweifel hat aber Buache vorausgesetzt,
 bei den verschiedenen Fahrten, die zwischen Amazonenstrom
 und Orinoco ausgeführt worden seyn sollten, seyen die Canoes
 von einem Nebenfluß zum andern über irgend einen Trageplatz
-(<i>arastradero</i>) geschleppt worden. Dem geachteten Geographen
+(*arastradero*) geschleppt worden. Dem geachteten Geographen
 lag die Annahme, die Flüsse laufen in Wirklichkeit
 nicht so, wie die neueren spanischen Karten angeben, desto
 näher, als auf denselben Karten um den See Parime herum
-(das angebliche, 600 Quadratmeilen große <b>weiße Meer</b>)
+(das angebliche, 600 Quadratmeilen große **weiße Meer**)
 die seltsamsten, unwahrscheinlichsten Flußverzweigungen vorkommen.
 Man könnte auf den Orinoco anwenden, was Pater
 Acuña vom Amazonenstrom sagt, dessen Wunder er beschreibt:
@@ -2213,10 +2232,10 @@ ins Auge faßte.
 Fünfundzwanzigstes Kapitel.
 ===========================
 
-<sc>Der obere Orinoco von Esmeralda bis zum Einfluß des Guaviare. —
+Der obere Orinoco von Esmeralda bis zum Einfluß des Guaviare. —
 Zweite Fahrt durch die Katarakten von Atures und Maypures. — Der
 untere Orinoco zwischen der Mündung des Apure und Angostura, der
-Hauptstadt von spanisch Guyana.</sc>
+Hauptstadt von spanisch Guyana.
 
 Noch habe ich von der einsamsten, abgelegensten christlichen
 Niederlassung am obern Orinoco zu sprechen. Gegenüber
@@ -2238,7 +2257,7 @@ wird die sumpfigte Wiese zur Savane, die um die untere
 Region der Cordillere herläuft. Hier trifft man ungemein
 große Ananas von köstlichem Geruch: Diese Bromeliaart
 wächst immer einzeln zwischen den Gräsern, wie bei uns
-<i>Colchicum autumnale</i>, während der Karatas, eine andere
+*Colchicum autumnale*, während der Karatas, eine andere
 Art derselben Gattung, ein geselliges Gewächs ist gleich unsern
 Heiden und Heidelbeeren. Die Ananas von Esmeralda sind
 in ganz Guyana berühmt. In Amerika wie in Europa gibt
@@ -2256,7 +2275,7 @@ des Duida schmücken sie den Rasen der Savanen,
 wenn ihre gelben, mit einem Büschel silberglänzender Blätter
 gekrönten Früchte über den Setarien, den Paspalum und
 ein paar Cyperaceen emporragen. Dieses Gewächs, das die
-Indianer <b><i>Ana-curua</i></b> nennen, verbreitete sich schon im
+Indianer ***Ana-curua*** nennen, verbreitete sich schon im
 sechzehnten Jahrhundert im innern China, und noch in neuester
 Zeit fanden es englische Reisende mit andern, unzweifelhaft
 amerikanischen Gewächsen (Mais, Manioc, Melonenbaum,
@@ -2292,10 +2311,10 @@ das Tamanakische und Maypurische und am Rio Negro
 das Maravitanische. Es sind dieß die fünf oder sechs verbreitetsten
 Sprachen. Wir wunderten uns, in Esmeralda
 viele Zambos, Mulatten und andere Farbige anzutreffen, die
-sich aus Eitelkeit <b>Spanier</b> nennen und sich für weiß halten,
+sich aus Eitelkeit **Spanier** nennen und sich für weiß halten,
 weil sie nicht roth sind wie die Indianer. Diese Menschen
 führen ein jämmerliches Leben. Sie sind meist als Verwiesene
-(<i>desterrados</i>) hier. Um im innern Lande, das man gegen
+(*desterrados*) hier. Um im innern Lande, das man gegen
 die Portugiesen absperren wollte, in der Eile Colonien zu
 gründen, hatte Solano in den Llanos und bis zur Insel
 Margarita hin Landstreicher und Uebelthäter, denen die Justiz
@@ -2307,19 +2326,19 @@ berühmt. Der Granit des Duida und des Maraguaca
 enthält in offenen Gängen schöne Bergkrystalle, die zum Theil
 sehr durchsichtig, zum Theil mit Chlorit (Talkglimmer) gefärbt
 und mit Actinot (Strahlstein) gemengt sind; man hatte
-sie für Diamanten und Smaragden (<i>Esmeralda</i>) gehalten.
+sie für Diamanten und Smaragden (*Esmeralda*) gehalten.
 So nahe den Quellen des Orinoco träumte man in diesen
 Bergen von nichts als vom Dorado, der nicht weit seyn
 konnte, vom See Parime und von den Trümmern der großen
 Stadt Manoa. Ein Mann, der wegen seiner Leichtgläubigkeit
 und seiner Sucht zur Uebertreibung noch jetzt im Lande wohlbekannt
 ist, Don Apollinario Diez de la Fuente, nahm den
-vollklingenden Titel eines <i>Capitan poblador</i> und <i>Cabo
-militar</i> des Forts am Cassiquiare an. Dieses Fort bestand
+vollklingenden Titel eines *Capitan poblador* und *Cabo
+militar* des Forts am Cassiquiare an. Dieses Fort bestand
 in ein paar mit Brettern verbundenen Baumstämmen, und
 um die Täuschung vollständig zu machen, sprach man in
 Madrid für die Mission Esmeralda, ein Dörschen von zwölf
-bis fünfzehn Hütten, die Gerechtsame einer <b>Villa</b> an. Es
+bis fünfzehn Hütten, die Gerechtsame einer **Villa** an. Es
 ist zu besorgen, daß Don Apollinario, der in der Folge Statthalter
 der Provinz los Quixos im Königreich Quito wurde,
 bei Entwerfung der Karten von la Cruz und Surville die
@@ -2339,8 +2358,8 @@ die Indianer, die gezwungen »unter der Glocke« lebten.
 Ersteren diente ihr Hochmuth zu weiterer Rechtfertigung ihrer
 Faulheit. In den Missionen nennt sich jeder Farbige, der nicht
 geradezu schwarz ist wie ein Afrikaner oder kupferfarbig wie
-ein Indianer, einen <b>Spanier</b>; er gehört zur <b><i>gente de
-razon</i></b>, zur vernunftbegabten Race, und diese, wie nicht zu
+ein Indianer, einen **Spanier**; er gehört zur ***gente de
+razon***, zur vernunftbegabten Race, und diese, wie nicht zu
 läugnen, hie und da übermüthige und arbeitsscheue Vernunft
 redet den Weißen und denen, die es zu seyn glauben, ein,
 der Landbau sey ein Geschäft für Sklaven, für Poitos, und
@@ -2361,7 +2380,7 @@ Ich erwähnte oben, daß der Vorsteher der Missionen den
 Laienbrüdern, um sie in der Zucht zu halten, zuweilen droht,
 sie nach Esmeralda zu schicken; man wird damit, wie die
 Mönche sagen, »zu den Moskitos verurtheilt, verurtheilt, von
-den summenden Mücken (<i>zancudos gritones</i>) gefressen zu
+den summenden Mücken (*zancudos gritones*) gefressen zu
 werden, die Gott den Menschen zur Strafe erschaffen hat.«
 Einer so seltsamen Strafe unterlagen aber nicht immer nur
 Laienbrüder. Im Jahr 1788 brach in der Ordenswelt eine
@@ -2394,7 +2413,7 @@ Glück für die gestürzte Autorität blieben die meuterischen
 Mönche nicht einig. Einem Missionär vom Cassiquiare wurde
 bange, wie dieser Handel enden sollte; er fürchtete verhaftet
 und nach Cadix geschickt zu werden, oder, wie man in den
-Colonien sagt, <i>baxo partido de registro</i>; aus Angst wurde
+Colonien sagt, *baxo partido de registro*; aus Angst wurde
 er seiner Partei untreu und machte sich unversehens davon.
 Man stellte an der Mündung des Atabapo, bei den großen
 Katarakten, überall wo der Flüchtling auf dem Weg zum
@@ -2406,14 +2425,14 @@ Auftrag, die zu verhaften, mit denen er sich gegen den Präsidenten
 der Missionen verschworen hatte. In Esmeralda, wo
 man von den politischen Stürmen, die seit dreißig Jahren
 das alte Europa erschüttern, noch gar nicht hat sprechen
-hören, ist der sogenannte <i>alboroto de los frailes</i> (die
+hören, ist der sogenannte *alboroto de los frailes* (die
 Meuterei der Mönche) noch immer eine wichtige Begebenheit.
 Hier zu Land, wie im Orient, weiß man nur von Revolutionen,
 die von den Gewalthabern selbst ausgehen, und wir
 haben gesehen, daß sie in ihren Folgen eben nicht sehr bedenklich
 sind.
 
-Wenn die <b>Villa</b> Esmeralda mit ihrer Bevölkerung von
+Wenn die **Villa** Esmeralda mit ihrer Bevölkerung von
 12—15 Familien gegenwärtig für einen schrecklichen Aufenthaltsort
 gilt, so kommt dieß nur vom Mangel an Anbau,
 von der Entlegenheit von allen bewohnten Landstrichen und
@@ -2490,10 +2509,10 @@ Esmeralda ist berühmt als der Ort, wo am besten am
 Orinoco das starke Gift bereitet wird, das im Krieg, zur
 Jagd, und, was seltsam klingt, als Mittel gegen gastrische
 Beschwerden dient. Das Gift der Ticunas am Amazonenstrom,
-das Upas-Tieute auf Java und das <b>Curare</b> in
+das Upas-Tieute auf Java und das **Curare** in
 Guyana sind die tödtlichsten Substanzen, die man kennt.
 Bereits am Ende des sechzehnten Jahrhunderts hatte Ralegh
-das Wort <b>Urari</b> gehört, wie man einen Pflanzenstoff nannte,
+das Wort **Urari** gehört, wie man einen Pflanzenstoff nannte,
 mit dem man die Pfeile vergiftete. Indessen war nichts
 Zuverlässiges über dieses Gift in Europa bekannt geworden.
 Die Missionäre Gumilla und Gili hatten nicht bis in die
@@ -2501,12 +2520,12 @@ Länder kommen können, wo das Curare bereitet wird.
 Gumilla behauptete, »diese Bereitung werde sehr geheim gehalten;
 der Hauptbestandtheil komme von einem unterirdischen
 Gewächs, von einer knolligten Wurzel, die niemals Blätter
-treibe und <i>rais de si misma</i> (die Wurzel an sich) sey;
+treibe und *rais de si misma* (die Wurzel an sich) sey;
 durch die giftigen Dünste aus den Kesseln gehen die alten
-Weiber (die <b>unnützesten</b>), die man zur Arbeit verwende,
+Weiber (die **unnützesten**), die man zur Arbeit verwende,
 zu Grunde; endlich, die Pflanzensäfte erscheinen erst dann
-concentrirt genug, wenn ein paar Tropfen des Safts <b>auf
-eine gewisse Entfernung</b> eine Repulsivkraft auf das
+concentrirt genug, wenn ein paar Tropfen des Safts **auf
+eine gewisse Entfernung** eine Repulsivkraft auf das
 Blut ausüben. Ein Indianer ritzt sich die Haut; man taucht
 einen Pfeil in das flüssige Curare und bringt ihn der Stichwunde
 nahe. Das Gift gilt für gehörig concentrirt, wenn
@@ -2521,10 +2540,10 @@ von oben herab oder von unten herauf vom Stiele reißt?
 
 Als wir nach Esmeralda kamen, kehrten die meisten Indianer
 von einem Ausflug ostwärts über den Rio Padamo
-zurück, wobei sie <b>Juvias</b> oder die Früchte der Bertholletia
+zurück, wobei sie **Juvias** oder die Früchte der Bertholletia
 und eine Schlingpflanze, welche das Curare gibt, gesammelt
 hatten. Diese Heimkehr wurde durch eine Festlichkeit begangen,
-die in der Mission <i>la fiesta de las Juvias</i> heißt und unsern
+die in der Mission *la fiesta de las Juvias* heißt und unsern
 Ernte- und Weinlesefesten entspricht. Die Weiber hatten
 viel gegohrenes Getränke bereitet, und zwei Tage lang sah
 man nur betrunkene Indianer. Bei Völkern, für welche die
@@ -2545,7 +2564,7 @@ Durchseihen. der mehr oder weniger faserigte Substanzen enthaltenden
 Flüssigkeiten. Die größte Ordnung und Reinlichkeit
 herrschten in dieser zum chemischen Laboratorium eingerichteten
 Hütte. Der Indianer, der uns Auskunft ertheilen sollte,
-heißt in der Mission der <b>Giftmeister</b> (<i>amo del Curare</i>);
+heißt in der Mission der **Giftmeister** (*amo del Curare*);
 er hatte das steife Wesen und den pedantischen Ton, den
 man früher in Europa den Apothekern zum Vorwurf machte.
 »Ich weiß,« sagte er, »die Weißen verstehen die Kunst, Seife
@@ -2554,14 +2573,14 @@ daß es Lärm macht und die Thiere verscheucht, wenn man
 sie fehlt. Das Curare, dessen Bereitung bei uns vom Vater
 auf den Sohn übergeht, ist besser als Alles, was ihr dort
 drüben (über dem Meere) zu machen wißt. Es ist der Saft
-einer Pflanze, der <b>ganz leise</b> tödtet (ohne daß man weiß,
+einer Pflanze, der **ganz leise** tödtet (ohne daß man weiß,
 woher der Schuß kommt).«
 
-Diese chemische Operation, auf die der <b>Meister des
-Curare</b> so großes Gewicht legte, schien uns sehr einfach.
-Das Schlinggewächs (<i>bejuco</i>), aus dem man in Esmeralda
+Diese chemische Operation, auf die der **Meister des
+Curare** so großes Gewicht legte, schien uns sehr einfach.
+Das Schlinggewächs (*bejuco*), aus dem man in Esmeralda
 das Gift bereitet, heißt hier wie in den Wäldern bei Javita.
-Es ist der <i>Bejuco de Mavacure</i>, und er kommt östlich
+Es ist der *Bejuco de Mavacure*, und er kommt östlich
 von der Mission am linken Ufer des Orinoco, jenseits des
 Rio Amaguaca im granitischen Bergland von Guanaya und
 Yumariquin in Menge vor. Obgleich die Bejucobündel, die
@@ -2569,7 +2588,7 @@ wir im Hause des Indianers fanden, gar keine Blätter
 mehr hatten, blieb uns doch kein Zweifel, daß es dasselbe
 Gewächs aus der Familie der Strychneen war (Aublets
 Rouhamon sehr nahe stehend), das wir im Wald beim Pimichin
-untersucht. Der <b>Mavacure</b> wird ohne Unterschied
+untersucht. Der **Mavacure** wird ohne Unterschied
 frisch oder seit mehreren Wochen getrocknet verarbeitet. Der
 frische Saft der Liane gilt nicht für giftig; vielleicht zeigt
 er sich nur wirksam, wenn er stark concentrirt ist. Das
@@ -2582,8 +2601,8 @@ die ganze faserigte Masse die nämliche Farbe an. Man bringt
 dieselbe in einen 9 Zoll hohen, 4 Zoll weiten Trichter. Diesen
 Trichter strich der Giftmeister unter allen Geräthschaften des
 indianischen Laboratoriums am meisten heraus. Er fragte
-uns mehreremale, ob wir <i>por alla</i> (dort drüben, das heißt
-in Europa) jemals etwas gesehen hätten, das seinem <i>Embado</i>
+uns mehreremale, ob wir *por alla* (dort drüben, das heißt
+in Europa) jemals etwas gesehen hätten, das seinem *Embado*
 gleiche? Es war ein dütenförmig aufgerolltes Bananenblatt,
 das in einer andern stärkeren Düte aus Palmblättern steckte;
 die ganze Vorrichtung ruhte auf einem leichten Gestell von
@@ -2612,9 +2631,9 @@ worden.
 
 Der noch so stark eingedickte Saft des Mavacure ist nicht
 dick genug, um an den Pfeilen zu haften. Also bloß um
-dem Gift <b>Körper zu geben</b>, setzt man dem eingedickten
+dem Gift **Körper zu geben**, setzt man dem eingedickten
 Ausguß einen andern sehr klebrigten Pflanzensaft bei, der von
-einem Baum mit großen Blättern, genannt <b>Kiracaguero</b>,
+einem Baum mit großen Blättern, genannt **Kiracaguero**,
 kommt. Da dieser Baum sehr weit von Esmeralda wächst,
 und er damals so wenig als der Bejuco de Mavacure Blüthen
 und Früchte hatte, so können wir ihn botanisch nicht bestimmen.
@@ -2643,7 +2662,7 @@ so nothwendig als der Bejuco de Mavacure, so kann man
 auf die falsche Vermuthung kommen, auch ersterer enthalte
 einen schädlichen Stoff, während er nur dazu dient, dem
 eingedickten Curaresaft mehr Körper zu geben (was auch der
-<b>Algarobbo</b> und jede gummiartige Substanz thäten). Der
+**Algarobbo** und jede gummiartige Substanz thäten). Der
 Farbenwechsel der Mischung rührt von der Zersetzung einer
 Verbindung von Kohlenstoff und Wasserstoff her. Der Wasserstoff
 verbrennt und der Kohlenstoff wird frei. Das Curare wird in
@@ -2669,7 +2688,7 @@ dieselbe; es liegt aber kein Beweis vor, daß die verschiedenen
 Gifte, welche unter demselben Namen am Orinoco
 und am Amazonenstrom verkauft werden, identisch sind und
 von derselben Pflanze herrühren. Orfila hat daher sehr wohl
-gethan, wenn er in seiner <i>Toxicologie générale</i> das Woorara
+gethan, wenn er in seiner *Toxicologie générale* das Woorara
 aus holländisch Guyana, das Curare vom Orinoco, das
 Ticuna vom Amazonenstrom und all die Substanzen, welche
 man unter dem unbestimmten Namen »amerikanische Gifte«
@@ -2678,15 +2697,15 @@ in Giftpflanzen aus verschiedenen Gattungen eine gemeinschaftliche
 alkalische Basis, ähnlich dem Morphium im Opium
 und der Vauqueline in den Strychnosarten.
 
-Man unterscheidet am Orinoco zwischen <i>Curare de raiz</i>
-(aus Wurzeln) und <i>Curare de bejuco</i> (aus Lianen oder
+Man unterscheidet am Orinoco zwischen *Curare de raiz*
+(aus Wurzeln) und *Curare de bejuco* (aus Lianen oder
 der Rinde der Zweige). Wir haben nur letzteres bereiten
 sehen; erstens ist schwächer und weit weniger gesucht. Am
 Amazonenstrom lernten wir die Gifte verschiedener Indianerstämme
 kennen, der Ticunas, Yaguas, Pevas und Xibaros,
 die von derselben Pflanze kommen und vielleicht nur mehr
-oder weniger sorgfältig zubereitet sind. Das <i>Toxique des
-Ticunas</i>, das durch La Condamine in Europa so berühmt
+oder weniger sorgfältig zubereitet sind. Das *Toxique des
+Ticunas*, das durch La Condamine in Europa so berühmt
 geworden ist und das man jetzt, etwas uneigentlich, »Ticuna«
 zu nennen anfängt, kommt von einer Liane, die auf der
 Insel Mormorote im obern Maragnon wächst. Dieses Gift
@@ -2707,14 +2726,14 @@ das von la Pera und das von Moyobamba, nicht von derselben
 Art kommen, wahrscheinlich nicht einmal von verwandten
 Gewächsen. So einfach das Curare ist, so langwierig
 und verwickelt ist die Bereitungsweise des Giftes von
-Moyobamba. Mit dem Saft des <b>Bejuco de Ambihuasca</b>,
-dem Hauptingrediens, mischt man Piment (<i>Capsicum</i>),
-Tabak, Barbasco (<i>Jacquinia armillaris</i>), Sanango
-(<i>Tabernaemontana</i>) und die Milch einiger andern Apocyneen.
-Der frische Saft der <b>Ambihuasca</b> wirkt tödtlich, wenn er
-mit dem Blut in Berührung kommt; der Saft des <b>Mavacure</b>
+Moyobamba. Mit dem Saft des **Bejuco de Ambihuasca**,
+dem Hauptingrediens, mischt man Piment (*Capsicum*),
+Tabak, Barbasco (*Jacquinia armillaris*), Sanango
+(*Tabernaemontana*) und die Milch einiger andern Apocyneen.
+Der frische Saft der **Ambihuasca** wirkt tödtlich, wenn er
+mit dem Blut in Berührung kommt; der Saft des **Mavacure**
 wird erst durch Einkochen ein tödtliches Gift, und der
-Saft der Wurzel der <i>Jatropha Manihot</i> verliert durch Kochen
+Saft der Wurzel der *Jatropha Manihot* verliert durch Kochen
 ganz seine schädliche Eigenschaft. Als ich bei sehr großer
 Hitze die Liane, von der das schreckliche Gift von la Pera
 kommt, lange zwischen den Fingern rieb, wurden mir die
@@ -2745,7 +2764,7 @@ das Huhn, das wir speisen sollten, lebend in seine Hängematte
 bringen. Er hätte eine Operation, auf die er trotz
 seines Schwächezustandes ein sehr großes Gewicht legte, keinem
 Andern überlassen mögen. Große Vögel, z.&nbsp;B. ein Guan
-(<i>Pava de monte</i>) oder ein Hocco (<i>Alector</i>) sterben, wenn
+(*Pava de monte*) oder ein Hocco (*Alector*) sterben, wenn
 man sie in den Schenkel sticht, in 2—3 Minuten; bei einem
 Schwein oder Pecari dauert es oft 10—12. Bonpland fand,
 daß dasselbe Gift in verschiedenen Dörfern, wo man es kaufte,
@@ -2788,7 +2807,7 @@ Muskelkraft. Er hatte die Unvorsichtigkeit, das Curare zwischen
 den Fingern zu reiben, nachdem er sich unbedeutend verletzt,
 und stürzte zu Boden, von einem Schwindel ergriffen, der
 eine halbe Stunde anhielt. Zum Glück war es nur schwaches
-(<i>destemplado</i>) Curare, dessen man sich bedient, um sehr
+(*destemplado*) Curare, dessen man sich bedient, um sehr
 kleine Thiere zu schießen, das heißt solche, welche man wieder
 zum Leben bringen will, indem man salzsaures Natron in
 die Wunde reibt. Auf unserer Rückfahrt von Esmeralda
@@ -2800,7 +2819,7 @@ innen zu untersuchen, der voll Curare war, und erst als ich
 den klebrigten Stoff mit der Hand berührte, merkte ich, daß
 ich einen vergifteten Strumpf angezogen hätte. Die Gefahr
 war desto größer, da ich gerade an den Zehen blutete, weil
-mir Sandflöhe (<i>pulex penetrans</i>) schlecht ausgegraben worden
+mir Sandflöhe (*pulex penetrans*) schlecht ausgegraben worden
 waren. Aus diesem Fall mögen Reisende abnehmen, wie
 vorsichtig man seyn muß, wenn man Gift mit sich führt.
 
@@ -2809,7 +2828,7 @@ Gifte der neuen Welt eine schöne Aufgabe für Chemie und
 Physiologie seyn, wenn man sich einmal bei stärkerem Verkehr
 aus den Ländern, wo sie bereitet werden, und so, daß sie
 nicht zu verwechseln sind, all die Gifte verschaffen kann, das
-<i>Curare de Bejuco</i>, das <i>Curare de Raiz</i>, und die 
+*Curare de Bejuco*, das *Curare de Raiz*, und die 
 verschiedenen Sorten vom Amazonenstrom, vom Guallaga und aus
 Brasilien. Da die Chemie die reine Blausäure und so viele
 neue sehr giftige Stoffe entdeckt hat, wird man in Europa
@@ -2826,12 +2845,12 @@ der giftigen Substanzen, die sie aus den Händen anderer
 Völker erhalten, völlig unbekannt. Ueber der Geschichte der
 Gifte und Gegengifte liegt überall der Schleier des Geheimnisses.
 Ihre Bereitung ist bei den Wilden Monopol der
-<b>Piaches</b>, die zugleich Priester, Gaukler und Aerzte sind,
+**Piaches**, die zugleich Priester, Gaukler und Aerzte sind,
 und nur von den in die Missionen versetzten Eingeborenen
 kann man über diese räthselhaften Stoffe etwas Sicheres erfahren.
 Jahrhunderte vergingen, ehe Mutis’ Beobachtungsgeist
-die Europäer mit dem <i>Bejuco del Guaco</i> (<i>Mikania
-Guako</i>) bekannt machte, welch das kräftigste Gegengift gegen
+die Europäer mit dem *Bejuco del Guaco* (*Mikania
+Guako*) bekannt machte, welch das kräftigste Gegengift gegen
 den Schlangenbiß ist und das wir zuerst botanisch beschreiben
 konnten.
 
@@ -2851,7 +2870,7 @@ Pfeile so wenig zu fürchten, als
 die Schläge des Gymnotus, wenn
 man Tabak kaue. Ralegh empfiehlt
 Knoblauchsaft als Gegengift gegen das
-<b>Ourari</b> (Curare).]
+**Ourari** (Curare).]
 Man reibt die Wunde mit dem Salz und nimmt
 es innerlich. Ich selbst kenne keinen gehörig beglaubigten
 Fall, der die Wirksamkeit des Mittels bewiese, und Magendies
@@ -2880,23 +2899,23 @@ Kopf, und der Schwindel nöthigt ihn, sich niederzusetzen;
 sodann Uebelseyn, wiederholtes Erbrechen, brennender Durst
 und das Gefühl von Pelzigtseyn am verwundeten Körpertheil.
 
-Dem alten Indianer, dem <b>Giftmeister</b>, schien es zu
+Dem alten Indianer, dem **Giftmeister**, schien es zu
 schmeicheln, daß wir ihm bei seinem Laboriren mit so großem
 Interesse zusahen. Er fand uns so gescheit, daß er nicht
 zweifelte, wir könnten Seife machen; diese Kunst erschien ihm,
 nach der Bereitung des Curare, als eine der schönsten Erfindungen
 des menschlichen Geistes. Als das flüssige Gift in
 die zu seiner Aufnahme bestimmten Gefässe gegossen war,
-begleiteten wir den Indianer zum <b>Juvias-Feste</b>. Man feierte
-durch Tänze die Ernte der Juvias, der Früchte der <i>Bertholletia
-excelsa</i>, und überließ sich der rohesten Völlerei. In der
+begleiteten wir den Indianer zum **Juvias-Feste**. Man feierte
+durch Tänze die Ernte der Juvias, der Früchte der *Bertholletia
+excelsa*, und überließ sich der rohesten Völlerei. In der
 Hütte, wo die Indianer seit mehreren Tagen zusammenkamen,
 sah es ganz seltsam aus. Es waren weder Tische noch Bänke
 darin, aber große gebratene, vom Rauch geschwärzte Affen
-sah man symmetrisch an die Wand gelehnt. Es waren <b>Marimondas</b>
-(<i>Ateles Belzebuth</i>) und die bärtigen sogenannten
+sah man symmetrisch an die Wand gelehnt. Es waren **Marimondas**
+(*Ateles Belzebuth*) und die bärtigen sogenannten
 Kapuzineraffen, die man nicht mit dem Machi oder Saï (Buffons
-<i>Simia capucina</i>) verwechseln darf. Die Art, wie diese
+*Simia capucina*) verwechseln darf. Die Art, wie diese
 menschenähnlichen Thiere gebraten werden, trägt viel dazu
 bei, wenn ihr Anblick dem civilisirten Menschen so widerwärtig
 ist. Ein kleiner Rost oder Gitter aus sehr hartem Holz wird
@@ -2946,7 +2965,7 @@ Gedanke, der allen Völkern kommen mußte, Rohre von verschiedener
 Länge zu vereinigen und sie nach einander, während
 man sie an den Lippen vorbeiführt, anzublasen. Nicht ohne
 Verwunderung sahen wir, wie rasch junge Indianer, wenn
-sie am Fluß Rohr (<i>carices</i>) fanden, dergleichen Pfeifen
+sie am Fluß Rohr (*carices*) fanden, dergleichen Pfeifen
 schnitten und stimmten. In allen Himmelsstrichen leisten
 diese Gräser mit hohem Halme den Menschen im Naturzustand
 mancherlei Dienste. Die Griechen sagten mit Recht, das
@@ -2965,10 +2984,10 @@ wecken können.
 In der Festhütte fanden wir verschiedene vegetabilische
 Produkte, welche die Indianer aus den Bergen von Guanaya
 mitgebracht und die unsere ganze Aufmerksamkeit in Anspruch
-nahmen. Ich verweile hier nur bei der Frucht des <b>Juvia</b>,
+nahmen. Ich verweile hier nur bei der Frucht des **Juvia**,
 bei den Rohren von ganz ungewöhnlicher Länge und bei den
-Hemden aus der Rinde des <b>Marimabaums</b>. Der <b>Almendron</b>
-oder <b>Juvia</b>, einer der großartigsten Bäume in den
+Hemden aus der Rinde des **Marimabaums**. Der **Almendron**
+oder **Juvia**, einer der großartigsten Bäume in den
 Wäldern der neuen Welt, war vor unserer Reise an den Rio
 Negro so gut wie unbekannt. Vier Tagreisen östlich von
 Esmeralda, zwischen dem Padamo und dem Ocamo am Fuß
@@ -2978,7 +2997,7 @@ beim Cerro Guanaya zwischen dem Rio Amaguaca und dem
 Gehette. Die Einwohner von Esmeralda versicherten uns,
 oberhalb des Gehette und des Chiguire werde der Juvia
 und der Cacaobaum so gemein, daß die wilden Indianer
-(die Guaicas und Guaharibos <b>blancos</b>) die Indianer aus
+(die Guaicas und Guaharibos **blancos**) die Indianer aus
 den Missionen ungestört die Früchte sammeln lassen. Sie
 mißgönnen ihnen nicht, was ihnen die Natur auf ihrem
 eigenen Grund und Boden so reichlich schenkt. Kaum noch
@@ -2997,13 +3016,13 @@ nicht die große Steinfrucht in der Form einer Cocosnuß,
 welche die Mandeln enthält, wohl aber die Samen mit holzigter
 dreieckigter Hülle. Ich erkenne diese auf einer ziemlich
 mangelhaften Zeichnung des Clusius. Dieser Botaniker nennt
-sie <b>Almendras del Peru</b>, vielleicht weil sie als eine sehr
+sie **Almendras del Peru**, vielleicht weil sie als eine sehr
 seltene Frucht an den obern Amazonenstrom und von dort
 über die Cordilleren nach Quito und Peru gekommen waren.
-Jean de Laet’s <i>Novus Orbis</i>, in dem ich die erste Nachricht
+Jean de Laet’s *Novus Orbis*, in dem ich die erste Nachricht
 vom Kuhbaum fand, enthält auch eine Beschreibung und ganz
-richtige Abbildung des Samens der <i>Bertholletia</i>. Laet nennt
-den Baum <b>Totocke</b> und erwähnt der Steinfrucht von der
+richtige Abbildung des Samens der *Bertholletia*. Laet nennt
+den Baum **Totocke** und erwähnt der Steinfrucht von der
 Größe eines Menschenkopfs, welche die Samen enthält. Diese
 Früchte, erzählt er, seyen so ungemein schwer, daß die Wilden
 es nicht leicht wagen, die Wälder zu betreten, ohne Kopf
@@ -3018,7 +3037,7 @@ und vom Amazonenstrom, und man meinte lange, sie wachsen,
 wie die Frucht der Pekea, einzeln auf Fruchtstielen. Die
 Einwohner von Gran-Para treiben seit einem Jahrhundert
 einen ziemlich starken Handel damit. Sie schicken sie entweder
-direkt nach Europa oder nach Cayenne, wo sie <b>Touka</b> heißen.
+direkt nach Europa oder nach Cayenne, wo sie **Touka** heißen.
 Der bekannte Botaniker Correa de Serra sagte uns, der Baum
 sey in den Wäldern bei Macapa an der Mündung des Amazonenstroms
 sehr häufig und die Einwohner sammeln die
@@ -3048,7 +3067,7 @@ fallen sie mit gewaltigem Geräusch vom Baumgipfel. Ich weiß
 nichts, woran einem die wunderbare Kraft des organischen
 Lebens im heißen Erdstrich augenfälliger entgegenträte, als
 der Anblick der mächtigen holzigten Fruchthüllen, z.&nbsp;B. des
-Cocosbaums (<i>Lodoicea</i>) unter den Monocotyledonen, und
+Cocosbaums (*Lodoicea*) unter den Monocotyledonen, und
 der Bertholletia und der Lecythis unter den Dicotyledonen.
 In unsern Klimaten bringen allein die Kürbisarten innerhalb
 weniger Monate Früchte von auffallender Größe hervor; aber
@@ -3057,7 +3076,7 @@ bildet die Bertholletia innerhalb 50 bis 60 Tagen eine
 Fruchthülle, deren holzigter Theil einen halben Zoll dick und mit
 den schärfsten Werkzeugen kaum zu durchsägen ist. Ein bedeutender
 Naturforscher (Richard) hat bereits die Bemerkung
-gemacht, daß das <b>Holz der Früchte</b> meist so hart wird,
+gemacht, daß das **Holz der Früchte** meist so hart wird,
 wie das Holz der Baumstämme nur selten. Die Fruchthülle
 der Bertholletia zeigt die Rudimente von vier Fächern; zuweilen
 habe ich ihrer auch fünf gefunden. Die Samen haben
@@ -3067,8 +3086,8 @@ Saouvari-Arten. Die erste Hülle ist beinartig oder holzigt,
 dreieckigt, außen höckerigt und zimmtfarbig. Vier bis fünf, 
 zuweilen acht solcher dreieckigten Nüsse sind an einer Scheidewand
 befestigt. Da sie sich mit der Zeit ablösen, liegen sie frei in
-der großen kugligten Fruchthülle. Die Kapuzineraffen (<i>Simia
-chiropotes</i>) lieben ungemein die »brasilianischen Kastanien,«
+der großen kugligten Fruchthülle. Die Kapuzineraffen (*Simia
+chiropotes*) lieben ungemein die »brasilianischen Kastanien,«
 und schon das Rasseln der Samen, wenn man die Frucht,
 wie sie vom Baum fällt, schüttelt, macht die Eßlust dieser
 Thiere in hohem Grade rege. Meist habe ich nur 15 bis 22
@@ -3087,8 +3106,8 @@ wohl von selbst. Viele Samen verlieren durch die Zersetzung
 des Oels in den Samenlappen die Keimkraft, bevor in der
 Regenzeit die Holzkapsel der Fruchthülle in Folge der Fäulniß
 aufgeht. Nach einem am untem Orinoco weit verbreiteten
-Mährchen setzen sich die Kapuziner- und Cacajao-Affen (<i>Simia
-chiropotes</i> und <i>Simia melanocephala</i>) im Kreis umher,
+Mährchen setzen sich die Kapuziner- und Cacajao-Affen (*Simia
+chiropotes* und *Simia melanocephala*) im Kreis umher,
 klopfen mit einem Stein auf die Frucht und zerschlagen sie
 wirklich, so daß sie zu den dreieckigten Mandeln kommen
 können. Dieß wäre wegen der ausnehmenden Härte und Dicke
@@ -3098,10 +3117,10 @@ dieselben haben zwar ein kleines Loch, an welches das obere
 Ende des Säulchens befestigt ist, aber die Natur hat es den
 Affen nicht so leicht gemacht, die holzigte Fruchthülle der
 Juvia zu öffnen, wie bei der Lechthis, wo sie den Deckel
-abnehmen, der in den Missionen <i>la tapa</i> (Deckel) <i>del coca
-de monos</i> heißt. Nach der Aussage mehrerer sehr glaubwürdiger
+abnehmen, der in den Missionen *la tapa* (Deckel) *del coca
+de monos* heißt. Nach der Aussage mehrerer sehr glaubwürdiger
 Indianer gelingt es nur den kleinen Nagern, namentlich
-den Agutis (<i>Cavia Aguti</i>, <i>Cavia Paca</i>), vermöge des
+den Agutis (*Cavia Aguti*, *Cavia Paca*), vermöge des
 Baues ihrer Zähne und der unglaublichen Ausdauer, mit
 der sie ihrem Zerstörungswerk obliegen, die Frucht der 
 Bertholletia zu durchbohren. Sobald die dreieckigten Nüsse auf
@@ -3121,7 +3140,7 @@ an dem Stück des obern Orinoco beginnt, das
 im Süden der Gebirge hinläuft. Es ist dieß gewissermaßen
 ein weiterer Beweis dafür, daß hier zwei Flußbecken vereinigt
 sind. Bonpland hat sehr gut auseinandergesetzt, wie
-man zu verfahren hätte, um die <i>Bertholletia excelsa</i> am
+man zu verfahren hätte, um die *Bertholletia excelsa* am
 Ufer des Orinoco, des Apure, des Meta, überhaupt in
 der Provinz Venezuela anzupflanzen. Man müßte da, wo
 der Baum wild wächst, die bereits keimenden Samen zu
@@ -3137,17 +3156,17 @@ werdendem Oel, zum Keimen zu bringen sind. Alle diese
 Schwierigkeiten wären beseitigt, wenn man nur Samen sammelte,
 die unter dem Baum selbst gekeimt haben. Auf diese
 Weise ist es uns gelungen, zahlreiche Exemplare sehr seltener
-Pflanzen, z.&nbsp;B. die <i>Coumarouna odora</i> oder Tongabohne,
+Pflanzen, z.&nbsp;B. die *Coumarouna odora* oder Tongabohne,
 von den Katarakten des Orinoco nach Angostura zu bringen
 und in den benachbarten Pflanzungen zu verbreiten.
 
 Eine der vier Piroguen, mit denen die Indianer auf
 der Juviasernte gewesen waren, war großentheils mit der
-Rohrart (<i>Carice</i>) gefüllt, aus der Blaserohre gemacht werden.
+Rohrart (*Carice*) gefüllt, aus der Blaserohre gemacht werden.
 Die Rohre waren 15 bis 17 Fuß lang, und doch war keine
 Spur von Knoten zum Ansatz von Blättern oder Zweigen
 zu bemerken. Sie waren vollkommen gerade, außen glatt
-und völlig cylindrisch. Diese <b>Carices</b> kommen vom Fuß
+und völlig cylindrisch. Diese **Carices** kommen vom Fuß
 der Berge von Yumariquin und Guanaja. Sie sind selbst
 jenseits des Orinoco unter dem Namen »Rohr von Esmeralda«
 sehr gesucht. Ein Jäger führt sein ganzes Leben dasselbe 
@@ -3159,13 +3178,13 @@ keinem Gewächs aus der Familie der Schirmpflanzen kommen können.]
 seyn, von dem diese herrlichen Rohre kommen? Haben wir
 wirklich die Internodia einer Grasart aus der Sippe der
 Nostoiden vor uns gehabt? oder sollte dieser Carice eine 
-Cyperacea^[Der <i>Caricillo del Manati</i>, der an den Ufern des
+Cyperacea^[Der *Caricillo del Manati*, der an den Ufern des
 Orinoco in Menge wächst, wird 8 bis 12 Fuß lang.] ohne
 Knoten seyn? Ich vermag diese Fragen« nicht zu
 beantworten, so wenig ich weiß, welcher Gattung ein anderes
-Gewächs angehört, von dem die <b>Marimahemden</b> kommen.
+Gewächs angehört, von dem die **Marimahemden** kommen.
 Wir sahen am Abhang des Cerro Duida über 50 Fuß hohe
-Stämme des <b>Hemdbaums</b>. Die Indianer schneiden cylindrische
+Stämme des **Hemdbaums**. Die Indianer schneiden cylindrische
 Stücke von zwei Fuß Durchmesser davon ab und nehmen
 die rothe, faserigte Rinde weg, wobei sie sich in Acht nehmen,
 keinen Längsschnitt zu machen. Diese Rinde gibt ihnen eine
@@ -3174,7 +3193,7 @@ Stoffe gleicht. Durch die obere Oeffnung steckt man den Kopf,
 und um die Arme durchzustecken, schneidet man zur Seite zwei
 Löcher ein. Der Eingeborene trägt diese Marimahemden bei
 sehr starkem Regen; sie haben die Form der baumwollenen
-<b>Ponchos</b> und <b>Ruanas</b>, die in Neu-Grenada, Quito und
+**Ponchos** und **Ruanas**, die in Neu-Grenada, Quito und
 Peru allgemein getragen werden. Da die überschwengliche 
 Freigebigkeit der Natur in diesen Himmelsstrichen für die 
 Hauptursache gilt, warum die Menschen so träge sind, so vergessen
@@ -3195,8 +3214,8 @@ große Stücke gesehen haben. Die noch nicht entwickelten
 Blätter sind mit dem·jungen Stengel verschmolzen, und wir
 haben Cylinder gemessen, die sechs Fuß lang und fünf Zoll
 dick waren. Eine andere, weit nahrhaftere Substanz kommt
-aus dem Thierreich, das <b>Fischmehl</b> (<i>manioc de
-pescado</i>).
+aus dem Thierreich, das **Fischmehl** (*manioc de
+pescado*).
 Ueberall am obern Orinoco braten die Indianer die Fische,
 dörren sie an der Sonne und stoßen sie zu Pulver, ohne die
 Gräten davon zu trennen. Ich sah Quantitäten von 50 bis
@@ -3204,7 +3223,7 @@ Gräten davon zu trennen. Ich sah Quantitäten von 50 bis
 Essen rührt man es mit Wasser zu einem Teige an. Unter
 allen Klimaten, wo es viele Fische gibt, ist man auf dieselben
 Mittel zur Aufbewahrung derselben gekommen. So beschreiben
-Plinius und Diodor von Sicilien das <b>Fischbrod</b> der
+Plinius und Diodor von Sicilien das **Fischbrod** der
 Ichthyophagen^[Diese Völker, die noch roher
 waren, ais die Eingeborenen am Orinoco,
 dörrten geradezu die frischen Fische
@@ -3244,9 +3263,9 @@ erachtet, durch etwas schärfere Mittel die Leidenschaften
 niederzuschlagen weiß. Bei den Tamanacas ist eine gewisse
 Ungleichheit unter den Weibern hinsichtlich ihrer Rechte durch
 den Sprachgebrauch bezeichnet. Der Mann nennt die zweite
-und dritte Frau <b>Gefährtinnen</b> der ersten; die erste
-behandelt die <b>Gefährtinnen</b> als Nebenbuhlerinnen und
-<b>Feinde</b> (<i>ipucjatoje</i>), was allerdings nicht so höflich
+und dritte Frau **Gefährtinnen** der ersten; die erste
+behandelt die **Gefährtinnen** als Nebenbuhlerinnen und
+**Feinde** (*ipucjatoje*), was allerdings nicht so höflich
 ist, aber wahrer und ausdrucksvoller. Da alle Last der Arbeit
 auf den unglücklichen Weibern liegt, so ist es nicht zu 
 verwundern, daß bei manchen Nationen ihre Anzahl auffallend
@@ -3260,7 +3279,7 @@ will, und die andern zu verstoßen. Der Moment der
 Trennung ist nun der kritische; der Neubekehrte findet, daß
 seine Weiber doch höchst schätzbare Eigenschaften haben: die
 eine versteht sich gut auf die Gärtnerei, die andere weiß
-<b>Chiza</b> zu bereiten, das berauschende Getränk aus der 
+**Chiza** zu bereiten, das berauschende Getränk aus der 
 Maniocwurzel; eine erscheint ihm so unentbehrlich wie die andere.
 Zuweilen siegt beim Indianer das Verlangen, seine Weiber
 zu behalten, über die Neigung zum Christenthum; meist aber
@@ -3276,7 +3295,7 @@ den früheren völlig ab. Ich beginne die Beschreibung dieser
 Länder mit dem Granitstock des Duida, an dessen Fuße wir
 weilten. Derselbe wird im Westen vom Rio Tamatama, im
 Osten vom Rio Guapo begrenzt. Zwischen diesen beiden
-Nebenflüssen des Orinoco, durch die <b>Morichales</b> oder die
+Nebenflüssen des Orinoco, durch die **Morichales** oder die
 Gebüsche von Mauritiapalmen, die Esmeralda umgeben, kommt
 der Rio Sodomoni herab, vielberufen wegen der vortrefflichen
 Ananas, die an seinen Ufern wachsen. Am 22. Mai maß
@@ -3369,14 +3388,14 @@ Orinoco und Amazonenstrom der beherrschende Punkt. Diese
 Berge fallen gegen Nordwest, gegen den Puruname, noch
 rascher ab als gegen Ost, gegen den Padamo und den Rio
 Ocamo. In der ersteren Richtung sind die höchsten Gipfel
-nach dem Duida der <b>Cuneva</b>, an den Quellen des Rio
-Paru (eines Nebenflusses des Ventuari), der <b>Sipapo</b>, der
-<b>Calitamini</b>, der mit dem <b>Cunavami</b> und dem <b>Pic
-Uniana</b> zu Einer Gruppe gehört. Ostwärts vom Duida zeichnen
+nach dem Duida der **Cuneva**, an den Quellen des Rio
+Paru (eines Nebenflusses des Ventuari), der **Sipapo**, der
+**Calitamini**, der mit dem **Cunavami** und dem **Pic
+Uniana** zu Einer Gruppe gehört. Ostwärts vom Duida zeichnen
 sich durch ihre Höhe aus, am rechten Ufer des Orinoco der
-<b>Maravaca</b> oder die Sierra Maraguaca zwischen dem Rio
+**Maravaca** oder die Sierra Maraguaca zwischen dem Rio
 Caurimoni und dem Padamo, auf dem linken Ufer die Berge
-von <b>Guanaja</b> und <b>Yumariquin</b> zwischen den Flüssen
+von **Guanaja** und **Yumariquin** zwischen den Flüssen
 Amaguaca und Gehette. Ich brauche kaum noch einmal zu
 bemerken, daß die Linie, welche über diese hohen Gipfel
 läuft (wie in den Pyrenäen, den Karpathen und so vielen
@@ -3429,21 +3448,21 @@ hat zu der Fabel vom Zusammenhang des Jdapa mit dem
 obern Orinoco Anlaß gegeben. Der Rio Mavaca steht mit
 einem See in Verbindung, an dessen Ufer die Portugiesen,
 ohne Vorwissen der Spanier in Esmeralda, vom Rio Negro
-her kommen, um die aromatischen Samen des <i>Laurus Pucheri</i>
-zu sammeln, die im Handel als <b>Pichurimbohne</b>
-und <b>Toda Specie</b> bekannt sind. Zwischen den Mündungen
+her kommen, um die aromatischen Samen des *Laurus Pucheri*
+zu sammeln, die im Handel als **Pichurimbohne**
+und **Toda Specie** bekannt sind. Zwischen den Mündungen
 des Padamo und des Mavaca nimmt der Orinoco von Nord
 her den Ocamo aus, in den sich der Rio Matacona ergießt.
 An den Quellen des letzteren Flusses wohnen die Guainares,
 die lange nicht so stark kupferfarbig oder braun sind als die
 übrigen Bewohner dieser Länder. Dieser Stamm gehört zu
-denen, welche bei den Missionären <i>Indios blancas</i> heißen,
+denen, welche bei den Missionären *Indios blancas* heißen,
 und über die ich bald mehr sagen werde. An der Mündung
 des Ocamo zeigt man den Reisenden einen Fels, der im
 Lande für ein Wunder gilt. Es ist ein Granit, der in Gneiß
 übergeht, ausgezeichnet durch die eigenthümliche Vertheilung
 des schwarzen Glimmers, der kleine verzweigte Adern bildet.
-Die Spanier nennen den Fels <i>piedra mapaya</i> (Landkartenstein).
+Die Spanier nennen den Fels *piedra mapaya* (Landkartenstein).
 
 Ueber dem Einfluß des Mavaca nimmt der Orinoco an
 Breite und Tiefe auf einmal ab. Sein Lauf wird sehr gekrümmt,
@@ -3460,14 +3479,14 @@ herum, wo man die Früchte der Bertholletia sammelt. Von
 den Bergen gegen Nord, deren Höhe vom Cerro Maraguaca
 an allmählich abnimmt, kommt der Rio Manaviche herab. Je
 weiter man auf dem Orinoco hinaufkommt, desto häufiger werden
-die Krümmungen und die kleinen Stromschnellen (<i>chorros
-y remolinos</i>). Man läßt links den Caño Chiguire, an dem
+die Krümmungen und die kleinen Stromschnellen (*chorros
+y remolinos*). Man läßt links den Caño Chiguire, an dem
 die Guaicas, gleichfalls ein Stamm weißer Indianer, wohnen,
 und zwei Meilen weiter kommt man zur Mündung des
 Gehette, wo sich ein großer Katarakt befindet. Ein Damm
 von Granitfelsen läuft über den Orinoco; dieß sind die Säulen
 des Hercules, über die noch kein Weißer hinausgekommen
-ist. Dieser Punkt, der sogenannte <i>Raudal de Guaharibos</i>,
+ist. Dieser Punkt, der sogenannte *Raudal de Guaharibos*,
 scheint ¾ Grad ostwärts von Esmeralda, also unter 67°38′
 der Länge zu liegen. Durch eine militärische Expedition, die
 der Commandant von San Carlos, Don Francisco Bovadilla,
@@ -3477,7 +3496,7 @@ Er hatte erfahren, daß Neger, welche in holländisch
 Guyana entsprungen, nach West (über die Landenge zwischen
 den Quellen des Rio Carony und des Rio Branco hinaus) gelaufen
 seyen und sich zu unabhängigen Indianern gesellt haben.
-Er unternahm eine <i>Entrada</i> (Einfall) ohne Erlaubniß des
+Er unternahm eine *Entrada* (Einfall) ohne Erlaubniß des
 Statthalters; der Wunsch, afrikanische Sklaven zu bekommen,
 die zur Arbeit besser taugen als die kupferfarbigen Menschen,
 war dabei ungleich stärker im Spiel, als der Eifer für die
@@ -3504,7 +3523,7 @@ hinaufzugehen.
 
 Die Guaharibos blancos haben über den Katarakt aus
 Lianen eine Brücke geschlagen, die an den Felsen befestigt
-ist, welche sich, wie meistens in den <b>Pongos</b>
+ist, welche sich, wie meistens in den **Pongos**
 im obern Maragnon,
 mitten aus dem Flußbett erheben. Diese Brücke, die
 sämmtliche Einwohner in Esmeralda wohl kennen, scheint zu
@@ -3512,7 +3531,7 @@ beweisen, daß der Orinoco an dieser Stelle bereits ziemlich
 schmal ist. Die Indianer geben seine Breite meist nur zu
 200—300 Fuß an; sie behaupten, oberhalb des Raudals
 der Guaharibos sey der Orinoco kein Fluß mehr, sondern ein
-<i>Riachuelo</i> (ein Bergwasser), wogegen ein sehr unterrichteter
+*Riachuelo* (ein Bergwasser), wogegen ein sehr unterrichteter
 Geistlicher, Fray Juan Gonzales, der das Land besucht hat,
 mich versicherte, da, wo man den weiteren Lauf des Orinoco
 nicht mehr kenne, sey er immer noch zu zwei Drittheilen so
@@ -3536,7 +3555,7 @@ schöne Art Saussurit (den Amazonenstein), von dem oben die
 Rede war, gefunden haben. Es ist dieß eine sehr zweifelhafte
 Geschichte, und die Indianer, die ich darüber befragt,
 versicherten mich, die grünen Steine, die man in Esmeralda
-<i>Piedras de Macagua</i> nennt, seyen von den Guaicas und
+*Piedras de Macagua* nennt, seyen von den Guaicas und
 Guaharibos gekauft, die mit viel weiter ostwärts lebenden
 Horden Handel treiben. Es geht mit diesen Steinen, wie
 mit so vielen andern kostbaren Produkten beider Indien.
@@ -3555,18 +3574,18 @@ noch Don Antonio Santos, dessen Reisetagebuch mir zu Gebot
 stand, den Amazonenstein auf der Lagerstätte gesehen, und es
 ist eine ganz grundlose, obgleich in Angostura stark verbreitete
 Meinung, dieser Stein komme in weichem, teigigtem Zustand
-aus dem kleinen See Amucu, aus dem man die <b>Laguna
-del Dorado</b> gemacht hat. So ist denn in diesem östlichen
+aus dem kleinen See Amucu, aus dem man die **Laguna
+del Dorado** gemacht hat. So ist denn in diesem östlichen
 Strich von Amerika noch eine schöne geognostische Entdeckung
 zu machen, nämlich im Urgebirg ein Euphotidgestein (Gabbro)
-aufzufinden, das die <i>Piedra de Macagna</i> enthält.
+aufzufinden, das die *Piedra de Macagna* enthält.
 
 Ich gebe hier einigen Aufschluß über die Indianerstämme
 von weißlichter Hautfarbe und sehr kleinem Wuchs, die alte
 Sagen seit Jahrhunderten an die Quellen des Orinoco setzen.
 Ich hatte Gelegenheit, in Esmeralda einige zu sehen, und
 kann versichern, daß man die Kleinheit der Guaicas und die
-Weiße der Guaharibos, die Pater Caulin <i>Guaribos blancos</i>
+Weiße der Guaharibos, die Pater Caulin *Guaribos blancos*
 nennt, in gleichem Maasse übertrieben hat. Die Guaicas,
 die ich gemessen, messen im Durchschnitt 4&nbsp;Fuß 7&nbsp;Zoll bis
 4&nbsp;Fuß 8&nbsp;Zoll (nach altem französischem Maß). Man 
@@ -3595,8 +3614,8 @@ Die einen meinen, Holländer aus Surinam und vom Rio
 Essequebo mögen sich mit Guaharibos und Guainares vermischt
 haben; andere behaupten aus Haß gegen die Kapuziner
 am Carony und die Observanten am Orinoco, diese weißlichten
-Indianer seyen, was man in Dalmatien <i>Muso di
-frate</i> nennt, Kinder, deren eheliche Geburt einigem Zweifel
+Indianer seyen, was man in Dalmatien *Muso di
+frate* nennt, Kinder, deren eheliche Geburt einigem Zweifel
 unterliegt. In beiden Fällen wären die Indios blancos
 Mestizen, Abkömmlinge einer Indianerin und eines Weißen.
 Ich habe aber Tausende von Mestizen gesehen und kann behaupten,
@@ -3614,7 +3633,7 @@ weit weniger dunkle Hautfarbe. Nach diesen Bemerkungen
 braucht man den weiten Weg vom obern Orinoco zum Küstenland,
 auf dem die Holländer sich niedergelassen, gar nicht in
 Anschlag zu bringen. Ich läugne nicht, daß man Abkömmlinge
-entlaufener Neger (<i>negros alzados de palenque</i>) unter
+entlaufener Neger (*negros alzados de palenque*) unter
 den Caraiben an den Quellen des Essequebo gefunden haben
 mag; aber niemals ist ein Weißer von den Ostküsten so tief
 in Guyana hinein, an den Rio Gehette und an den Ocamo
@@ -3631,11 +3650,11 @@ dunkelfarbigsten (man könnte fast sagen die schwärzesten)
 Spielarten der amerikanischen Race sind die Otomaken und
 die Guamos, und
 sie haben vielleicht zu den verworrenen
-Vorstellungen von <b>amerikanischen
-Negern</b>, die in der ersten Zeit der
+Vorstellungen von **amerikanischen
+Negern**, die in der ersten Zeit der
 Eroberung in Europa verbreitet waren,
-Anlaß gegeben. Was waren die <i>Negros
-de Quareca</i>, die Gomara auf
+Anlaß gegeben. Was waren die *Negros
+de Quareca*, die Gomara auf
 denselben Isthmus von Panama versetzt,
 woher uns zuerst die albernen
 Geschichten von einem Volk von Albinos
@@ -3673,7 +3692,7 @@ ja auch in Europa zwischen den städtischen Handwerkern und
 den Landbauern oder Küstenfischern vorkommt, erklärt keineswegs
 das Phänomen der Indios blancos, die Existenz von
 Indianerstämmen mit einer Haut wie die der Mestizen. Dieselben
-sind von andern Waldindianern (<i>Indios del monte</i>)
+sind von andern Waldindianern (*Indios del monte*)
 umgeben, die, obgleich ganz den nämlichen physischen Einflüssen
 ausgesetzt, braunroth sind. Die Ursachen dieser Erscheinungen
 liegen in der Zeit sehr weit rückwärts, und wir
@@ -3685,14 +3704,14 @@ einen Strich des Berglandes zwischen den Quellen von sechs
 Nebenflüssen des Orinoco, des Padamo, Jao, Ventuari, Erevato,
 Aruy und Paragua. Bei den spanischen und portugiesischen
 Missionären heißt dieses Land gemeiniglich die
-<b>Parime</b>. Hier, wie in verschiedenen andern Ländern von
+**Parime**. Hier, wie in verschiedenen andern Ländern von
 spanisch Amerika, haben die Wilden wieder erobert, was die
 Civilisation oder vielmehr die Missionäre, die nur die Vorläufer
 der Civilisation sind, ihnen abgerungen. Solanos
 Grenzexpedition und der abenteuerliche Eifer, mit dem ein
 Statthalter von Guyana^[Don Manuel Centurion,
-<i>Governador y Comendante general de
-la Guayana</i> von 1766—1777.] den Dorado suchte, hatten in der
+*Governador y Comendante general de
+la Guayana* von 1766—1777.] den Dorado suchte, hatten in der
 zweiten Hälfte des achtzehnten Jahrhunderts den Unternehmungsgeist
 wieder wach gerufen, der die Castilianer bei der
 Entdeckung von Amerika beseelte. Man hatte am Rio Padamo
@@ -3704,11 +3723,11 @@ Zwei verständige, beherzte Männer, Don Antonio Santos und
 der Capitän Bareto, hatten mit Hülfe der Maquiritares auf
 dieser Linie von Esmeralda an den Rio Erevato eine militärische
 Postenkette angelegt; dieselbe bestand aus zweistockigten,
-mit Steinböllern besetzten Häusern (<i>casas fuertes</i>), wie ich
+mit Steinböllern besetzten Häusern (*casas fuertes*), wie ich
 sie oben beschrieben und die auf den Karten, die zu Madrid
 herauskamen, als neunzehn Dörfer figurirten. Die sich selbst
 überlassenen Soldaten bedrückten in jeder Weise die Indianer,
-die ihre Pflanzungen bei den <i>Casas fuertes</i> hatten, und da
+die ihre Pflanzungen bei den *Casas fuertes* hatten, und da
 diese Plackereien nicht so methodisch waren, das heißt nicht
 so gut in einander griffen, wie die in den Missionen, an die
 sich die Indianer nach und nach gewöhnen, so verbündeten
@@ -3795,7 +3814,7 @@ Das portugiesische Fort San Joaquim, am linken Ufer des
 Rio Branco beim Einfluß des Tacutu, wäre ein weiterer
 günstig gelegener Ausgangspunkt; ich empfehle ihn, weil ich
 nicht weiß, ob die Mission Santa Rosa, die vom Statthalter
-Don Manuel Centurion, als die <b>Ciudad</b> Guirior angelegt
+Don Manuel Centurion, als die **Ciudad** Guirior angelegt
 wurde, weiter nach West am Ufer des Urariapara gegründet
 worden, nicht bereits wieder eingegangen ist. Verfolgte man
 den Lauf des Paragua westwärts vom Destacamento oder
@@ -3825,8 +3844,8 @@ zu gelangen. Selbst solche, die an Unabhängigkeit und Vereinzelung
 zäh festhalten und es verschmähen, sich »vom Glockenklang
 regieren zu lassen,« sind erfreut, wenn ein benachbarter
 Missionär sie besucht. Ohne die Bedrückungen der Soldaten
-und die feindlichen Einfälle der Mönche, ohne die <i>entradas</i>
-und <i>conquistas apostolicas</i>, hätten sich die Eingeborenen
+und die feindlichen Einfälle der Mönche, ohne die *entradas*
+und *conquistas apostolicas*, hätten sich die Eingeborenen
 nicht von den Ufern des Stroms weggezogen. Gäbe man
 das unvernünftige System auf, die Klosterzucht in den Wäldern
 und Savanen Amerikas einführen zu wollen, ließe man
@@ -3853,8 +3872,8 @@ der Küste entlegensten gegenwärtig am meisten verwahrlost
 sind. Die Ordensleute leben dort im tiefsten Elend. Allein
 von der Sorge für den täglichen Unterhalt befangen, beständig
 darauf bedacht, auf eine Mission versetzt zu werden, die näher
-bei der civilisirten Welt liegt, das heißt bei <b>weißen und
-vernünftigen Leuten,</b>^[S. Bd. III. Seite 320.]
+bei der civilisirten Welt liegt, das heißt bei **weißen und
+vernünftigen Leuten,**^[S. Bd. III. Seite 320.]
 kommen sie nicht leicht in Versuchung,
 weiter ins Land zu dringen. Es wird rasch vorwärts
 gehen, sobald man (nach dem Vorgang der Jesuiten)
@@ -3877,7 +3896,7 @@ diese euch den Weg nach Westen gewiesen haben!«
 Unsere Pirogue war erst gegen drei Uhr Abends bereit
 uns aufzunehmen. Während der Fahrt auf dem Cassiquiare
 hatten sich unzählige Ameisen darin eingenistet und nur mit
-Mühe säuberte man davon den <b>Toldo</b>, das Dach aus 
+Mühe säuberte man davon den **Toldo**, das Dach aus 
 Palmblättern, unter dem wir nun wieder zwei und zwanzig Tage
 lang ausgestreckt liegen sollten. Einen Theil des Vormittags
 verwendeten wir dazu, um die Bewohner von Esmeralda
@@ -3885,10 +3904,10 @@ nochmals über einen See auszufragen, der gegen Ost liegen
 sollte. Wir zeigten den alten Soldaten, die in der Mission
 seit ihrer Gründung lagen, die Karten von Surville und la
 Cruz. Sie lachten über die angebliche Verbindung zwischen
-dem Orinoco und dem Rio Idapa und über das <b>weiße
-Meer</b>, durch das ersterer Fluß laufen soll. Was wir höflich
+dem Orinoco und dem Rio Idapa und über das **weiße
+Meer**, durch das ersterer Fluß laufen soll. Was wir höflich
 Fictionen der Geographen nennen, hießen sie »Lügen von dort
-drüben« (<i>mentiras de por allá</i>). Die guten Leute konnten
+drüben« (*mentiras de por allá*). Die guten Leute konnten
 nicht begreifen, wie man von Ländern, in denen man nie
 gewesen, Karten machen kann, und aufs genaueste Dinge
 wissen will, wovon man an Ort und Stelle gar nichts weiß.
@@ -3934,7 +3953,7 @@ Erörterung hier nicht weiter; ich werde in der
 Folge zeigen, wie die Verstöße auf den neuen Karten von
 der Sitte herrühren, sie den alten nachzuzeichnen, wie Trageplätze
 für Flußverzweigungen gehalten wurden, wie man
-Flüsse, die bei den Indianern <b>große Wasser</b> heißen, in
+Flüsse, die bei den Indianern **große Wasser** heißen, in
 Seen verwandelte, wie man zwei dieser Seen (den Cassipa
 und den Parime) seit dem sechzehnten Jahrhundert verwechselte
 und hin und her schob, wie man endlich in den Namen der
@@ -3989,7 +4008,7 @@ war der Himmel wolkenlos und kein Wind deutete auf Regen.
 Man muß in diesen Ländern selbst gelebt haben, um zu begreifen,
 in welchem Maße dieses plötzliche Verschwinden der
 Insekten überraschen mußte. Man wünschte einander Glück,
-man fragte sich, ob diese <i>Felicidad</i>, dieses <i>Alivio</i>
+man fragte sich, ob diese *Felicidad*, dieses *Alivio*
 (Erleichterung) wohl von Dauer seyn könne. Nicht lange aber, und
 statt des Augenblickes zu genießen, fürchtete man sich vor
 selbstgemachten Schreckbildern; man bildete sich ein, die Ordnung
@@ -4081,12 +4100,12 @@ erreichen. Buenos Ayres führte früher
 die bei den Pelzhändlern in Europa
 »große Pantherfelle« heißen.] Sie sind in dieser Gegend
 zwischen dem Cerro Maraguaca, dem Unturan und den Ufern
-des Pamoni ungemein häufig. Hier kommt auch der <b>schwarze
-Tiger</b>^[Gmelin zählt dieses Thier
-unter dem Namen <i>Felis discolor</i> auf.
+des Pamoni ungemein häufig. Hier kommt auch der **schwarze
+Tiger**^[Gmelin zählt dieses Thier
+unter dem Namen *Felis discolor* auf.
 Es ist nicht zu verwechseln mit dem großen
-amerikanischen Löwen, <i>Felis
-concolor</i>, der vom kleinen Löwen
+amerikanischen Löwen, *Felis
+concolor*, der vom kleinen Löwen
 (Puma) der Anden von Quito sehr verschieden ist.] vor,
 von dem ich in Esmeralda schöne Felle gesehen.
 Dieses Thier ist wegen seiner Stärke und Wildheit vielberufen
@@ -4098,7 +4117,7 @@ den gemeinen Jaguars und »sind eine andere Race.« Ich
 glaube Prinz Maximilian von Neuwied, der die Zoologie von
 Amerika mit so vielen wichtigen Beobachtungen bereichert hat,
 ist weiter nach Süd, im heißen Landstrich von Brasilien ebenso
-berichtet worden. In Paraguay sind <b>Albinos</b> von Jaguars
+berichtet worden. In Paraguay sind **Albinos** von Jaguars
 vorgekommen; denn diese Thiere, die man den schönen amerikanischen
 Panther nennen könnte, haben zuweilen so blasse
 Flecken, daß man sie auf dem ganz weißen Grunde kaum
@@ -4173,8 +4192,8 @@ auf Alles, was ihm unterwegs
 vorkommt, mit Geringschätzung
 zu blicken scheint.] bevor er an den
 See Amucu kam, »Felsen, bedeckt
-mit Figuren oder (wie er sich portugiesisch ausdrückt) <i>varias
-letras</i>.« Dieses Wort <b>Buchstaben</b>
+mit Figuren oder (wie er sich portugiesisch ausdrückt) *varias
+letras*.« Dieses Wort **Buchstaben**
 haben wir nicht in seinem
 eigentlichen Sinn zu nehmen. Man hat auch uns am
 Felsen Culimacari am Ufer des Cassiquiare und im Hafen
@@ -4203,11 +4222,11 @@ zwischen dem Cerro Curiquima und dem Ufer des Caura
 das Granitgestein zu Tage kommt. Die Völker von tamanakischem
 Stamm, die alten Bewohner dieses Landes, haben eine
 lokale Mythologie, Sagen, die sich auf diese Felsen mit
-Bildern beziehen. <b>Amalivaca</b>, der Vater der Tamanaken,
+Bildern beziehen. **Amalivaca**, der Vater der Tamanaken,
 das heißt der Schöpfer des Menschengeschlechts (jedes Volk
 hält sich für den Urstamm der andern Völker), kam in einer
 Barke an, als sich bei der großen Ueberschwemmung, welche
-die »Wasserzeit«^[Es ist dieß das <b>Atonatiuh</b>
+die »Wasserzeit«^[Es ist dieß das **Atonatiuh**
 der Mexicaner, das vierte Zeitalter,
 die vierte Erneuerung der Welt.] heißt,
 die Wellen des Oceans mitten
@@ -4219,15 +4238,15 @@ genannt, flüchteten.^[S. Bd. III. Seite 61.]
 Dieser Berg ist der Ararat der arameischen
 oder semitischen Völker, der Tlaloc oder Colhuacan
 der Mexicaner. Amalivaca fuhr in seiner Barke herum und
-grub die Bilder von Sonne und Mond auf den <b>gemalten
-Fels</b> (Tepumereme) an der Encaramada. Granitblöcke, die
+grub die Bilder von Sonne und Mond auf den **gemalten
+Fels** (Tepumereme) an der Encaramada. Granitblöcke, die
 sich gegen einander lehnen und eine Art Höhle bilden, heißen
 noch heute das Haus des großen Stammvaters der Tamanaken.
 Bei dieser Höhle auf den Ebenen von Maita zeigt
 man auch einen großen Stein, der, wie die Indianer sagen,
-ein musikalisches Instrument Amalivacas, seine <b>Trommel</b>,
+ein musikalisches Instrument Amalivacas, seine **Trommel**,
 war. Wir erwähnen bei dieser Gelegenheit, daß dieser Heros
-einen Bruder, <b>Vochi</b>, hatte, der ihm zur Hand ging, als
+einen Bruder, **Vochi**, hatte, der ihm zur Hand ging, als
 er der Erdoberfläche ihre jetzige Gestalt gab. Die beiden
 Brüder, so erzählen die Tamanaken, wollten bei ihren eigenen
 Vorstellungen von Perfektibilität den Orinoco zuerst so legen,
@@ -4242,12 +4261,12 @@ besaß Töchter, die große Neigung zum Umherziehen hatten;
 die Sage erzählt, ohne Zweifel im bildlichen Sinne, er habe
 ihnen die Beine zerschlagen, damit sie an Ort und Stelle
 bleiben und die Erde mit Tamanaken bevölkern müßten
-Nachdem er in Amerika, diesseits des <b>großen Wassers</b>,
+Nachdem er in Amerika, diesseits des **großen Wassers**,
 Alles in Ordnung gebracht, schiffte sich Amalivaca wieder ein
-und fuhr <b>ans andere Ufer</b> zurück an den Ort, von dem
+und fuhr **ans andere Ufer** zurück an den Ort, von dem
 er gekommen. Seit die Eingeborenen Missionäre zu sich
 kommen sehen, denken sie, dieses »andere Ufer« sey Europa,
-und einer fragte Pater Gili naiv, ob er <b>dort drüben</b> den
+und einer fragte Pater Gili naiv, ob er **dort drüben** den
 großen Amalivaca gesehen habe, den Vater der Tamanaken,
 der auf die Felsen symbolische Figuren gezeichnet.
 
@@ -4264,12 +4283,12 @@ verwandte Sprachen haben, uns jetzt erzählen, ist ihnen ohne
 Zweifel von andern Völkern überliefert, die vor ihnen dasselbe
 Land bewohnt haben. Der Name Amalivaca ist über einen
 Landstrich von mehr als 5000 Quadratmeilen verbreitet; er
-kommt mit der Bedeutung <b>Vater der Menschen</b> (unser
-<b>Urvater</b>) selbst bei den caraibischen Völkern vor, deren
+kommt mit der Bedeutung **Vater der Menschen** (unser
+**Urvater**) selbst bei den caraibischen Völkern vor, deren
 Sprache mit dem Tamanakischen nur verwandt ist wie das
 Deutsche mit dem Griechischen, dem Persischen und dem
-Sanskrit. Amalivaca ist ursprünglich nicht der <b>große Geist</b>,
-der <b>Alte im Himmel</b>, das unsichtbare Wesen, dessen Verehrung
+Sanskrit. Amalivaca ist ursprünglich nicht der **große Geist**,
+der **Alte im Himmel**, das unsichtbare Wesen, dessen Verehrung
 aus der Verehrung der Naturkräfte entspringt, wenn
 in den Völkern allmahlig das Bewußtsein: der Einheit dieser
 Kräfte erwacht; er ist vielmehr eine Person aus dem heroischen
@@ -4279,7 +4298,7 @@ Zeichen in die Felsen gegraben hat und, wieder verschwunden
 ist, weil er sich zum Land über dem Weltmeer, wo er früher
 gewohnt, wieder zurückgewendet. Der Anthropomorphismus
 bei der Gestaltung der Gottheit hat zwei gerade entgegengesetzte
-Quellen,^[<b>Creuzer</b>, Symbolik, III. 89.] und
+Quellen,^[**Creuzer**, Symbolik, III. 89.] und
 dieser Gegensatz scheint nicht sowohl auf
 dem verschiedenen Grade der Geistesbildung zu beruhen, als
 darauf, daß manche Völker von Natur mehr zur Mystik
@@ -4307,14 +4326,14 @@ genannt Tlalpallan. Als der Mönch Bernhard von Sahagun
 nach Mexico kam, richtete man genau dieselben Fragen an
 ihn, wie zweihundert Jahre später in den Wäldern am
 Orinoco an den Missionär Gili: man wollte wissen, ob er
-vom <b>andern Ufer</b> komme, aus dem Lande, wohin Quetzalcohuatl
+vom **andern Ufer** komme, aus dem Lande, wohin Quetzalcohuatl
 gegangen.
 
 Wir haben oben gesehen, daß die Region der Felsen mit
-Bildwerk oder der <b>gemalten Steine</b> weit über den untern
+Bildwerk oder der **gemalten Steine** weit über den untern
 Orinoco, über den Landstrich (7°5′—7°40′ der Breite,
 68°50′—69°45′ der Länge) hinausreicht, dem die Sage
-angehört, die man als den <b>Localmythus</b> der Tamanaken
+angehört, die man als den **Localmythus** der Tamanaken
 bezeichnen kann. Man findet dergleichen Felsen mit Bildern
 zwischen dem Cassiquiare und Atabapo (2°5′—3°20′ der
 Breite, 69°—70° der Länge), zwischen den Quellen des Essequebo
@@ -4397,7 +4416,7 @@ denken, die Indianer zu kleiden, ihnen einiges Ackergeräthe
 anzuschaffen und für ihre Kinder eine Schule einzurichten.
 In den Savanen bei der Mission läuft wohl einiges Vieh,
 man braucht es aber selten, um die Mühle zum Auspressen
-des Zuckerrohrs (<i>trapiche</i>) zu treiben; das ist ein Geschäft
+des Zuckerrohrs (*trapiche*) zu treiben; das ist ein Geschäft
 der Indianer, die dabei ohne Lohn arbeiten, wie überall,
 wo die Arbeit auf Rechnung der Kirche geht. Am Fuß der
 Berge um Santa Barbara herum sind die Weiden nicht so
@@ -4426,7 +4445,7 @@ Cuneva, entspringen. Weiter oben, von West her, kommen
 der Mariata und der Manipiare, an denen die Macos- und
 Curacicanas-Indianer wohnen. Letztere Nation zeichnet sich
 durch ihren Eifer für den Baumwollenbau aus. Bei einem
-Streifzug (<i>entrada</i>) fand man ein großes Haus, in dem
+Streifzug (*entrada*) fand man ein großes Haus, in dem
 30—40 sehr fein gewobene Hängematten, gesponnene Baumwolle,
 Seilwerk und Fischereigeräthe waren. Die Eingeborenen
 waren davongelaufen und Pater Valor erzählte uns, »die
@@ -4530,7 +4549,7 @@ fast überall in der neuen Welt weltliche und geistliche Macht
 mit einander liegen, doch wohl von keinem großen Gewichte
 seyn. Ich gab ihm zu verstehen, da ich zweihundert Meilen
 von der Küste, mitten in den Missionen und, wie die Cumaner
-boshaft sagen, <i>en el poder de los frayles</i> (in der
+boshaft sagen, *en el poder de los frayles* (in der
 Gewalt der Mönche) sey, möchte das Schreiben, das wir am
 Ufer des Atabapo mit einander abfaßten, wohl schwerlich als
 ein ganz freier Willensakt von meiner Seite angesehen werden.
@@ -4569,14 +4588,14 @@ Wir blieben nur einen Tag in San Fernando de Atabapo,
 obgleich dieses Dorf mit seinen schönen
 Pihiguao-Palmen^[S. Bd. III. Seite 281, 300.] mit Pfirsichfrüchten
 uns ein köstlicher Aufenthalt schien.
-Zahme <b>Pauxis</b>^[Es ist dieß nicht Cuviers Ourax
-(<i>Crax Pauxi</i>, Lin.), sondern der
-<i>Crax alector</i>.] liefen um die Hütten der Indianer her.
+Zahme **Pauxis**^[Es ist dieß nicht Cuviers Ourax
+(*Crax Pauxi*, Lin.), sondern der
+*Crax alector*.] liefen um die Hütten der Indianer her.
 In einer derselben sahen wir einen sehr seltenen Affen, der am
-Guaviare lebt. Es ist dieß der <b>Caparro</b>, den ich in meinen
-<i>Observations de zoologie et d’anatomie comparée</i> bekannt
+Guaviare lebt. Es ist dieß der **Caparro**, den ich in meinen
+*Observations de zoologie et d’anatomie comparée* bekannt
 gemacht, und der nach Geoffroy eine neue Gattung
-(<i>Lagothrix</i>) bildet, die zwischen den Atelen und den Alouatos
+(*Lagothrix*) bildet, die zwischen den Atelen und den Alouatos
 in der Mitte steht. Der Pelz dieses Affen ist mardergrau
 und fühlt sich ungemein zart an. Der Caparro zeichnet sich
 ferner durch einen runden Kopf und einen sanften, angenehmen
@@ -4589,7 +4608,7 @@ Am 27. Mai kamen wir von San Fernando mit der
 raschen Strömung des Orinoco in nicht ganz sieben Stunden
 zum Einfluß des Rio Mataveni. Wir brachten die Nacht
 unter freiem Himmel unterhalb des Granitfelsens
-<i>el castillito</i>^[S. Bd. III. Seite 267.]
+*el castillito*^[S. Bd. III. Seite 267.]
 zu, der mitten aus dem Flusse aufsteigt und dessen Gestalt
 an den Mäusethurm im Rhein, Bingen gegenüber, erinnert.
 Hier wie an den Ufern des Atabapo fiel uns eine kleine Art
@@ -4616,7 +4635,7 @@ hielt uns in Maypures zwei Tage auf; Pater Bernardo Zea,
 der Missionär bei den Raudales, der uns an den Rio Negro
 begleitet hatte, wollte, obgleich leidend, uns mit seinen
 Indianern vollends nach Atures führen. Einer derselben,
-<b>Zerepe</b>, der Dolmetscher, den man auf dem Strande von
+**Zerepe**, der Dolmetscher, den man auf dem Strande von
 Pararuma so unbarmherzig geprügelt,^[S. Bd. III. Seite 104.] fiel
 uns durch seine tiefe Niedergeschlagenheit auf. Wir hörten,
 er habe die Indianerin verloren, mit der er verlobt gewesen,
@@ -4632,7 +4651,7 @@ gesagt, die Weißen gehen ins Land der Portugiesen (nach
 Brasilien) und nehmen Zerepe mit. Da es ihr nicht ging,
 wie sie gehofft, bemächtigte sie sich eines Canoe, fuhr mit einem
 andern Mädchen vom selben Alter durch den Raudal und lief
-<i>al monte</i> zu den Ihrigen. Dieser kecke Streich war die
+*al monte* zu den Ihrigen. Dieser kecke Streich war die
 Tagesneuigkeit; Zerepes Niedergeschlagenheit hielt übrigens nicht
 lange an. Er war unter Christen geboren, er war bis zur
 Schanze am Rio Negro gekommen, er verstand Spanisch und
@@ -4650,7 +4669,7 @@ betrachten, wo Baum und Fels der Landschaft den großartigen,
 ernsten Charakter geben, den man auf dem Hintergrund von
 Titians und Poussins Bildern bewundert. Kurz vor Sonnenuntergang
 stiegen wir am östlichen Ufer des Orinoco, beim
-<b>Puerto de la Expedicion</b>, ans Land, und zwar um die
+**Puerto de la Expedicion**, ans Land, und zwar um die
 Höhle von Ataruipe zu besuchen, von der oben die Rede war,^[S. Bd.
 III. Seite 219.] und wo ein
 ganzer ausgestorbener Volksstamm seine Grabstätte
@@ -4705,14 +4724,14 @@ Völkerschaft zählten wir in kurzer Zeit gegen 600 wohlerhaltene
 und so regelmäßig vertheilte Skelette, daß man sich hinsichtlich
 ihrer Zahl nicht leicht hätte irren können. Jedes
 Skelett liegt in einer Art Korb aus Palmblattstielen. Diese
-Körbe, von den Eingeborenen <b>Mapires</b> genannt, bilden eine
+Körbe, von den Eingeborenen **Mapires** genannt, bilden eine
 Art viereckigter Säcke. Ihre Größe entspricht dem Alter der
 Leichen; es gibt sogar welche für Kinder, die während der
 Geburt gestorben. Sie wechseln in der Länge von 10&nbsp;Zoll
 bis 3&nbsp;Fuß 4&nbsp;Zoll. Die Skelette sind alle zusammengebogen
 und so vollständig, daß keine Rippe, kein Fingerglied fehlt.
 Die Knochen sind auf dreierlei Weisen zubereitet, entweder
-an Luft und Sonne gebleicht, oder mit <b>Onoto</b>, dem Farbstoff
+an Luft und Sonne gebleicht, oder mit **Onoto**, dem Farbstoff
 der Bixa Orellana, roth gefärbt, oder mumienartig
 zwischen wohlriechenden Harzen in Heliconia- und Bananenblätter
 eingeknetet. Die Indianer erzählten uns, man lege
@@ -4791,7 +4810,7 @@ das Skelett eines Kindes von sechs bis sieben Jahren
 und die Skelette zweier Erwachsenen von der Nation der
 Atures mit. Alle diese zum Theil roth bemalten, zum Theil
 mit Harz überzogenen Gebeine lagen in den oben beschriebenen
-Körben (<i>Mapires</i> oder <i>Canastos</i>). Sie machten fast eine
+Körben (*Mapires* oder *Canastos*). Sie machten fast eine
 ganze Maulthierladung aus, und da uns der abergläubische
 Widerwillen der Indianer gegen einmal beigesetzte Leichen wohl
 bekannt war, hatten wir die »Canastos« in frisch geflochtene
@@ -4873,8 +4892,8 @@ meiner Rückkehr, und die indianischen Steuerleute sagten uns
 nichts davon, als wir im Engpaß anlegten. Diese Gräber
 haben ohne Zweifel Anlaß zu einer Sage der Otomaken gegeben,
 nach der die einzeln stehenden Granitfelsen am Baraguan,
-die sehr seltsame Gestalten zeigen, die <b>Großväter</b>, die
-<b>alten Häuptlinge</b> des Stammes sind. Der Brauch, das
+die sehr seltsame Gestalten zeigen, die **Großväter**, die
+**alten Häuptlinge** des Stammes sind. Der Brauch, das
 Fleisch sorgfältig von den Knochen zu trennen, der im Alterthum
 bei den Massageten herrschte, hat sich bei mehreren
 Horden am Orinoco erhalten. Man behauptet sogar, und
@@ -4898,20 +4917,20 @@ Die indianischen Gräber am Orinoco sind bis jetzt nicht
 gehörig untersucht worden, weil sie keine Kostbarkeiten enthalten
 wie die in Peru, und weil man jetzt an Ort und
 Stelle an die früheren Mähren vom Reichthum der alten
-Einwohner des <b>Dorado</b> nicht mehr glaubt. Der Golddurst
+Einwohner des **Dorado** nicht mehr glaubt. Der Golddurst
 geht aller Orten dem Trieb zur Belehrung und dem Sinn
 für die Erforschung des Alterthums voraus. Im gebirgigen
 Theil von Südamerika, von Merida und Santa Maria bis
 zu den Hochebenen von Quito und Ober-Peru hat man bergmännisch
 nach Gräbern, oder wie es die Creolen mit einem
-verdorbenen Worte der Incasprache nennen, nach <b>Guacas</b>
+verdorbenen Worte der Incasprache nennen, nach **Guacas**
 gesucht. Ich war an der Küste von Peru, in Manciche, in
-der <b>Guaca</b> von Toledo, aus der man Goldmassen erhoben
+der **Guaca** von Toledo, aus der man Goldmassen erhoben
 hat, die im sechzehnten Jahrhundert fünf Millionen Livres
 Tournois werth waren.^[Diese Berechnung gründet sich auf
 den Quint, der in den Jahren
-1576 und 1592 an das Schatzamt (<i>caxas
-reales</i>) von Truxillo bezahlt wurde.
+1576 und 1592 an das Schatzamt (*caxas
+reales*) von Truxillo bezahlt wurde.
 Die Register sind noch vorhanden. In
 Persien, in Hochasien, in Egypten,
 wo man auch Gräber aus sehr verschiedenen
@@ -4930,7 +4949,7 @@ Ueberall, wo sich im Granit nicht die großen Höhlungen
 finden, wie sie sich durch die Verwitterung des Gesteins oder
 durch die Aufeinanderthürmung der Blöcke bilden, bestatten
 die Indianer den Leichnam in die Erde. Die Hängematte
-(<i>chinchorro</i>), eine Art Netz, worin der Verstorbene im Leben
+(*chinchorro*), eine Art Netz, worin der Verstorbene im Leben
 geschlafen, dient ihm als Sarg. Man schnürt dieses Netz fest
 um den Körper zusammen, gräbt ein Loch in der Hütte selbst
 und legt den Todten darin nieder. Dieß ist nach dem Bericht
@@ -4964,7 +4983,7 @@ auch die der Ihrigen, die auf dem Schlachtfelde geblieben. Wie
 alle Völker im Naturstande haben auch die Indianer in Südamerika
 die größte Anhänglichkeit an die Orte, wo die Gebeine
 ihrer Völker ruhen. Dieses Gefühl, das ein großer
-Schriftsteller in einer Episode der <b>Atala</b> so rührend
+Schriftsteller in einer Episode der **Atala** so rührend
 schildert,
 hat sich in seiner vollen ursprünglichen Stärke bei den Chinesen
 erhalten. Diese Menschen, bei denen Alles Kunstprodukt,
@@ -5004,9 +5023,9 @@ die Inseln unter einander verbinden. Bald stürzen die Wasser
 in das Innere derselben. Wir fanden ein betrachtliches Stück
 des Orinoco trocken gelegt, weil sich der Strom durch unterirdische
 Canäle einen Weg gebrochen hat. An diesen einsamen
-Orten nistet dass Felshuhn mit goldigem Gefieder (<i>Pipra
-rupicola</i>), einer der schönsten tropischen Vögel. Wir hielten uns
-im <b>Raudalito</b> von Canucari auf, der durch ungeheure, auf
+Orten nistet dass Felshuhn mit goldigem Gefieder (*Pipra
+rupicola*), einer der schönsten tropischen Vögel. Wir hielten uns
+im **Raudalito** von Canucari auf, der durch ungeheure, auf
 einander gethürmte Granitblöcke gebildet wird. Diese Blöcke,
 worunter Sphäroide von 5 bis 6&nbsp;Fuß Durchmesser, sind so
 über einander geschoben, daß sie geräumige Höhlen bilden.
@@ -5085,7 +5104,7 @@ Burckhardt an der Grenze von Nubien dem Granit
 von Syene aufgelagert gesehen hat. Wir fuhren, ohne sie
 zu betreten, an der neuen Mission San Borja vorüber und
 hörten einige Tage darauf mit Bedauern, die kleine Colonie
-von Guahibos-Indianern sey <i>al monte</i> gelaufen, da sie sich
+von Guahibos-Indianern sey *al monte* gelaufen, da sie sich
 eingebildet, wir wollen sie fortschleppen und als Poitos, das
 heißt als Sklaven verkaufen.^[S. Bd. III. Seite 132.] Nachdem
 wir durch die Stromschnellen
@@ -5132,7 +5151,7 @@ neuen Formationen vorkommt, verursacht haben.
 Der Aufenthalt in Carichana kam uns sehr zu statten,
 um uns von unsern Strapazen zu erholen. Bonpland trug
 den Keim einer schweren Krankheit in sich; er hätte dringend
-der Ruhe bedurft, da aber das <b>Nebenfluß-Delta</b>^[S. Bd. IV. Seite 47.] zwischen dem Horeda und dem Paruasi mit dem üppigsten
+der Ruhe bedurft, da aber das **Nebenfluß-Delta**^[S. Bd. IV. Seite 47.] zwischen dem Horeda und dem Paruasi mit dem üppigsten
 Pflanzenwuchse bedeckt ist, konnte er der Lust nicht widerstehen,
 große botanische Excursionen zu machen, und wurde
 den Tag über mehrere male durchnäßt. Im Hause des
@@ -5195,8 +5214,8 @@ ragen über die höchsten Baumwipfel empor. Nirgends nimmt
 sich der Orinoco majestätischer aus als bei der Hütte des
 Missionärs Fray Ramon Bueno. Er ist hier über 2600 Toisen
 breit und läuft gerade gegen Ost, ohne Krümmung, wie ein
-ungeheurer Canal. Durch zwei lange, schmale Inseln (<i>Isla
-de Uruana</i> und <i>Isla vieja de la Manteca</i>) wird das
+ungeheurer Canal. Durch zwei lange, schmale Inseln (*Isla
+de Uruana* und *Isla vieja de la Manteca*) wird das
 Flußbett noch ausgedehnter; indessen laufen die Ufer parallel
 und man kann nicht sagen, der Orinoco theile sich in mehrere
 Arme.
@@ -5209,9 +5228,9 @@ ziemlich bedeutender Menge, um den Hunger zu beschwichtigen,
 ohne daß ihre Gesundheit dabei leidet. Diese unzweifelhafte
 Thatsache hat seit meiner Rückkehr nach Europa lebhaften
 Widerspruch gefunden, weil man zwei ganz verschiedene Sätze:
-<b>Erde essen</b>, und <b>sich von Erde nähren</b>, zusammenwarf.
+**Erde essen**, und **sich von Erde nähren**, zusammenwarf.
 Wir konnten uns zwar nur einen einzigen Tag in Uruana
-aufhalten, aber dieß reichte hin, um die Bereitung der <b>Poya</b>
+aufhalten, aber dieß reichte hin, um die Bereitung der **Poya**
 (der Erdkugeln) kennen zu lernen, die Vorräthe, welche die
 Eingeborenen davon angelegt, zu untersuchen und die Quantität
 Erde, die sie in 24 Stunden verschlingen, zu bestimmen.
@@ -5219,16 +5238,16 @@ Uebrigens sind die Otomaken nicht das einzige Volk am Orinoco,
 bei dem Thon für ein Nahrungsmittel gilt. Auch bei den
 Guamos findet man Spuren von dieser Verirrung des Nahrungstriebs,
 und zwischen den Einflüssen des Meta und des
-Apure spricht Jedermann von der <b>Geophagie</b> als von etwas
+Apure spricht Jedermann von der **Geophagie** als von etwas
 Altbekanntem. Ich theile hier nur mit, was wir mit eigenen
 Augen gesehen oder aus dem Munde des Missionärs vernommen,
 den ein schlimmes Geschick dazu verurtheilt hat,
 zwölf Jahre unter dem wilden, unruhigen Volke der Otomaken
 zu leben.
 
-Die Einwohner von Uruana gehören zu den <b>Savanenvölkern</b>
-(<i>Indios andantes</i>), die schwerer zu civilisiren sind
-als die <b>Waldvölker</b> (<i>Indios del monte</i>), starke Abneigung
+Die Einwohner von Uruana gehören zu den **Savanenvölkern**
+(*Indios andantes*), die schwerer zu civilisiren sind
+als die **Waldvölker** (*Indios del monte*), starke Abneigung
 gegen den Landbau haben und fast ausschließlich von Jagd
 und Fischfang leben. Es sind Menschen von sehr starkem
 Körperbau, aber häßlich, wild, rachsüchtig, den gegohrenen
@@ -5268,7 +5287,7 @@ feinsten anzufühlende Erde enthalten. Ich fragte den Missionär,
 ob man den befeuchteten Thon wirklich, wie Pater Gumilla
 behauptet, die Art von Zersetzung durchmachen lasse, wobei
 sich Kohlensäure und Schwefelwasserstoff entwickeln, und die
-in allen Sprachen <b>faulen</b> heißt; er versicherte uns aber, die
+in allen Sprachen **faulen** heißt; er versicherte uns aber, die
 Eingeborenen lassen den Thon niemals faulen, und vermischen
 ihn auch weder mit Maismehl, noch mit Schildkrötenöl oder
 Krokodilfett. Wir selbst haben schon am Orinoco und nach
@@ -5332,7 +5351,7 @@ Seit vier Monaten wollte das kleine Mädchen fast nichts
 Anderes zu sich nehmen als Letten. Und doch sind es nur
 25 Meilen von San Borja nach Uruana, wo der Stamm
 der Otomaken wohnt, die, ohne Zweifel in Folge allmähliger
-Angewöhnung, die <b>Poya</b> ohne Nachtheil verschlucken. Pater
+Angewöhnung, die **Poya** ohne Nachtheil verschlucken. Pater
 Gumilla behauptet, trete bei den Otomaken Verstopfung ein,
 so führen sie mit Krokodilöl, oder vielmehr mit geschmolzenem
 Krokodilfett ab; aber der Missionär, den wir bei ihnen antrafen,
@@ -5352,7 +5371,7 @@ schädlich, so hätte man den Otomaken beinahe Glück dazu zu
 wünschen, daß sie so große Trunkenbolde sind.
 
 Auf der Küste von Guinea essen die Neger als Leckerbissen
-eine gelblichte Erde, die sie <b>Caouac</b> nennen. Die nach
+eine gelblichte Erde, die sie **Caouac** nennen. Die nach
 Amerika gebrachten Sklaven suchen sich denselben Genuß zu
 verschaffen, aber immer auf Kosten ihrer Gesundheit. Sie
 sagen, »die Erde auf den Antillen sey nicht so verdaulich,
@@ -5374,18 +5393,18 @@ abzuhalten vermag.«
 
 Im indischen Archipel, auf Java, sah Labillardière
 zwischen Sourabaya und Samarang kleine viereckigte, röthlichte
-Kuchen verkaufen. Diese Kuchen, <b>Tanaampo</b> genannt,
+Kuchen verkaufen. Diese Kuchen, **Tanaampo** genannt,
 waren Waffeln aus leicht geröstetem Thon, den die
 Eingeborenen mit Appetit verzehren. Da seit meiner Rückkehr
 vom Orinoco die Physiologen auf diese Erscheinungen von
-<b>Geophagie</b> aufmerksam geworden waren, so machte Leschenault
+**Geophagie** aufmerksam geworden waren, so machte Leschenault
 (einer der Naturforscher bei der Entdeckungsreise nach Australien
 unter Capitän Baudin) interessante Angaben über den
-<b>Tanaampo</b> oder <b>Ampo</b> der Javaner. »Man legt,« sagt
+**Tanaampo** oder **Ampo** der Javaner. »Man legt,« sagt
 er, »den röthlichten, etwas eisenschüssigen Thon, den die Einwohner
 von Java zuweilen als Leckerei genießen, in kleinen
 Rollen, in der Form wie die Zimmtrinde, auf eine Blechplatte
-und röstet ihn; in dieser Form heißt er <b>Ampo</b> und ist auf
+und röstet ihn; in dieser Form heißt er **Ampo** und ist auf
 dem Markte feil. Die Substanz hat einen eigenthümlichen
 Geschmack, der vom Rösten herrührt; sie ist stark absorbirend,
 klebt an der Zunge und macht sie trocken. Der Ampo wird
@@ -5413,8 +5432,8 @@ die gerade die herrlichsten, fruchtbarsten Länder der Erde bewohnen.
 In Popayan und mehreren Gebirgsstrichen von Peru
 sahen wir auf offenem Markte an die Eingeborenen unter
 andern Waaren auch sehr fein gepulverten Kalk verkaufen.
-Man mengt dieses Pulver mit <b>Coca</b>, das heißt mit den
-Blättern des <i>Erythroxylon peruvianum</i>. Bekanntlich nehmen
+Man mengt dieses Pulver mit **Coca**, das heißt mit den
+Blättern des *Erythroxylon peruvianum*. Bekanntlich nehmen
 die indianischen Botenläufer mehrere Tage lang keine
 andere Nahrung zu sich als Kalk und Coca; beide befördern
 die Absonderung des Speichels und des Magensaftes; sie benehmen
@@ -5432,8 +5451,8 @@ Eingeborenen täglich aus Leckerei und ohne Beschwerde einen
 sehr feinen, mit Quarzsand gemengten Thon. Dieser Thon
 macht das Wasser, in dem er suspendirt ist, milchigt. Man
 sieht in ihren Hütten große Gefäße mit diesem Wasser, das
-als Getränke dient und bei den Indianern <i>agua</i> oder
-<i><b>leche de Llanka.</b></i> (Thonmilch) heißt.
+als Getränke dient und bei den Indianern *agua* oder
+***leche de Llanka.*** (Thonmilch) heißt.
 
 Ueberblickt man alle diese Fälle, so zeigt sich, daß dieser
 abnorme Trieb zum Genuß von Thonerde, Talkerde und Kalk
@@ -5494,7 +5513,7 @@ der reichlichen Absonderung des Magensaftes her. Wir berühren
 hier ein Gebiet der Physiologie, auf dem noch Manches
 dunkel ist. Der Hunger wird beschwichtigt, das unangenehme
 Gefühl der Leere hört auf, so bald der Magen angefüllt ist.
-Man sagt, der Magen müsse <b>Ballast</b> haben; in allen Sprachen
+Man sagt, der Magen müsse **Ballast** haben; in allen Sprachen
 gibt es figürliche Ausdrücke für die Vorstellung, daß eine
 mechanische Ausdehnung des Magens ein angenehmes Gefühl
 verursacht. Zum Theil noch in ganz neuen physiologischen
@@ -5532,8 +5551,8 @@ Orient Bolus und Siegelerde von Lemnos, die Thon mit
 Eisenoxyd sind, noch jetzt stark gebraucht. In Deutschland
 streichen die Arbeiter in den Sandsteinbrüchen am Kiffhäuser,
 statt der Butter, einen sehr seinen Thon, den sie
-<b>Steinbutter</b>^[Diese <b>Steinbutter</b> ist
-nicht zu verwechseln mit der <b>Bergbutter</b>,
+**Steinbutter**^[Diese **Steinbutter** ist
+nicht zu verwechseln mit der **Bergbutter**,
 einer salzigten Substanz, die aus der
 Zersetzung des Alaunschiefers entsteht.] nennen,
 auf ihr Brod. Derselbe gilt bei ihnen
@@ -5577,11 +5596,11 @@ auch manche Thiere im Winter aus Hunger Thon
 oder zerreiblichen Speckstein, namentlich die Wölfe im nordöstlichen
 Europa, die Rennthiere, und, nach Patrins Beobachtung,
 die Rehe in Sibirien. Am Jenisei und Amur brauchen
-die russischen Jäger einen Thon, den sie <b>Felsbutter</b>
+die russischen Jäger einen Thon, den sie **Felsbutter**
 nennen, als Köder. Die Thiere wittern den Thon von weitem,
 sie riechen ihn gerne, wie die Weiber in Spanien und Portugal
-den <b>Bucaros-Thon</b>,^[
-<i>Bucaro, vas fictile odoriferum.</i>
+den **Bucaros-Thon**,^[
+*Bucaro, vas fictile odoriferum.*
 Man trinkt gerne aus diesen
 Gefäßen wegen des Geruchs des Thons.
 Die Weiber in der Provinz
@@ -5590,7 +5609,7 @@ zu kauen, und sie empfinden es
 als eine große Entbehrung, wenn sie
 dieses abnorme Gelüste nicht befriedigen können.] die
 sogenannten wohlriechenden
-Erden (<i>tierras olorosas</i>). Brown erzählt in seiner Geschichte
+Erden (*tierras olorosas*). Brown erzählt in seiner Geschichte
 von Jamaica, die Krokodile in Südamerika verschlingen kleine
 Steine oder Stücke sehr harten Holzes, wenn die Seen, in
 denen sie leben, ausgetrocknet sind oder sie sonst keine Nahrung
@@ -5615,12 +5634,12 @@ in ihrem dicken Muskelmagen zu beschleunigen.
 Wir haben oben gesehen, daß Negerstämme am Gambia
 Thon unter ihren Reis mischen; vielleicht hatten früher manche
 Familien der Otomaken den Brauch, Mais und andere mehligte
-Samen in ihrer <b>Poya</b> »faulen« zu lassen, um Erde
+Samen in ihrer **Poya** »faulen« zu lassen, um Erde
 und stärkemehlhaltigen Stoff zugleich zu genießen; vielleicht ist
 es eine unklare Beschreibung einer solchen Zubereitung, wenn
 Pater Gumilla im ersten Band seines Werkes behauptet, »die
 Guamos und Otomacos nähren sich nur deßhalb von Erde,
-weil dieselbe mit <i><b>substancia del maiz</b></i> und Kaimanfett
+weil dieselbe mit ***substancia del maiz*** und Kaimanfett
 getränkt sey.« Ich habe schon oben erwähnt, daß weder der
 gegenwärtige Missionär in Uriana, noch Fray Juan Gonzales,
 der lange in diesen Ländern gelebt, von dieser Vermengung
@@ -5640,14 +5659,14 @@ die er meint läugnen zu müssen. Zum Glück nimmt
 der Jesuit im zweiten Band seines Werkes großentheils wieder
 zurück, was er im ersten behauptet: er zweifelt jetzt nicht
 daran, »daß das Brod der Otomacos und Guamos wenigstens
-(<i>a lo menos</i>) zur Hälfte Thon enthält; er versichert, Kinder
+(*a lo menos*) zur Hälfte Thon enthält; er versichert, Kinder
 und Erwachsene essen, ohne Schaden für die Gesundheit, nicht
 nur dieses Brod, sondern auch große Massen reinen Thon
-(<i>muchos terrones de pura greda</i>).« Er sagt weiter, wer
+(*muchos terrones de pura greda*).« Er sagt weiter, wer
 davon den Magen beschwert fühle, führe ein paar Tage mit
 Krokodilfett ab, und dieses Fett bringe ihnen die Eßlust wieder,
 so daß sie von neuem bloße Erde essen können. Ich bezweifle,
-daß die <i>Manteca de Caiman</i> ein Abführmittel ist, da
+daß die *Manteca de Caiman* ein Abführmittel ist, da
 sie aber sehr flüssig ist, so mag sie die Erde, die nicht mit
 dem Koth weggeschafft worden ist, einhüllen helfen. So viel
 ist gewiß, daß die Guamos wenn nicht das Fett, so doch das
@@ -5658,7 +5677,7 @@ gleichfalls gesucht und wird auf dem Markt verkauft.
 Ich kann hier Fragen nicht unberührt lassen, die in
 mehreren Abhandlungen, zu denen meine Reise auf dem Orinoco
 Anlaß gegeben, besprochen worden sind. Leschenaut
-wirft die Frage auf, ob nicht der Gebrauch des <b>Ampo</b> (des
+wirft die Frage auf, ob nicht der Gebrauch des **Ampo** (des
 javanischen Thons) dadurch gute Dienste leisten könnte, daß er
 augenblicklich den Hunger beschwichtigt, wenn man keine 
 Nahrungsmittel hat oder zu ungesunden, schädlichen, wenn auch
@@ -5672,8 +5691,8 @@ Kalk- und Bittererde, Kieselerde, Schwefel, Natron,
 Fluor, Eisen und Mangan, und dagegen wie viel Kohlensäure,
 Sauerstoff, Stickstoff und Wasserstoff in den festen und
 flüssigen Theilen des menschlichen Körpers enthalten sey, und
-fragt, ob die Athmung nicht als ein <b>fortwährender
-Ernährungsakt</b> zu betrachten sey, während der Verdauungsapparat
+fragt, ob die Athmung nicht als ein **fortwährender
+Ernährungsakt** zu betrachten sey, während der Verdauungsapparat
 mit Lehm gefüllt ist? Die chemische Analyse der eingeathmeten
 und der ausgeathmeten Luft spricht nicht für diese
 Annahme. Der Verlust einer sehr kleinen Menge Stickstoff ist
@@ -5725,10 +5744,10 @@ nur sind sie dem Genuß der gegohrenden Getränke aus Manioc
 und Mais und des Palmweins im Uebermaß ergeben,
 sie versetzen sich auch noch in einen eigenthümlichen Zustand
 von Rausch, man könnte fast sagen von Wahnsinn, durch den
-Gebrauch des <b>Niopo-Pulvers</b>.^[Maypurisch <b>Nupa</b>;
-die Missionäre sagen <b>Nopo</b>.] Sie sammeln die langen
-Schoten einer Mimosenart, die wir unter dem Namen <i>Acacia
-Niopo</i> bekannt gemacht haben; sie reißen sie in Stücke, feuchten
+Gebrauch des **Niopo-Pulvers**.^[Maypurisch **Nupa**;
+die Missionäre sagen **Nopo**.] Sie sammeln die langen
+Schoten einer Mimosenart, die wir unter dem Namen *Acacia
+Niopo* bekannt gemacht haben; sie reißen sie in Stücke, feuchten
 sie an und lassen sie gähren. Wenn die durchweichten Samen
 anfangen schwarz zu werden, kneten sie dieselben wie einen
 Teig, mengen Maniocmehl und Kalk, der aus der Muschel
@@ -5743,19 +5762,19 @@ Vogelknochen, dessen zwei Enden in die Naslöcher gesteckt sind,
 in die Nase. Der Knochen, ohne den der Otomake diese
 Art Schnupftaback nicht nehmen zu können meinte, ist sieben
 Zoll lang und es schien mir der Fußwurzelknochen eines großen
-Stelzenläufers zu seyn. Ich habe das <b>Niopo</b> sammt dem
+Stelzenläufers zu seyn. Ich habe das **Niopo** sammt dem
 ganzen seltsamen Apparat Fourcroy in Paris übermacht. Das
 Niopo ist so reizend, daß ganz wenig davon heftiges Niesen
 verursacht, wenn man nicht daran gewöhnt ist. Pater Gumilla
 sagt, »dieses Teufelspulver der Otomaken, das von
 einem baumartigen Tabak komme, berausche sie durch die
-Naslöcher (<i>emboracha por las narices</i>), raube ihnen auf
+Naslöcher (*emboracha por las narices*), raube ihnen auf
 einige Stunden die Vernunft und mache sie im Gefechte rasend.«
 Die Samen, Säfte und Wurzeln der Familie der Schotengewächse
 haben auffallend verschiedene chemische und arzneiliche
-Eigenschaften; wenn aber auch der Saft der Frucht der <i>Mimosa
-nilotica</i> stark adstringirend ist, so ist doch nicht wohl
-zu glauben, daß die Schote der <i>Acacia Niopo</i> dem Tabak der
+Eigenschaften; wenn aber auch der Saft der Frucht der *Mimosa
+nilotica* stark adstringirend ist, so ist doch nicht wohl
+zu glauben, daß die Schote der *Acacia Niopo* dem Tabak der
 Otomaken zunächst seine reizende Eigenschaft verleiht. Dieselbe
 rührt vielmehr vom frischgebrannten Kalk her. Wir haben oben
 gesehen, daß die Bergbewohner in den Anden von Popayan und
@@ -5771,11 +5790,11 @@ durch mich nach Europa kam, wurden die Gelehrten auf einen
 am obern Maragnon beobachtet hat. Die Omaguas, deren
 Name durch ihre Züge zur Entdeckung des Dorado vielberufen
 ist, haben denselben Teller, dieselben hohlen Vogelknochen,
-durch die sie ihr <b>Curupa</b>pulver in die Nase ziehen.
+durch die sie ihr **Curupa**pulver in die Nase ziehen.
 Der Samen, von dem dieses Pulver kommt, ist ohne Zweifel
 auch eine Mimose; denn die Otomaken nennen, dem Pater
 Gili, zufolge, noch jetzt, 260 Meilen vom Amazonenstrom,
-die <i>Acacia Niopo</i> <b>Curupa</b>. Seit meinen neuerlichen 
+die *Acacia Niopo* **Curupa**. Seit meinen neuerlichen 
 geographischen Untersuchungen über den Schauplatz der Thaten
 Philipps von Hutten und über die wahre Lage der Provinz
 Papamene^[S. Bd. III. Seite 356.] oder der
@@ -5804,7 +5823,7 @@ oder der verdicken Milch der Euphorbiaceen und Urticeen so
 ausgedehnten Gebrauch machen.
 
 Der eigentliche krautartige Tabak,^[
-Das Wort <b>Tabak</b> (<i>tabacco</i>) gehört,
+Das Wort **Tabak** (*tabacco*) gehört,
 wie die Worte Savane, Mais,
 Cazike, Maguey (Agave) und Manati
 (Seekuh), der alten Sprache von
@@ -5816,7 +5835,7 @@ Es muß auffallen, daß ein so allgemein
 verbreitetes vegetabilisches Produkt
 bei benachbarten Völkern verschiedene Namen hatte.] denn
 die Missionäre
-nennen das <b>Niopo</b> oder Curupa »Baumtabak,« wird seit 
+nennen das **Niopo** oder Curupa »Baumtabak,« wird seit 
 unvordenklicher Zeit von allen eingeborenen Völkern am Orinoco
 gebaut; man fand auch bei der Eroberung die Sitte des
 Rauchens in beiden Amerikas gleich verbreitet. Die Tamanaken
@@ -5841,12 +5860,12 @@ und Caura, Nachbarn der weißlichten Paparitos, verschlucken,
 wie man mir sagte, zerhackten und mit andern stark
 reizenden Säften getränkten Tabak, wenn sie sich zum Gefechte
 anschicken. Von den vier Nicotianaarten, die in Europa
-gebaut werden (<i>N. tabacum</i>, <i>N. rustica</i>, <i>N. 
-paniculata</i>, und <i>N. glutinosa</i>)
+gebaut werden (*N. tabacum*, *N. rustica*, *N. 
+paniculata*, und *N. glutinosa*)
 sahen wir nur die beiden letzteren wild;
-aber <i>Nicotiana lolaxensis</i> und <i>N. Audicola</i>, die ich in
+aber *Nicotiana lolaxensis* und *N. Audicola*, die ich in
 1850&nbsp;Toisen Meereshöhe auf dem Rücken der Anden gefunden,
-stehen <i>Nicotiana tabacum</i> und <i>rustica</i> sehr nahe. Die
+stehen *Nicotiana tabacum* und *rustica* sehr nahe. Die
 ganze Gattung ist übrigens fast ausschließlich amerikanisch und
 die meisten Arten schienen mir dem gebirgigten und gemäßigten
 Landstrich unter den Tropen anzugehören.
@@ -5872,10 +5891,10 @@ des Rauchens unter den« nordischen Völkern am meisten befördert.
 Bereits am Schluß des sechzehnten Jahrhunderts
 beschwerte man sich in England bitter über »diese Nachahmung
 der Gebräuche eines barbarischen Volkes« Man fürchtete bei
-dem überhandnehmenden Tabakrauchen, »<i>ne Anglorum corpora
-in barbarorum naturam degenerent</i>.«^[Die merkwürdige
-Stelle lautet bei <b>Camden</b>, <i>Annal. Elizab.</i>
-p.&nbsp;143. (1585) wie folgt: »<i>Ex
+dem überhandnehmenden Tabakrauchen, »*ne Anglorum corpora
+in barbarorum naturam degenerent*.«^[Die merkwürdige
+Stelle lautet bei **Camden**, *Annal. Elizab.*
+p.&nbsp;143. (1585) wie folgt: »*Ex
 illo sane tempore (tabacum) usu cepit
 esse creberrimo in Anglia et magno
 pretio, dum quamplurimi graveolentem
@@ -5884,7 +5903,7 @@ hauriunt et mox e
 naribus afflant, adeo ut Anglorum
 corpora in barbarorum naturam
 degenerasse videantur, quum iidem
-ac barbari delectentur.</i>« Man
+ac barbari delectentur.*« Man
 sieht aus dieser Stelle, daß man
 durch die Nase rauchte, während man
 am Hofe Montezumas in der einen Hand
@@ -5910,13 +5929,13 @@ vermuthe ich, daß ein Mord in meiner Mission begangen
 worden.«
 
 Wir fanden in Uruana in den Hütten der Indianer
-denselben vegetabilischen Stoff (<i>yesca de hormigas</i>,
+denselben vegetabilischen Stoff (*yesca de hormigas*,
 Ameisenzunder), den wir bei den großen Katarakten hatten kennen
 lernen und den man zum Blutstillen braucht. Dieser Zunder,
-der weniger uneigentlich <b>Ameisennester</b> hieße, ist in einem
+der weniger uneigentlich **Ameisennester** hieße, ist in einem
 Lande, dessen Bewohner nichts weniger als friedfertig sind,
 sehr gesucht. Eine neue schön smaragdgrüne Art Ameisen
-(<i>Formica spinicollis</i>) sammelt auf den Blättern einer 
+(*Formica spinicollis*) sammelt auf den Blättern einer 
 Melastomenart zu ihrem Nest einen baumwollenartigen, gelbbraunen,
 sehr zart anzufühlenden Flaum. Ich glaube, daß
 der »Yesca oder Ameisenzunder« vom obern Orinoco (das
@@ -5937,24 +5956,24 @@ Züge auf den Felsen bei Uruana bekannt machen zu können.
 In den Ländern, die wir eben bereist, zwischen dem
 Meta, Arauca und Apure, fand man bei den ersten Entdeckungszügen
 an den Orinoco, z.&nbsp;B. bei dem des Alonzo de
-Herrera im Jahr 1535, <b>stumme Hunde</b>, von den Eingeborenen
-<b>Maios</b> und <b>Auries</b> genannt. Dieser Umstand ist
+Herrera im Jahr 1535, **stumme Hunde**, von den Eingeborenen
+**Maios** und **Auries** genannt. Dieser Umstand ist
 in mehr als Einer Beziehung interessant. Was auch Pater
 Gili sagen mag, es unterliegt keinem Zweifel, daß der Hund
 in Südamerika einheimisch ist. Die verschiedenen indianischen
 Sprachen haben Namen für das Thier, die nicht wohl von
-europäischen Sprachen herkommen können. Das Wort <b>Auri</b>,
+europäischen Sprachen herkommen können. Das Wort **Auri**,
 das Alonzo de Herrera vor dreihundert Jahren nannte, kommt
 noch jetzt im Maypurischen vor. Die Hunde, welche wir am
 Orinoco gesehen, mögen von denen abstammen, welche die
 Spanier an die Küsten von Caracas gebracht; aber nichts
 desto weniger steht fest, daß es vor der Eroberung in Peru,
 Neu-Grenada und Guyana eine unsern Schäferhunden ähnliche
-Hunderace gab. Der <b>Allco</b> der Eingeborenen in Peru,
+Hunderace gab. Der **Allco** der Eingeborenen in Peru,
 und fast alle Hunde, die wir in den wildesten Strichen von
 Südamerika angetroffen, bellen häufig; die ältesten 
-Geschichtschreiber sprechen aber alle von stummen Hunden (<i>perros
-mudos</i>). Es gibt noch dergleichen in Canada, und, was
+Geschichtschreiber sprechen aber alle von stummen Hunden (*perros
+mudos*). Es gibt noch dergleichen in Canada, und, was
 mir sehr zu beachten scheint, die stumme Spielart wurde in
 Mexico und am Orinoco vorzugsweise gegessen. Ein sehr
 unterrichteter Reisende, Giesecke, der sechs Jahre in Grönland
@@ -5991,7 +6010,7 @@ im Sprachbau, in der Zeitrechnung, im Glauben und
 den gottesdienstlichen Gebräuchen dazu kommen.
 
 Wir übernachteten auf der Insel Cucuruparu, auch
-<i>Playa de la Tortuga</i> genannt, weil die Indianer von
+*Playa de la Tortuga* genannt, weil die Indianer von
 Uruana dort Schildkröteneier holen. Es ist dieß einer der
 Punkte am Orinoco, deren Breite am genauesten bestimmt
 ist. Das Glück wollte, daß ich drei Durchgänge von Sternen
@@ -6002,41 +6021,41 @@ hängen. Am südlichen Ufer dieses Caño liegt die fast
 ganz eingegangene Mission San Miguel de la Tortuga. Die
 Indianer versicherten uns, in der Nähe dieser kleinen Mission
 gebe es eine Menge Fischottern mit sehr feinem Pelz, welche
-bei den Spaniern <i>perritos de agua</i>, Wasserhunde heißen,
-und, was merkwürdiger ist, Eidechsen (<i>lagartos</i>) <b>mit zwei
-Füßen</b>. Dieser ganze Landstrich zwischen dem Rio Cuchivero
+bei den Spaniern *perritos de agua*, Wasserhunde heißen,
+und, was merkwürdiger ist, Eidechsen (*lagartos*) **mit zwei
+Füßen**. Dieser ganze Landstrich zwischen dem Rio Cuchivero
 und der Stromenge am Baragnan sollte einmal von einem
 guten Zoologen besucht werden. Der Lagarto ohne Hinterbeine
-ist vielleicht eine Art Siren, abweichend vom <i>Siren
-lacertina</i> in Carolina. Wäre es ein Saurier, ein eigentlicher
-»Bimane« (<i>Chirotes</i>, Cuvier), so hätten die Eingeborenen
+ist vielleicht eine Art Siren, abweichend vom *Siren
+lacertina* in Carolina. Wäre es ein Saurier, ein eigentlicher
+»Bimane« (*Chirotes*, Cuvier), so hätten die Eingeborenen
 das Thier nicht mit einer Eidechse verglichen. Außer
 den Arau-Schildkröten, von denen ich oben ausführlich
 gesprochen,^[S. Bd. III. Seite 67.]
 leben am Orinoco zwischen Uruana und Encaramada
-auch Landschildkröten, die sogenannten <b>Morocoi</b>, in
+auch Landschildkröten, die sogenannten **Morocoi**, in
 zahlloser Menge. In der großen Sonnenhitze und Trockenheit
 stecken diese Thiere, ohne zu fressen, unter Steinen oder
 in Löchern, die sie gegraben. Erst wenn sie nach den ersten
 Regen spüren, daß die Erde feucht wird, kommen sie aus
 ihrem Versteck hervor und fangen wieder an zu fressen. Die
-<b>Terekays</b> oder <b>Tajelus</b>, Süßwasserschildkröten, haben
-dieselbe Lebensweise. Ich habe schon oben vom <b>Sommerschlaf</b>
+**Terekays** oder **Tajelus**, Süßwasserschildkröten, haben
+dieselbe Lebensweise. Ich habe schon oben vom **Sommerschlaf**
 mancher Thiere unter den Tropen
 gesprochen.^[S. Bd. II. Seite 412. III. 81.] Die
 Eingeborenen kennen die Löcher, in denen die Schildkröten
 im ausgetrockneten Boden schlafen, und graben sie 15—18 Zoll
 tief in Menge auf einmal aus. Nach Pater Gili, der solches
 mit angesehen, ist dieß nicht gefahrlos, weil sich im Sommer
-häufig Schlangen mit den <b>Terekays</b> eingraben.
+häufig Schlangen mit den **Terekays** eingraben.
 
 Von der Insel Cucuruparu hatten wir bis zur Hauptstadt
-von Guyana, gemeiniglich <b>Angostura</b> genannt, noch
+von Guyana, gemeiniglich **Angostura** genannt, noch
 neun Tage zu fahren; es sind nicht ganz 95 Meilen. Wir
 brachten die Nacht selten am Lande zu; aber die Plage der
 Moskitos nahm merklich ab, je weiter wir hinab kamen. Am
-8.&nbsp;Juni gingen wir bei einem Hofe (<i>Hato de san Rafael
-del Capuchino</i>), dem Einfluß des Rio Apure gegenüber,
+8.&nbsp;Juni gingen wir bei einem Hofe (*Hato de san Rafael
+del Capuchino*), dem Einfluß des Rio Apure gegenüber,
 ans Land. Ich konnte gute Breiten- und Längenbeobachtungen
 machen. Ich hatte vor zwei Monaten auf dem andern Ufer
 Stundenwinkel aufgenommen, und diese Bestimmungen waren
@@ -6107,8 +6126,8 @@ zum starken Feuer unter dem Kessel einer Dampfmaschine braucht.
 Unterhalb San Rafael del Capuchino gingen wir rechts
 bei Villa Caycara, an einer Bucht, Puerto Sedeñio genannt,
 ans Land. Es stehen hier ein paar Häuser beisammen und
-diese führen den vornehmen Titel <b>Villa</b>. Alta Gracia,
-Ciudad de la Piedra, Real Corona, Borbon, lauter <b>Villas</b>
+diese führen den vornehmen Titel **Villa**. Alta Gracia,
+Ciudad de la Piedra, Real Corona, Borbon, lauter **Villas**
 zwischen dem Einfluß des Apure und Angostura, sind eben
 so elend. Ich habe oben erwähnt, daß es bei den Präsidenten
 der Missionen und den Statthaltern der Provinzen
@@ -6119,9 +6138,9 @@ glauben machen, daß Bevölkerung und Wohlstand in den Colonien
 in rascher Zunahme begriffen seyen. Bei Caycara, am
 »Cerro del Tirano,« sieht man Bilder von Sonne und Mond,
 wovon oben die Rede war, eingehauen. »Das ist ein Werk
-der <b>Alten</b>« (das heißt unserer Väter), sagen die Eingeborenen.
+der **Alten**« (das heißt unserer Väter), sagen die Eingeborenen.
 Man versichert, auf einem Fels weiter vom Ufer ab,
-<b>Tecoma</b> genannt, stehen die symbolischen Figuren hundert
+**Tecoma** genannt, stehen die symbolischen Figuren hundert
 Fuß hoch. Die Indianer kannten früher einen Landweg von
 Caycara nach Demerary und Essequebo. Sind etwa die Völker,
 welche die vom Reisenden Hortsmann beschriebenen Bilder eingehauen,
@@ -6131,7 +6150,7 @@ Caycara gegenüber, am nördlichen Ufer des Orinoco,
 liegt die Mission Cabruta, die als vorgeschobener Posten gegen
 die Caraiben im Jahr 1740 vom Jesuiten Rotella angelegt
 wurde. Schon seit mehreren Jahrhunderten hatten die Indianer
-an diesem Fleck ein Dorf Namens <b>Cabritu</b>. Als der
+an diesem Fleck ein Dorf Namens **Cabritu**. Als der
 kleine Ort eine christliche Niederlassung wurde, glaubte man,
 derselbe liege unter dem 5.&nbsp;Grad der Breite, also um 2°40′
 weiter nach Süd, als ich durch direkte Beobachtungen in San
@@ -6159,12 +6178,12 @@ Steppen sichtbar und dient den Reisenden als Landmarke.
 
 Wir schifften uns Morgens in Caycara ein und fuhren
 mit der Strömung des Orinoco zuerst am Einfluß des Rio
-Cuchivero, wohin eine alte Sage die <b>Aikeam-benanos</b>
-oder <b>Weiber ohne Männer</b>^[S. Bd. III. Seite 399.]
+Cuchivero, wohin eine alte Sage die **Aikeam-benanos**
+oder **Weiber ohne Männer**^[S. Bd. III. Seite 399.]
 versetzt, dann am kleinen
-Dorf <b>Alta Gracia</b>, nach einer spanischen Stadt so genannt,
+Dorf **Alta Gracia**, nach einer spanischen Stadt so genannt,
 vorüber. Hier in der Nähe hatte Don Jose de Iturriaga
-den <i>pueblo de Ciudad Real</i> angelegt, der noch auf den
+den *pueblo de Ciudad Real* angelegt, der noch auf den
 neuesten Karten vorkommt, obgleich der Ort wegen der ungesunden
 Lage seit fünfzig Jahren gar nicht mehr besteht.
 Unterhalb der Stelle, wo sich der Orinoco gegen Ost wendet,
@@ -6198,7 +6217,7 @@ den Sklaven die Waffen in die Hände gegeben, und
 nach einer schrecklichen Erfahrung haben es die Einwohner
 von Venezuela zu bereuen, daß sie nicht auf die Stimme
 Don Domingo Tovars und anderer hochherziger Bürger gehört,
-die schon im Jahr 1795 im <b>Cabildo</b> von Caracas
+die schon im Jahr 1795 im **Cabildo** von Caracas
 sich laut gegen die weitere Einführung von Negern ausgesprochen
 und Mittel, ihre Lage zu verbessern, in Vorschlag
 gebracht haben.
@@ -6235,8 +6254,8 @@ war am nördlichen Katarakt, dem von Mura, eine
 kleine Schanze angelegt worden. Der Statthalter Don Manuel
 Centurion hatte alsbald ein paar Häusern, welche spanische
 (das heißt nicht indianische) Familien, Weiße und Mulatten,
-bei der Schanze gebaut, den Titel <b>Ciudad de San
-Carlos</b> gegeben. Südlich vom Katarakt Para, gerade am
+bei der Schanze gebaut, den Titel **Ciudad de San
+Carlos** gegeben. Südlich vom Katarakt Para, gerade am
 Einfluß des Erevato in den Caura, lag damals die Mission
 San Luis und von da führte ein Landweg nach der Hauptstadt
 Angostura. Alle diese Civilisationsversuche führten zu
@@ -6262,12 +6281,12 @@ der Llanos sich südwärts bis zum Thale des Caura
 erstrecken.
 
 Am 11. Juni landeten wir, um Sonnenhöhen aufzunehmen,
-am rechten Orinocoufer beim <b>Puerto de los
-Frailes,</b> drei Meilen oberhalb <b>Ciudad de la Piedra</b>.
+am rechten Orinocoufer beim **Puerto de los
+Frailes,** drei Meilen oberhalb **Ciudad de la Piedra**.
 Der Punkt liegt unter 67°26′20″ der Länge oder 1°41′
 ostwärts vom Einfluß des Apure. Weiterhin zwischen den
 Villas de la Piedra und Muitaco oder Real Corona kommt
-der <b>Torno</b> und der <b>Höllenschlund</b>, zwei Punkte, die
+der **Torno** und der **Höllenschlund**, zwei Punkte, die
 früher von den Schiffern gefürchtet wurden. Der Orinoco
 ändert auf einmal seine Richtung; er fließt anfangs nach
 Ost, dann nach Nord-Nord-West und endlich wieder nach Ost.
@@ -6276,12 +6295,12 @@ Ufer hereinkommt, theilt eine sehr lange Insel den Fluß in
 zwei Arme. Wir fuhren ohne Schwierigkeit südwärts an derselben
 vorbei; gegen Norden bildet eine Reihe kleiner, bei
 hohem Wasser halb bedeckter Felsen Wirbel und Stromschnellen.
-Dieß heißt nun <b><i>Boca del Infierno</i></b> und der <b>Raudal
-von Camiseta</b>. Durch Diego de Ordaz (1531) und
+Dieß heißt nun ***Boca del Infierno*** und der **Raudal
+von Camiseta**. Durch Diego de Ordaz (1531) und
 Alonzo de Hereras (1535) erste Expeditionen wurde diese
 Stromsperre vielberufen. Die großen Katarakten von Atures
 und Maypures kannte man damals noch nicht, und mit den
-plumpen Fahrzeugen (<i>vergantines</i>), mit denen man eigensinnig
+plumpen Fahrzeugen (*vergantines*), mit denen man eigensinnig
 den Strom hinauf wollte, war sehr schwer über die
 Stromschnellen zu kommen. Gegenwärtig fährt man den
 Orinoco zu jeder Jahreszeit von der Mündung bis zum Einfluß
@@ -6306,8 +6325,8 @@ Negro ein besonderes Flußsystem, das dem industriellen Leben
 in Angostura und auf dem Küstenland von Caracas noch lange
 fremd bleiben wird.
 
-Ich konnte auf einer Insel mitten in der <i>Boca del
-Infierno</i>, wo wir unsere Instrumente aufgestellt hatten,
+Ich konnte auf einer Insel mitten in der *Boca del
+Infierno*, wo wir unsere Instrumente aufgestellt hatten,
 Stundenwinkel der Sonne aufnehmen. Der Punkt liegt nach
 dem Chronometer unter 67°10′31″ der Länge. Ich
 wollte die Inclination der Magnetnadel und die Intensität
@@ -6317,23 +6336,23 @@ schlugen wir unser Lager auf einem breiten Gestade am südlichen
 Ufer des Orinoco, beinahe im Meridian der kleinen
 Stadt Muitaco oder Real Corona, auf. Mittelst dreier
 Sterne fand ich die Breite 8°0′26″, die Länge 67°5′19″.
-Als die Observanten im Jahr 1752 ihre ersten <b>Entradas</b>
+Als die Observanten im Jahr 1752 ihre ersten **Entradas**
 auf das Gebiet der Caraiben machten, bauten sie an diesem
-Punkt ein kleines Fort oder eine <b><i>casa fuerte</i></b>. Durch
+Punkt ein kleines Fort oder eine ***casa fuerte***. Durch
 den Umstand, daß die hohen Gebirge von Araguacais so nahe
 liegen, ist Muitaco einer der gesundesten Orte am untern
 Drinoco. Hier schlug Iturriaga im Jahr 1756 seinen Wohnsitz
 auf, um sich von den Strapazen der Grenzexpedition zu
 erholen, und da er seine Genesung dem mehr heißen als
 feuchten Klima zuschrieb, erhielt die Stadt oder vielmehr das
-Dorf Real Corona den Namen <i>pueblo del puerto sano</i>.
+Dorf Real Corona den Namen *pueblo del puerto sano*.
 Weiterhin gegen Ost ließen wir nordwärts den Einfluß des
 Rio Pao, südwärts den des Rio Arui. Letzterer Fluß ist
 ziemlich bedeutend; er kommt in Raleghs Berichten häufig
-vor. Lange ließen die Geographen den <b>Aroy</b> oder <b>Arvi</b>
-(Arui), den <b>Caroli</b> (Carony) und den <b>Coari</b> (Caura) aus
+vor. Lange ließen die Geographen den **Aroy** oder **Arvi**
+(Arui), den **Caroli** (Carony) und den **Coari** (Caura) aus
 dem vielberufenen See Cassipa entspringen, der später der
-<i>laguna del Dorado</i> Platz machte. Je weiter wir abwärts
+*laguna del Dorado* Platz machte. Je weiter wir abwärts
 kamen, desto langsamer wurde die Strömung des Orinoco.
 Ich maß mehrmals am Ufer eine Linie ab, um zu bestimmen,
 wie viel Zeit schwimmende Körper brauchten, um eine
@@ -6396,9 +6415,9 @@ aber vollkommen gesund. Bonpland fing an, die wenigen
 Pflanzen zu untersuchen, welche er vor den Wirkungen des
 feuchten Klimas hatte schützen können; ich war beschäftigt,
 Länge und Breite der Hauptstadt^[Die Hauptkirche
-von <b>Santo Thome de la Nueva Guayana</b>,
-gemeiniglich <b>Angostura</b>, oder der
-<b>Engpaß</b> genannt, liegt nach meinen
+von **Santo Thome de la Nueva Guayana**,
+gemeiniglich **Angostura**, oder der
+**Engpaß** genannt, liegt nach meinen
 Beobachtungen unter 8°8′11″ der Breite und 66°15′21″ der Länge.] zu
 bestimmen und die Inclination
 der Magnetnadel zu beobachten. Aber nicht lange,
@@ -6423,7 +6442,7 @@ Es war aber nur eine mehrstündige Ohnmacht, auf die
 eine heilsame Krise eintrat. Zur selben Zeit wurde auch ich
 von einem sehr heftigen Fieber befallen; man gab mir mitten
 im Anfall ein Gemisch von Honig und Extract der China
-Vom Rio Carony (<i>Extractum corticis Angosturae</i>). Es
+Vom Rio Carony (*Extractum corticis Angosturae*). Es
 ist dieß ein Mittel, das die Kapuziner in den Missionen
 höchlich preisen. Das Fieber wurde darauf stärker, hörte
 aber gleich am andern Tage auf. Bonplands Zustand war
@@ -6466,15 +6485,15 @@ Bonpland einem gefährlichen Rückfall auszusetzen, beschlossen
 wir bis zum 10.&nbsp;Juli in Angostura zu bleiben. Wir brachten
 diese Zeit zum Theil auf einer Pflanzung^[Trapiche,
 Eigenthum von Don Felix Fereras.] in der Nachbarschaft
-zu, wo Mangobäume und Brodfruchtbäume (<i>Artocarpus incisa</i>)
+zu, wo Mangobäume und Brodfruchtbäume (*Artocarpus incisa*)
 gezogen werden. Letztere waren im sechsten Jahr bereits über 40 Fuß
 hoch. Manche Artocarpusblätter, die wir maßen, waren
 3&nbsp;Fuß lang und 18&nbsp;Zoll breit, bei einem Gewächs aus der
 Familie der Dicotyledonen eine sehr auffallende Größe.
 
 Ich beschließe dieses Kapitel mit einer kurzen Beschreibung
-des spanischen Guyana (<i>Provincia de la Guayana</i>), welche
-einen Theil der alten <i>Capitania general</i> von Caracas ausmacht.
+des spanischen Guyana (*Provincia de la Guayana*), welche
+einen Theil der alten *Capitania general* von Caracas ausmacht.
 Nachdem ich ausführlich berichtet, was die Flüsse
 Apure, Orinoco, Atabapo, Rio Negro und Cassiquiare an
 Momenten zur Geschichte unseres Geschlechts und an Naturerzeugnissen
@@ -6492,37 +6511,37 @@ wie die fabelhaften Seen entstanden sind, die so lange
 unsere Karten verunziert haben.
 
 Seit dem Ende des sechzehnten Jahrhunderts haben hinter
-einander drei Städte den Namen <b>Santo Thome de
-la Guayana</b> geführt. Die erste lag der Insel Faxardo
+einander drei Städte den Namen **Santo Thome de
+la Guayana** geführt. Die erste lag der Insel Faxardo
 gegenüber beim Einfluß des Carony in den Orinoco; sie wurde
 von den Holländern unter dem Befehl des Capitäns Adrian
 Janson im Jahr 1579 zerstört. Die zweite, gegründet im
 Jahr 1591 von Antonio de Berrio, etwa 12 Meilen ostwärts
 vom Einfluß des Carony, wehrte sich muthig gegen Sir
 Walter Ralegh, den die spanischen Geschichtschreiber der Eroberung
-nur unter dem Namen des Corsaren <b>Reali</b> kennen.
+nur unter dem Namen des Corsaren **Reali** kennen.
 Die dritte Stadt, der jetzige Hauptort der Provinz, liegt 52
 Meilen westwärts vom Einfluß des Carony. Sie wurde im
 Jahr 1764 unter dem Statthalter Don Juacquin Moreno
 de Mendoza angelegt, und man unterscheidet sie in den officiellen
 Schriftstücken von der zweiten Stadt, die gewöhnlich
-die Festung (<i>el castillo</i> oder <i>las fortalezas</i>) oder
-Alt-Guayana (<i>Vieja Guayana</i>) heißt, als <b>Santo Thome de la 
-Nueva Guayana</b>. Da dieser Name sehr lang ist, so sagt man
+die Festung (*el castillo* oder *las fortalezas*) oder
+Alt-Guayana (*Vieja Guayana*) heißt, als **Santo Thome de la 
+Nueva Guayana**. Da dieser Name sehr lang ist, so sagt man
 dafür im gemeinen Leben Angostura (Engpaß).^[Daß es
-eine Stadt <b>Angostura</b> gebe,
+eine Stadt **Angostura** gebe,
 erfuhr man in Europa durch
 den Handel der Catalonier mit der
 China vom Rio Carony, welche die heilkräftige
-Rinde der <i>Bonplandia trifoliata</i>
+Rinde der *Bonplandia trifoliata*
 ist. Da diese Rinde von Nueva
-Guayana kam, so nannte man sie <b><i>corteza</i></b>
-oder <b><i>cascarilla del Angostura,
-cortex Angosturae</i></b>.
+Guayana kam, so nannte man sie ***corteza***
+oder ***cascarilla del Angostura,
+cortex Angosturae***.
 Die Botaniker wußten so wenig,
 woher diese geographische Benennung
-rührte, daß sie Anfangs <b>Angustura</b>
-und dann <b>Augusta</b> schrieben.] Die Bevölkerung
+rührte, daß sie Anfangs **Angustura**
+und dann **Augusta** schrieben.] Die Bevölkerung
 dieser Länder weiß kaum, daß die Namen Santiago
 de Leon und Santo Thome auf unsern Karten die beiden
 Hauptstädte von Venezuela und Guyana bedeuten.
@@ -6535,7 +6554,7 @@ stehen auf dem nackten Fels, und hier, wie in Carichana und
 in manchen Missionen, glaubt man, daß durch die schwarzen
 stark von der Sonne erhitzten Steinflächen die Luft ungesund
 werde. Für gefährlicher halte ich die kleinen Lachen stehenden
-Wassers (<i>lagunas y anegadizos</i>), die hinter der Stadt gegen
+Wassers (*lagunas y anegadizos*), die hinter der Stadt gegen
 Südost sich hinziehen. Die Häuser in Angostura sind hoch,
 angenehm und meistens aus Stein. Diese Bauart beweist,
 daß man sich hier zu Lande vor den Erdbeben nicht sehr
@@ -6568,31 +6587,31 @@ ungeheuern von Südwest nach Nordost laufenden Canal darstellt,
 höchst großartig. Nach einem langen Streit über die
 Vertheidigung des Platzes und die Kanonenschußweite wollte
 die Regierung genau wissen, wie breit der Strom bei dem
-Punkte sey, welcher der <b>Engpaß</b> heißt, und wo ein Fels
-liegt (<i>el Peñon</i>), der bei Hochwasser ganz bedeckt wird. 
+Punkte sey, welcher der **Engpaß** heißt, und wo ein Fels
+liegt (*el Peñon*), der bei Hochwasser ganz bedeckt wird. 
 Obgleich bei der Provinzialregierung ein Ingenieur angestellt ist,
 hatte man wenige Monate vor meiner Ankunft in Angostura
 aus Caracas Don Mathias Yturbur hergeschickt, um den
 Orinoco zwischen der geschleiften Schanze San Gabriel und
 der Redoute San Rafael messen zu lassen. Ich hörte in nicht
 zuverlässiger Weise, bei dieser Messung haben sich etwas über
-800 <i>varas castellanas</i> ergeben. Der Stadtplan, welcher
+800 *varas castellanas* ergeben. Der Stadtplan, welcher
 der großen Karte von Südamerika von la Cruz Olmedilla
 beigegeben ist, gibt 940 an. Ich selbst habe den Strom
 zweimal sehr genau trigonometrisch gemessen, einmal beim
 Engpaß selbst zwischen den beiden Schanzen San Gabriel und
 San Rafael, und dann ostwärts von Angostura auf dem
-großen Spaziergang (Alameda) beim <i>Embarcadero del ganado</i>.
+großen Spaziergang (Alameda) beim *Embarcadero del ganado*.
 Ich fand für den ersteren Punkt (als Minimum der
 Breite) 580 Toisen, für letzteren 490. Der Strom ist also
 hier noch immer vier bis fünfmal breiter als die Seine beim
 Pflanzengarten, und doch heißt diese Strecke am Orinoco eine
-Einschnürung, ein <b>Engpaß</b>. Nichts gibt einen besseren 
+Einschnürung, ein **Engpaß**. Nichts gibt einen besseren 
 Begriff von der Wassermasse der großen Ströme Amerikas als
 die Dimensionen dieser sogenannten Engpässe. Der Amazonenstrom
-ist nach meiner Messung beim <b>Pongo</b> de Rentema
-217 Toisen, beim <b>Pongo</b> de Manseriche, nach La Condamine,
-25, und beim <b>Engpaß</b> Pauxis 900 Toisen breit. Letzterer
+ist nach meiner Messung beim **Pongo** de Rentema
+217 Toisen, beim **Pongo** de Manseriche, nach La Condamine,
+25, und beim **Engpaß** Pauxis 900 Toisen breit. Letzterer
 Engpaß ist also beinahe so breit als der Orinoco im Engpaß
 beim Baraguan.^[Ich fand denselben 889 Toisen breit.
 S. Bd. III. Seite 83.]
@@ -6662,8 +6681,8 @@ Man erzählt rührende Fälle, wo afrikanische Sklaven
 ihr Leben aufs Spiel setzten, um ihren Herren das Leben zu
 retten, die in den Rachen eines Krokodils gerathen waren.
 Vor wenigen Jahren ergriff zwischen Uritucu und der Mission
-<i>de abaxo</i> in den Llanos von Calabozo ein Neger auf das
-Geschrei seines Herrn ein langes Messer (<i>machette</i>) und
+*de abaxo* in den Llanos von Calabozo ein Neger auf das
+Geschrei seines Herrn ein langes Messer (*machette*) und
 sprang in den Fluß. Er stach dem Thiere die Augen aus
 und zwang es so, seine Beute fahren zu lassen und sich unter
 dem Wasser zu verbergen. Der Sklave trug seinen sterbenden
@@ -6678,7 +6697,7 @@ Freiheit schenkten.
 Für die Anwohner des Orinoco und seiner Nebenflüsse
 sind die Gefahren, denen sie ausgesetzt sind, ein Gegenstand
 der täglichen Unterhaltung. Sie haben die Sitten des Krokodils
-beobachtet, wie der <b>Torero</b> die Sitten des Stiers.
+beobachtet, wie der **Torero** die Sitten des Stiers.
 Sie wissen die Bewegungen des Thiers, seine Angriffsmittel,
 den Grad seiner Keckheit gleichsam voraus zu berechnen. Sehen
 sie sich angegriffen, so greifen sie mit der Geistesgegenwart
@@ -6717,8 +6736,8 @@ sich aus dem Kampf der Elemente zu retten.
 
 So oft in sehr heißen und nassen Jahren bösartige
 Fieber in Angostura herrschen, streitet man darüber, ob die
-Regierung wohl gethan, die Stadt von <b>Vieja Guayana</b>
-an den <b>Engpaß</b> zwischen der Insel Maruanta und dem
+Regierung wohl gethan, die Stadt von **Vieja Guayana**
+an den **Engpaß** zwischen der Insel Maruanta und dem
 Einfluß des Rio Orocopiche zu verlegen. Man behauptet,
 der alten Stadt seyen, da sie näher an der See gelegen, die
 kühlen Seewinde mehr zu gut gekommen, und die große Sterblichkeit,
@@ -6726,8 +6745,8 @@ die dort geherrscht, sey nicht sowohl örtlichen Ursachen
 als der Lebensweise der Einwohner zuzuschreiben gewesen. An
 den fruchtbaren, feuchten Ufern des Orinoco unterhalb des
 Einflusses des Carony wachsen in überschwenglicher Menge
-Wassermelonen (<i>Patillas</i>), Bananen und Papayas.^[Die Frucht
-der <i>Carica Papaya</i>.] Diese
+Wassermelonen (*Patillas*), Bananen und Papayas.^[Die Frucht
+der *Carica Papaya*.] Diese
 Früchte wurden roh gegessen, sogar unreif, und da das Volk
 zugleich dem Genuß geistiger Getränke übermäßig ergeben war,
 so nahm in Folge dieser unordentlichen Lebensweise die Volkszahl
@@ -6735,8 +6754,8 @@ Jahr um Jahr ab. In den Archiven von Caracas liegen
 eine Menge Schriften, die davon handeln, daß die jeweilige
 Hauptstadt von Guyana nothwendig verlegt werden müsse.
 Nach den mir mitgetheilten Aktenstücken schlug man bald vor,
-wieder in die <b>Fortaleza</b>, das heißt nach <b>Vieja
-Guayana</b> zu ziehen, bald die Hauptstadt ganz nahe an der großen
+wieder in die **Fortaleza**, das heißt nach **Vieja
+Guayana** zu ziehen, bald die Hauptstadt ganz nahe an der großen
 Mündung des Orinoco (zehn Meilen westwärts vom Cap Barima, am
 Einfluß des Rio Acquire) anzulegen, bald sie 25 Meilen unterhalb
 Angostura auf die schöne Savane zu stellen, auf der das
@@ -6758,7 +6777,7 @@ jetzt war die Hauptmasse der Bevölkerung von Guyana in
 den Missionen der catalonischen Kapuziner zwischen den Flüssen
 Carony und Cuyuni. Nun ist aber dieses Gebiet, das wichtigste
 in der ganzen Provinz, wo sich der Feind Hülfsmittel
-aller Art verschaffen kann, eben durch <b>Vieja Guayana</b>
+aller Art verschaffen kann, eben durch **Vieja Guayana**
 geschützt — oder man nimmt dieß doch an — in keiner
 Weise aber durch die Werke der neuen Stadt Angostura.
 
@@ -6777,21 +6796,21 @@ nimmt, kommen, wenn es sich von der Anlage einer
 großen Stadt handelt, zwei Interessen ins Spiel, die militärische
 Vertheidigung und die Rücksicht auf Handel und
 Ackerbau. Der Handel verlangt, daß die Stadt so nahe als
-möglich bei der großen Mündung, der <i>Boca de Navios</i>
+möglich bei der großen Mündung, der *Boca de Navios*
 liege; aus dem Gesichtspunkt der militärischen Sicherung
 stände sie besser oberhalb des Beginns des Delta, westlich
 vom Punkt, wo der Caño Manamo vom Hauptstrom abgeht
 und durch mannigfache Verzweigungen mit den acht kleinen
-Mündungen (<i>Boca chicas</i>) zwischen der Insel Cangrejos
+Mündungen (*Boca chicas*) zwischen der Insel Cangrejos
 und der Mündung des Rio Guarapiche in Verbindung steht.
-Die Lage von <b>Vieja</b> wie von <b>Nueva</b> Guayana entspricht
+Die Lage von **Vieja** wie von **Nueva** Guayana entspricht
 der letzteren Bedingung. Die der alten Stadt hat noch den
 weiteren Vortheil, daß sie in gewissem Grade die schönen
 Niederlassungen der catalonischen Kapuziner am Carony deckt.
 Man könnte dieselben angreifen, wenn man am rechten Ufer
-des <b>Brazo Imataca</b> ans Land ginge; aber die Mündung
+des **Brazo Imataca** ans Land ginge; aber die Mündung
 des Carony, in der die Piroguen die Unruhe des Wassers
-von den nahen Katarakten her (<i>Salto de Carony</i>) spüren,
+von den nahen Katarakten her (*Salto de Carony*) spüren,
 ist durch die Werke von Alt-Guayana vertheidigt.
 
 Ich bin bei dieser Erörterung ins Einzelne gegangen,
@@ -6823,7 +6842,7 @@ bis Angostura hinauf gehen, die andern nähmen ihre Ladung
 im Hafen zunächst der Punta Barima ein, wo sich in Friedenszeit
 die Magazine, die Seilerbahnen und die Werfte befanden.
 Zur Deckung des Landes zwischen der Hauptstadt und
-dem Stapelplatz oder dem <i>Puerto de la Boca grande</i> gegen
+dem Stapelplatz oder dem *Puerto de la Boca grande* gegen
 einen feindlichen Einfall befestigte man die Ufer des Orinoco
 may einem dem Terrain angepaßten Vertheidigungssystem,
 etwa bei Imataca oder Zacupana, bei Barancas oder San
@@ -6839,10 +6858,10 @@ scheinen mir um so dringender geboten, da sie nur zu
 lange vernachlässigt worden sind.^[Man sollte es kaum glauben,
 daß während meines Aufenthalts in
 Angostura die Gesammtvertheidigungsmittel
-der Provinz aus 7 <i>lanchas canoneras</i>
+der Provinz aus 7 *lanchas canoneras*
 und 600 Mann aller Farben und Waffengattungen bestanden,
 eingerechnet die sogenannten Garnisonen
-der vier Grenzforts, der <i>destacamentos</i>
+der vier Grenzforts, der *destacamentos*
 von Nueva Guayana, San Carlos
 del Rio Negro, Guirior und Cuyuni.]
 
@@ -6941,8 +6960,8 @@ begünstigt als die Häfen von Cumana und Nueva Barcelona.
 Der innere Verkehr ist am lebhaftesten mit der Provinz
 Varinas. Aus derselben kommen nach Angostura Maulthiere,
 Cacao, Indigo, Baumwolle und Zucker, und sie erhält dafür
-»<i>Generos</i>,« das heißt europäische Manufakturprodukte. Ich
-sah lange Fahrzeuge (<i>Lanchas</i>) abgehen, deren Ladung auf
+»*Generos*,« das heißt europäische Manufakturprodukte. Ich
+sah lange Fahrzeuge (*Lanchas*) abgehen, deren Ladung auf
 acht bis zehntausend Piaster geschätzt wurde. Diese Fahrzeuge
 fahren zuerst den Orinoco bis Cabruta, dann den Apure bis
 San Vicente, endlich den Rio Santo Domingo bis Torunos
@@ -7022,22 +7041,22 @@ oder vertiefen. Auf diese Weise hat sich unzweifelhaft der
 Hauptstamm des Orinoco 25 Meilen westwärts von der Boca
 de Ravios in zwei Arme, den von Zacupana und den von
 Imataca, getheilt. Das Netz kleinerer Zweige dagegen, die
-gegen Nord vom Flusse abgehen und deren Mündungen <i>bocas
-chicas</i> (die kleinen Mündungen) heißen, scheint mir eine
-Erscheinung, die ganz mit der Bildung der <b>Deltas von
-Nebenflüssen</b> übereinkommt.^[S. über diese Deltas
+gegen Nord vom Flusse abgehen und deren Mündungen *bocas
+chicas* (die kleinen Mündungen) heißen, scheint mir eine
+Erscheinung, die ganz mit der Bildung der **Deltas von
+Nebenflüssen** übereinkommt.^[S. über diese Deltas
 von Nebenflüssen gegenüber den oceanischen
 Deltas Bd. III. 6. IV. 47. 163.] Wenn mehrere hundert
 Meilen von der Küste ein Fluß (z.&nbsp;B. der Apure oder Jupura)
 sich mittelst einer Menge von Zweigen mit einem andern
 Fluß verbindet, so sind diese mannigfachen Gabelungen
 nur Rinnen in einem völlig ebenen Boden. Ebenso verhält
-es sich mit den <b>oceanischen</b> Deltas überall, wo bei
+es sich mit den **oceanischen** Deltas überall, wo bei
 allgemeinen Ueberfluthungen in Zeiten, bevor Orinoco und
 Amazonenstrom bestanden, die Küsten mit erdigen Niederschlägen 
 bedeckt wurden. Ich bezweifle, daß alle oceanischen
 Deltas einst Meerbusen, oder, wie einige neuere Geographen
-sich ausdrücken, <b>negative Deltas</b> waren. Wem einmal
+sich ausdrücken, **negative Deltas** waren. Wem einmal
 die Mündungen des Ganges, des Indus, des Senegal, der
 Donau, des Amazonenstroms, des Orinoco und des Mississippi
 geologisch genauer untersucht sind, wird sich zeigen, daß nicht
@@ -7045,7 +7064,7 @@ alle denselben Ursprung haben; man wird dann zwischen
 Küsten unterscheiden, die in Folge der sich häufenden 
 Anschwemmungen rasch in die See hinaus vorrücken, und Küsten, die
 sich innerhalb des allgemeinen Umrisses der Continente halten;
-man wird unterscheiden zwischen einem, von einem <b>gegabelten</b>
+man wird unterscheiden zwischen einem, von einem **gegabelten**
 Strom gebildeten Landstrich, und den von ein paar
 Seitenarmen durchzogenen Niederungen, die zu einem aufgeschwemmten
 Lande gehören, das mehrere tausend Quadratmeilen
@@ -7058,8 +7077,8 @@ der Mündung des Amazonenstroms vergleichen. Dort liegt
 das aufgeschwemmte Land nördlich, hier südlich vom Hauptstamm
 des Stroms. Aber die Insel Joanes schließt sich
 nach ihrer Form der allgemeinen Bodenbildung in der Provinz
-Maranhao gerade so an, wie die Küste bei den <i>Bocas
-chicas</i> des Orinoco den Küsten am Rio Essequebo und am
+Maranhao gerade so an, wie die Küste bei den *Bocas
+chicas* des Orinoco den Küsten am Rio Essequebo und am
 Meerbusen von Paria. Nichts weist darauf hin, daß einmal
 letzterer Meerbusen südwärts von der Boca de Manamo bis
 Vieja Guayana ins Land hinein gereicht, oder daß der 
@@ -7075,11 +7094,11 @@ liegt, wie man sie sehr weit vom fließenden Wasser
 findet. Die Arme des Orinoco weichen auf 47 Seemeilen
 auseinander; es ist dieß die Breite des oceanischen Deltas
 zwischen Punta Barima und der am weitesten nach West gelegenen
-<i>Boca chica</i>. Dieser Landstrich ist bis jetzt nicht
+*Boca chica*. Dieser Landstrich ist bis jetzt nicht
 genau aufgenommen, und so kennt man auch nicht die Zahl
 der Mündungen. Nach der gemeinen Annahme hat der Orinoco
 ihrer sieben, und dieß erinnert an die im Alterthum so
-berufenen <i>septem ostia Nili</i>. Aber das egyptische Delikt
+berufenen *septem ostia Nili*. Aber das egyptische Delikt
 war nicht immer auf diese Zahl beschränkt, und an den 
 überschwemmten Küsten von Guyana kann man wenigstens elf
 ganz ansehnliche Mündungen zählen. Nach der Boca de Navios,
@@ -7087,11 +7106,11 @@ welche die Schiffer an der Punta Barima erkennen,
 sind vom größten Werth für die Schifffahrt die Bocas Mariusas,
 Macareo, Pedernales und Manamo grande. Der
 Strich des Deltas westwärts von der Boca Macareo wird
-von den Gewässern des Meerbusens von Paria oder <i>Golfo
-triste</i> bespült. Dieses Becken wird durch die Ostküste der
+von den Gewässern des Meerbusens von Paria oder *Golfo
+triste* bespült. Dieses Becken wird durch die Ostküste der
 Provinz Cumana und die Westküste der Insel Trinidad gebildet;
 es steht mit dem Meer der Antillen durch die vielberufenen
-<i>Bocas de Dragos</i> (Mündungen des Drachen) in
+*Bocas de Dragos* (Mündungen des Drachen) in
 Verbindung, welche die Küstenpiloten seit Christoph Columbus
 Zeit ziemlich uneigentlich als die Mündungen des Orinoco
 betrachten.
@@ -7107,25 +7126,25 @@ das Delta bis zur Boca de Mariusas und der Punta Baxa
 läuft, ist ganz niedrig; man erkennt es von weitem nur an
 den Gruppen von Mauritiapalmen, welche die Landschaft
 zieren. Der Baum ist der Sagobaum dieses Landstrichs;^[Das
-nahrhafte Satzmehl oder <i>farine
-médullaire</i> der Sagobäume
+nahrhafte Satzmehl oder *farine
+médullaire* der Sagobäume
 findet sich vorzugsweise bei einer
-Gruppe von Palmen, die Kunth <b>Calameen</b>
+Gruppe von Palmen, die Kunth **Calameen**
 nennt; es kommt indessen auch in
-den Stämmen von <i>Cycas revoluta</i>,
-<i>Pheni farinifera</i>, <i>Corypha
-umbraculifera</i> und <i>Caryoa urens</i>
+den Stämmen von *Cycas revoluta*,
+*Pheni farinifera*, *Corypha
+umbraculifera* und *Caryoa urens*
 vor und wird im indischen Archipel von
 diesen Bäumen gesammelt und in
 den Handel gebracht. Der ächte asiatische
-Sagobaum (<i>Sagus Rumphii</i>,
-oder <i>Metroxylon Sagu</i>, Roxburgh)
+Sagobaum (*Sagus Rumphii*,
+oder *Metroxylon Sagu*, Roxburgh)
 gibt mehr Nahrungsstoff als alle
 andern nutzbaren Gewächse. Von einem
 einzigen Stamm gewinnt man
 im fünfzehnten Jahr zuweilen 600&nbsp;Pfund
 Sago oder Mehl, (denn das
-Wort <i>Sagu</i> bedeutet im amboinischen
+Wort *Sagu* bedeutet im amboinischen
 Dialekt Mehl). Crawfurd, der sich
 so lange auf dem indischen Archipel
 aufgehalten hat, berechnet, daß auf
@@ -7137,10 +7156,10 @@ hoch als beim Getreide, und doppelt
 so hoch als bei der Kartoffel in Frankreich.
 Die Bananen geben auf derselben Bodenfläche
 noch mehr Nahrungsstoff als der Sagobaum.]
-man gewinnt daraus das Mehl zum <b>Yurumabrod</b>, und
-die Mauritia ist keineswegs eine »Küstenpalme«, wie <i>Chamaerops
-humilis</i>, wie der gemeine Cocosbaum und Commersons
-<i>Lodoicea</i>, sondern geht, als »Sumpfpalme«, bis zu
+man gewinnt daraus das Mehl zum **Yurumabrod**, und
+die Mauritia ist keineswegs eine »Küstenpalme«, wie *Chamaerops
+humilis*, wie der gemeine Cocosbaum und Commersons
+*Lodoicea*, sondern geht, als »Sumpfpalme«, bis zu
 den Quellen des Orinoco hinauf.^[S. S. 70.] Während der 
 Ueberschwemmungen nehmen sich diese Mauritiabüsche wie ein Wald
 aus, der aus dem Wasser taucht. Der Schiffer, wenn er bei
@@ -7156,12 +7175,12 @@ schlammigten Boden, auf dem sie in der trockenen Jahreszeit
 umherziehen und auf dem nur sie sicher gehen können, ihrer
 Abgeschiedenheit auf dem Delta des Orinoco, ihrem Leben
 auf den Bäumen, wohin religiöse Schwärmerei schwerlich je
-amerikanische <b>Styliten</b>^[Simeon Sisanites,
+amerikanische **Styliten**^[Simeon Sisanites,
 ein Syrier, war der Stifter dieser Sekte. Er
 brachte in mystischer Beschaulichkeit
 37&nbsp;Jahre auf fünf Säulen zu, von
 denen die letzte 36&nbsp;Ellen hoch war.
-Die <b>Säulenheiligen</b>, <i>sancti columnares</i>,
+Die **Säulenheiligen**, *sancti columnares*,
 wollten auch in Deutschland, im
 Trierschen, ihre luftigen Klöster
 einführen, aber die Bischöfe widersetzten
@@ -7184,7 +7203,7 @@ Palmenart gekettet zu sehen, Insekten gleich, die sich nur von
 Einer Blüthe, vom selben Theil eines Gewächses nähren.
 
 Es ist nicht zu verwundern, daß die Breite der Hauptmündung
-des Orinoco (<i>Boca de Navios</i>) so verschieden geschätzt
+des Orinoco (*Boca de Navios*) so verschieden geschätzt
 wird. Die große Insel Cangrejos ist nur durch einen
 schmalen Canal von dem unter Wasser stehenden Boden getrennt,
 der zwischen den Bocas Nuina und Mariusas liegt,
@@ -7203,8 +7222,8 @@ sollte. Man weiß nach Malaspinas Aufnahme, daß
 der Rio de la Plata von Punta del Este bei Maldonado bis
 zum Cabo San Antonio über 124 Seemeilen (41,3 französische
 Lieues) breit ist; fährt man aber nach Buenos Ayres hinauf,
-so nimmt die Breite so rasch ab, daß sie <i>Colonia del
-Sacramento</i> gegenüber nur noch 21 Seemeilen beträgt. Was man
+so nimmt die Breite so rasch ab, daß sie *Colonia del
+Sacramento* gegenüber nur noch 21 Seemeilen beträgt. Was man
 gemeiniglich die Mündung des Rio de la Plata heißt, ist eben
 ein Meerbusen, in den sich der Uruguay und der Parana
 ergießen, zwei Flüsse, die nicht so breit sind wie der Orinoco.
@@ -7217,7 +7236,7 @@ System des Canals Tagypuru, des Rio Tocantins, des Amazonenstroms
 und des Araguari, die ihre ungeheuren Wassermassen
 vereinigen, so sieht man, daß diese Schätzung rein
 aus der Luft gegriffen ist. Zwischen Macapa und dem westlichen
-Ufer der Insel Marajo (<i>Ilha de Joanes</i>) ist der
+Ufer der Insel Marajo (*Ilha de Joanes*) ist der
 eigentliche Amazonenstrom in zwei Arme getheilt, die zusammen
 nur 32 Seemeilen (11 Lieues) breit sind. Weiter unten läuft
 das Nordufer der Insel Marajo in der Richtung eines Parallels
@@ -7237,7 +7256,7 @@ durch die Ebbe und Fluth des Meeres die Wasser periodisch
 hin und hergetrieben werden; sie weisen uns deutlich darauf
 hin, daß man die Bedeutung eines hydraulischen Systems
 nicht einzig nach der Breite der Mündungen schätzen darf.
-Jede Vorstellung von <b>relativer Größe</b> ist schwankend, so
+Jede Vorstellung von **relativer Größe** ist schwankend, so
 lange man nicht durch Messung der Geschwindigkeit und des
 Flächenraums von Querschnitten die Wassermassen vergleichen
 kann. Leider sind Ausnahmen der Art an Bedingungen geknüpft,
@@ -7285,7 +7304,7 @@ einen Fuß drei Zoll. Diese Schwingungen der Wasserfläche,
 diese Unterbrechung des Laufs sind nicht mit der aufsteigenden
 Fluth zu verwechseln. Bei der großen Mündung des Orinoco
 an Cap Barima beträgt die Fluthhöhe 2&nbsp;bis 3&nbsp;Fuß, dagegen
-weiter gegen Nordwest, im <i>Golfo triste</i>, zwischen der Boca
+weiter gegen Nordwest, im *Golfo triste*, zwischen der Boca
 Pedernales, dem Rio Guarapiche und der Westküste von Trinidad,
 7&nbsp;bis 8, sogar 10&nbsp;Fuß. So viel macht auf einer
 Strecke von 30 bis 40 Meilen der Einfluß des Umrisses der
@@ -7293,15 +7312,15 @@ Küsten aus, sowie der Umstand, daß die Gewässer durch die
 Bocas de Dragos langsamer abfließen. Wenn man in ganz
 neuen Werken angegeben findet, der Orinoco verursache 2&nbsp;bis
 3&nbsp;Grad in die hohe See hinaus besondere Strömungen, die
-Farbe des Seewassers verändere sich dadurch und im <i>Golfo
-triste</i> sey süßes Wasser (Gumillas <i>Mar dulce</i>), so sind
+Farbe des Seewassers verändere sich dadurch und im *Golfo
+triste* sey süßes Wasser (Gumillas *Mar dulce*), so sind
 das lauter Fabeln. Die Strömung geht an dieser ganzen Küste
 von Cap Orange an nach Nordwest, und der Einfluß der
 süßen Gewässer des Orinoco auf die Stärke dieser allgemeinen
 Strömung, auf die Durchsichtigkeit und die Farbe des Meerwassers
 bei reflektirtem Licht ist selten weiter als 3&nbsp;bis 4
 Meilen nordostwärts von der Insel Cangrejos zu spüren.
-Das Wasser im <i>Golfo triste</i> ist gesalzen, nur weniger als
+Das Wasser im *Golfo triste* ist gesalzen, nur weniger als
 im übrigen Meer der Antillen wegen der kleinen Mündungen
 des Orinocodelta und der Wassermasse, welche der Rio Guarapiche
 hineinbringt. Aus denselben Gründen gibt es keine
@@ -7327,15 +7346,15 @@ Ingenieur, Bremontier, hat in neuester Zeit dargethan, daß
 im Bett der Garonne die Fluthwellen wie auf einer geneigten
 Ebene weit über das Niveau der See an der Mündung des
 Flusses hinaufgehen. Im Orinoco kommen die ungleich hohen
-Fluthen von Punta Barima und vom <i>Golfo triste</i> in ungleichen
+Fluthen von Punta Barima und vom *Golfo triste* in ungleichen
 Intervallen durch die große Wasserstraße der Boca
 de Navios und durch die engen, gewundenen, zahlreichen
-<i>bocas chicas</i> herauf. Da diese kleinen Canäle am selben
+*bocas chicas* herauf. Da diese kleinen Canäle am selben
 Punkt, bei San Rafael, vom Hauptstamm abgehen, so wäre
 es von Interesse, die Verzögerung des Eintritts der Fluth
 und die Fortpflanzung der Fluthwellen im Bett des Orinoco
 oberhalb und unterhalb San Rafael, auf der See bei Cap
-Barima und im <i>Golfo triste</i> bei der Boca Manamo zu 
+Barima und im *Golfo triste* bei der Boca Manamo zu 
 beobachten. Die Wasserbaukunst und die Theorie der Bewegung
 von Flüssigkeiten in engen Canälen müßten beide Nutzen aus
 einer Arbeit ziehen, für welche der Orinoco und der Amazonenstrom
@@ -7343,7 +7362,7 @@ besonders günstige Gelegenheit boten.
 
 Bei der Fahrt auf dem Fluß, ob nun die Schiffe durch
 die Boca de Navios einlaufen oder sich durch das Labyrinth
-der <i>bocas chicas</i> wagen, sind besondere Vorsichtsmaßregeln
+der *bocas chicas* wagen, sind besondere Vorsichtsmaßregeln
 erforderlich, je nachdem das Bett voll oder der Wasserstand
 sehr tief ist. Die Regelmäßigkeit, mit der der Orinoco zu
 bestimmten Zeiten anschwillt, war von jeher für die Reisenden
@@ -7368,9 +7387,9 @@ ungleich auch die Regenmenge seyn mag, die im Lauf der
 Jahre in diesem oder jenem Thale fällt, auf den Wasserstand
 der Ströme von langem Lauf haben dergleichen locale Wechsel
 so gut wie keinen Einfluß. Die Anschwellungen sind der Ausdruck
-des <b>mittleren</b> Feuchtigkeitsstandes im ganzen Becken;
+des **mittleren** Feuchtigkeitsstandes im ganzen Becken;
 sie treten Jahr für Jahr in denselben Verhältnissen auf, weil
-ihr Anfang und ihre Dauer eben auch vom <b>Durchschnitt</b>
+ihr Anfang und ihre Dauer eben auch vom **Durchschnitt**
 der scheinbar sehr veränderlichen Epochen des Eintritts und
 des Endes der Regenzeit unter den Breiten, durch welche der
 Hauptstrom und seine Nebenflüsse laufen, abhängig sind. Es
@@ -7402,8 +7421,8 @@ Breite, aber noch innerhalb der Tropen liegt. Der Nil
 und der Rio de la Plata laufen in zwei entgegengesetzten
 Halbkugeln aus der heißen in die gemäßigte Zone.^[In Asien
 laufen der Ganges, der Buramputer und die majestätischen
-indisch-chinesischen Flüsse <b>dem
-Aequator</b> zu. Die ersteren kommen aus
+indisch-chinesischen Flüsse **dem
+Aequator** zu. Die ersteren kommen aus
 der gemäßigten Zone in die heiße. Der
 Umstand, daß die Flüsse entgegengesetzte
 Richtungen haben (dem Aequator oder
@@ -7424,25 +7443,25 @@ das Steigen des Stroms dem periodischen Schmelzen des
 Schnees zu. Dieser Schluß war so unrichtig, als wenn man
 früher den Nil durch das Schneewasser aus Abyssinien austreten
 ließ. Die Cordilleren von Neu-Grenada, in deren
-Nähe die <b>westlichen Nebenflüsse</b> des Orinoco, der Guaviare,
+Nähe die **westlichen Nebenflüsse** des Orinoco, der Guaviare,
 der Meta und der Apure entspringen, reichen, mit
-einziger Ausnahme der <b>Paramos</b> von Chita und Mucuchies,
+einziger Ausnahme der **Paramos** von Chita und Mucuchies,
 so wenig zu der Grenze des ewigen Schnees hinauf als die
 abyssinischen Alpen. Schneeberge sind im heißen Erdstrich
 weit seltener, als man gewöhnlich glaubt; und die Schneeschmelze,
 die in keiner Jahreszeit bedeutend ist, wird zur
 Zeit der Hochwasser des Orinoco keineswegs stärker. Die
 Quellen dieses Stroms liegen (ostwärts von Esmeralda) in
-<b>den Gebirgen der Parime</b>, deren höchste Gipfel nicht
+**den Gebirgen der Parime**, deren höchste Gipfel nicht
 über 1200 bis 1300 Toisen hoch sind, und von Grita bis
 Neiva (von 7½&nbsp;bis 3&nbsp;Grad der Breite) hat der östliche
 Zweig der Cordillere viele Paramos von 1800 bis 1900 Toisen
-Höhe, aber nur Eine Gruppe von <b>Nevados</b>, das heißt
-Bergen, höher als 2400 Toisen, und zwar die fünf <b>Pichacos
-de Chita</b>. In den schneelosen Paramos von Cundinamarca
+Höhe, aber nur Eine Gruppe von **Nevados**, das heißt
+Bergen, höher als 2400 Toisen, und zwar die fünf **Pichacos
+de Chita**. In den schneelosen Paramos von Cundinamarca
 entspringen die drei großen Nebenflüsse des Orinoco von Westen
 her. Nur kleinere Nebenflüsse, die in den Meta und Apure
-fallen, nehmen einige <i>aguas de nieve</i> auf, wie der Rio
+fallen, nehmen einige *aguas de nieve* auf, wie der Rio
 Casanare, der vom Nevado de Chita, und der Rio de Santo
 Domingo, der von der Sierra Nevada de Merida herunterkommt
 und durch die Provinz Varinas läuft.
@@ -7452,7 +7471,7 @@ wirkt in gleichem Maaße auf alle Flüsse, die im heißen Erdstrich
 entspringen. Nach der Frühlings- Tag- und Nachtgleiche
 verkündet das Aufhören der Seewinde den Eintritt der
 Regenzeit. Das Steigen der Flüsse, die man als natürliche
-<b>Regenmesser</b> betrachten kann, ist der Regenmenge, die in
+**Regenmesser** betrachten kann, ist der Regenmenge, die in
 den verschiedenen Landstrichen fällt, proportional. Mitten in
 den Wäldern am obern Orinoco und Rio Negro schienen mir
 über 90 bis 100 Zoll Regen im Jahr zu fallen.^[S. Bd. III.
@@ -7492,8 +7511,8 @@ daß, wenn auch die Form der natürlichen Canäle und locale
 klimatische Verhältnisse eine Verzögerung herbeiführen, die
 große Erscheinung des Steigens und Fallens der Flüsse in
 der heißen Zone sich überall gleich bleibt. Auf den beiden
-Thierkreisen, die man gewöhnlich den <b>tartarischen</b> und
-<b>chaldäischen</b> oder egyptischen nennt (auf dem Thierkreis,
+Thierkreisen, die man gewöhnlich den **tartarischen** und
+**chaldäischen** oder egyptischen nennt (auf dem Thierkreis,
 der das Bild der Ratte, und auf dem, der die Bilder der
 Fische und des Wassermanns hat) beziehen sich besondere 
 Constellationen auf die periodischen Ueberschwemmungen der Flüsse.
@@ -7505,18 +7524,18 @@ durch das Vorrücken der Tag- und Nachtgleichen ein geschichtliches
 Denkmal von hohem Alter wird, weit von Theben und
 dem heiligen Nilthal entstanden seyn. Auf den Thierkreisen
 der neuen Welt, z.&nbsp;B. auf dem mexicanischen, kommen auch
-Zeichen für <b>Regen</b> und <b>Ueberschwemmung</b> vor, die dem
+Zeichen für **Regen** und **Ueberschwemmung** vor, die dem
 Chu (der Ratte) des chinesischen und tibetanischen Cyclus der Tse
 und den Fischen und dem Wassermann des zwölftheiligen
 Thierkreises entsprechen. Diese zwei mexicanischen Zeichen sind
-das <b>Wasser</b> (<i>atl</i>) und der <b>Cipactli</b>,
+das **Wasser** (*atl*) und der **Cipactli**,
 das Seeungeheuer
-mit einem Horn. Dieses Thier ist zugleich die <b>Fischgazelle</b>
-der Hindus, der <b>Steinbock</b> unseres Thierkreises,
-der <b>Deucalion</b>
-der Griechen und der Noah (<i>Coxcox</i>) der Azteken.
-So finden wir denn die allgemeinen Ergebnisse der <b>vergleichenden
-Hydrographie</b> schon aus den astrologischen
+mit einem Horn. Dieses Thier ist zugleich die **Fischgazelle**
+der Hindus, der **Steinbock** unseres Thierkreises,
+der **Deucalion**
+der Griechen und der Noah (*Coxcox*) der Azteken.
+So finden wir denn die allgemeinen Ergebnisse der **vergleichenden
+Hydrographie** schon aus den astrologischen
 Denkmälern, in den Zeiteintheilungen und den religiösen
 Ueberlieferungen von Völkern, die geographisch und dem Grad
 ihrer Geistesbildung nach am weitesten auseinander liegen.
@@ -7550,8 +7569,8 @@ kann, so äußern die Ueberschwemmungen des Orinoco Einfluß
 auf den Amazonenstrom, durch die des letzteren dagegen
 erleiden die Oscillationen des Orinoco keine Störung in ihrem
 Gang. Aus diesen Verhältnissen ergibt sich, daß beim
-Amazonenstrom und dem Orinoco die <b>concaven und die
-convexen Spitzen</b> der Curve, welche der steigende und fallende
+Amazonenstrom und dem Orinoco die **concaven und die
+convexen Spitzen** der Curve, welche der steigende und fallende
 Wasserstand beschreibt, einander sehr regelmäßig entsprechen,
 da sie den sechsmonatlichen Unterschied bezeichnen, der durch
 die Lage der Ströme in entgegengesetzten Hemisphären bedingt
@@ -7638,7 +7657,7 @@ Richtung; bis jetzt aber bezeichnet noch nirgends eine Bake
 die Anschwemmungen, die sich überall im Fluß bilden, wo
 das Wasser seine ursprüngliche Geschwindigkeit verloren hat.
 Südlich vom Cap Barima besteht sowohl über den Fluß
-dieses Namens als über den Rio Moroca und mehrere <i>Esteres (aestuaria)</i> eine Verbindung mit der englischen Colonie
+dieses Namens als über den Rio Moroca und mehrere *Esteres (aestuaria)* eine Verbindung mit der englischen Colonie
 am Essequebo. Man kann mit kleinen Fahrzeugen bis zum
 Rio Poumaron, an dem die alten Niederlassungen Zeland und
 Middelburg liegen, ins Land hinein kommen. Diese Verbindung
@@ -7657,9 +7676,9 @@ Bett des Orinoco zum erstenmal in zwei 2000 Toisen breite
 Arme; dieselben sind unter den indianischen Namen Zacupana
 und Imataca bekannt. Der erstere, nördlichere, steht
 westwärts von den Inseln Cangrejos und Burro mit den
-<i>bocas chicas</i> Lauran, Nuina und Mariusas in Verbindung.
+*bocas chicas* Lauran, Nuina und Mariusas in Verbindung.
 Die Insel Burro verschwindet beim Hochwasser, ist also leider
-nicht zu befestigen. Das südliche Ufer des <i>brazo</i> Imataca
+nicht zu befestigen. Das südliche Ufer des *brazo* Imataca
 ist von einem Labyrinth kleiner Wasserrinnen zerschnitten, in
 welche sich der Rio Imataca und der Rio Aquire ergießen.
 Auf den fruchtbaren Savanen zwischen dem Imataca und dem
@@ -7677,7 +7696,7 @@ Upata hinzieht. Geht man den Rio Aquire hinauf und über
 die Weiden gegen Süd, so kommt man zur Mission Belem
 de Tumeremo und von da an den Zusammenfluß des Curumu
 mit dem Rio Cuyuni, wo früher der spanische Posten
-oder <i>destacamento de Cuyuni</i> lag. Ich mache diese einzelnen
+oder *destacamento de Cuyuni* lag. Ich mache diese einzelnen
 topographischen Angaben, weil der Rio Cuyuni oder
 Cuduvini auf eine Strecke von 2½ bis 3 Längegraden dem
 Orinoco parallel von Ost nach West läuft, und eine vortreffliche
@@ -7692,13 +7711,13 @@ seinem westlichen Ende erscheint eine zweite Gabelung, und
 da die Spitze des Deltas im nördlichen Arm des gegebenen
 Flusses liegt, so ist dieser Theil des Orinoco für die militärische
 Vertheidigung des Landes von großer Bedeutung. Alle
-Canäle, die den <i>bocas chicas</i> zulaufen, entspringen am
+Canäle, die den *bocas chicas* zulaufen, entspringen am
 selben Punkt aus dem Stamme des Orinoco. Der Arm
 (Caño Manamo), der beim Dorfe San Rafael abgeht, verzweigt
 sich erst nach einem Lauf von 3 bis 4 Meilen, und
 ein Werk, das man oberhalb der Insel Chaguanes anlegte,
 würde Angostura gegen einen Feind decken, der durch eine
-der <i>bocas chicas</i> eindringen wollte. Zu meiner Zeit lagen
+der *bocas chicas* eindringen wollte. Zu meiner Zeit lagen
 die Kanonierschaluppen östlich von San Rafael, am nördlichen
 Ufer des Orinoco. Diesen Punkt müssen die Fahrzeuge
 in Sicht bekommen, die durch die nördliche Wasserstraße bei
@@ -7706,8 +7725,8 @@ San Rafael, welche die breiteste, aber seichteste ist, nach
 Angostura hinaufsegeln.
 
 Sechs Meilen oberhalb des Punktes, wo der Orinoco
-einen Zweig an die <i>bocas chicas</i> abgibt, liegt das alte Fort
-(<i>los castillos de la Vieja</i> oder <i>Antigua Guayana</i>), das
+einen Zweig an die *bocas chicas* abgibt, liegt das alte Fort
+(*los castillos de la Vieja* oder *Antigua Guayana*), das
 im sechzehnten Jahrhundert zuerst angelegt wurde. An diesem
 Punkt liegen viele felsigte Eilande im Strom, der hier gegen
 650 Toisen breit seyn soll. Die Stadt ist fast ganz zerstört,
@@ -7736,7 +7755,7 @@ Ist man an den Werken von Vieja Guayana vorbei,
 so wird der Orinoco wieder breiter. Hinsichtlich des Anbaus
 des Landes zeigen beide Ufer einen auffallenden Contrast.
 Gegen Nord sieht man nur den öden Strich der Provinz
-Cumana, die unbewohnten Steppen (<i>Llanos</i>), die sich bis
+Cumana, die unbewohnten Steppen (*Llanos*), die sich bis
 jenseits der Quellen des Rio Maine, dem Plateau oder der
 Mesa von Guanipa zu, erstrecken. Südwärts sieht man drei
 volkreiche Dörfer, die zu den Missionen am Carony gehören,
@@ -7745,8 +7764,8 @@ Dorf, am Carony unmittelbar unterhalb des großen
 Katarakts gelegen, gilt für den Stapelplatz der catalonischen
 Missionen. Fährt man weiter gegen West, so hat der Steuermann
 zwischen der Mündung des Carony und Angostura die
-Klippen Guarampo, die Untiefe des Mamo und die <i>Piedra
-del Rosario</i> zu vermeiden. Ich habe nach dem umfangreichen
+Klippen Guarampo, die Untiefe des Mamo und die *Piedra
+del Rosario* zu vermeiden. Ich habe nach dem umfangreichen
 Material, das ich mitgebracht, und nach den astronomischen
 Untersuchungen, deren Hauptergebnisse ich oben mitgetheilt,
 eine Karte des Landes zwischen dem Delta des Orinoco, dem
@@ -7756,14 +7775,14 @@ europäische Ansiedler die meiste Anziehungskraft haben wird.
 
 In ihrem gegenwärtigen Zustande steht die ganze Bevölkerung
 dieser großen Provinz, mit Ausnahme einiger spanischer
-Kirchspiele (<i>Pueblos y villas de Espanoles</i>), unter
+Kirchspiele (*Pueblos y villas de Espanoles*), unter
 der Regierung zweier Mönchsorden. Schätzt man die Zahl
 der Einwohner von Guyana, die nicht in wilder Unabhängigkeit
 leben, auf 35,000, so leben etwa 24,000 in den Missionen
 und sind dem unmittelbaren Einfluß des weltlichen
 Arms so gut wie entzogen. Zur Zeit meiner Reise hatte das
 Gebiet der Franciskaner von der Congregation der Observanten
-7300 Einwohner, das der <i>Capuchinos catalanes</i>
+7300 Einwohner, das der *Capuchinos catalanes*
 17,000; ein auffallendes Mißverhältniß, wenn man bedenkt,
 wie klein letzteres Gebiet ist gegenüber den ungeheuren 
 Uferstrecken am obern Orinoco, Atabapo, Cassiquiare und Rio
@@ -7773,7 +7792,7 @@ Flächeninhalt zwischen dem Rio Imataca und der Stadt Santo
 Thome de Angostura auf einem 55 Meilen langen und 30
 Meilen breiten Strich zusammengedrängt sind. Diese beiden
 mönchischen Regierungen sind den Weißen gleich unzugänglich
-und bilden einen <i>status in statu</i>.
+und bilden einen *status in statu*.
 Ich habe bisher nach meinen
 eigenen Beobachtungen die der Observanten beschrieben, und
 es bleibt mir jetzt noch übrig mitzutheilen, was ich über das
@@ -7856,7 +7875,7 @@ Canoes der Caraiben wagen sich in diese Raudales oder
 Stromschnellen des Carony hinein. Zum Glück theilt sich der Fluß
 häufig in mehrere Arme, so daß man denjenigen wählen
 kann, der nach dem Wasserstand am wenigsten Wirbel und
-Klippen über dem Wasser hat. Der große <b>Salto</b>, vielberufen
+Klippen über dem Wasser hat. Der große **Salto**, vielberufen
 wegen der malerischen Reize der Landschaft, liegt etwas
 oberhalb des Dorfes Aguacagua oder Carony, das zu meiner
 Zeit eine Bevölkerung von 700 Indianern hatte. Der Wasserfall
@@ -7888,8 +7907,8 @@ unabhängiger Caraiben umher, die schwachen Reste des kriegerischen
 Volksstammes, der sich bis zu den Jahren 1733
 und 1735 den Missionären so furchtbar machte, um welche
 Zeit der ehrwürdige Bischof Gervais de Labrid,^[Von
-Benedikt XIII. zum Bischof für die vier Welttheile (<i>obispo
-para los quatro partes del mundo</i>) geweiht.] Canonicus
+Benedikt XIII. zum Bischof für die vier Welttheile (*obispo
+para los quatro partes del mundo*) geweiht.] Canonicus
 des Metropolitancapitels zu Lyon, der Pater Lopez und
 mehrere andere Geistliche von den Caraiben erschlagen wurden.
 Dergleichen Unfälle, die früher ziemlich häufig vorkamen, sind
@@ -7899,18 +7918,18 @@ Caraiben sind wegen ihres Verkehrs mit den holländischen
 Colonisten am Essequebo für die Regierung von Guyana noch
 immer ein Gegenstand des Mißtrauens und des Hasses. Diese
 Stämme leisten dem Schleichhandel an den Küsten und durch
-die Canäle oder <i>Esteres</i> zwischen dem Rio Barima und dem
+die Canäle oder *Esteres* zwischen dem Rio Barima und dem
 Rio Moroca Vorschub; sie treiben den Missionären das Vieh
-weg und verleiten die neubekehrten Indianer (die <b>unter der
-Glocke</b> leben), wieder in den Wald zu laufen. Die freien
+weg und verleiten die neubekehrten Indianer (die **unter der
+Glocke** leben), wieder in den Wald zu laufen. Die freien
 Horden haben überall den natürlichen Trieb, sich den Fort-
 schritten der Cultur und dem Vordringen der Weißen zu
 widersetzen. Die Caraiben und Aruacas verschaffen sich in
 Essequebo und Demerary Feuergewehre, und als der Handel
-mit amerikanischen Sklaven (<i>poitos</i>) in Blüthe stand, 
+mit amerikanischen Sklaven (*poitos*) in Blüthe stand, 
 betheiligten sich Abenteurer von holländischem Blut an den
 Einfällen an den Paragua, Erevato und Ventuario. Die
-<b>Menschenjagd</b> wurde an diesen Flüssen betrieben, wie
+**Menschenjagd** wurde an diesen Flüssen betrieben, wie
 wahrscheinlich noch jetzt am Senegal und Gambia. In
 beiden Welten haben die Europäer dieselben Kunstgriffe gebraucht,
 dieselben Unthaten begangen, um einen Handel
@@ -7919,32 +7938,32 @@ am Carony und Orinoco schreiben alles Ungemach, das sie
 von den freien Caraiben zu erdulden haben, dem Hasse
 ihrer Nachbarn, der calvinistischen Prädicanten am Essequebo,
 zu. Ihre Schriften sind daher auch voll Klagen über die
-<i>secta diabolica de Calvins y de Lutero</i> und gegen die
+*secta diabolica de Calvins y de Lutero* und gegen die
 Ketzer in holländisch Guyana, die sich zuweilen herausnehmen,
 das Missionswesen zu treiben und Keime der Gesittung unter
 den Wilden ausstreuen zu wollen.
 
 Unter allen vegetabilischen Erzeugnissen dieses Landes ist
 durch die Betriebsamkeit der catalonischen Kapuziner der Baum,
-von dem die <b>Cortex Angosturae</b> kommt, fälschlich »China
+von dem die **Cortex Angosturae** kommt, fälschlich »China
 von Carony« genannt, am berühmtesten geworden. Wir haben
-ihn zuerst als eine neue von der <i>Cinchona</i> ganz verschiedene
+ihn zuerst als eine neue von der *Cinchona* ganz verschiedene
 Gattung der Familie der Meliaceen bekannt gemacht.
 Früher meinte man, dieses wirksame Arzneimittel aus Südamerika
-komme von der <i>Brucea ferruginea</i>, die in Abyssinien
-wächst, von der <i>Magnolia glauca</i> und der <i>Magnolia
-Plumieri</i>. Während der schweren Krankheit meines Reisegefährten
+komme von der *Brucea ferruginea*, die in Abyssinien
+wächst, von der *Magnolia glauca* und der *Magnolia
+Plumieri*. Während der schweren Krankheit meines Reisegefährten
 schickte Navago einen vertrauten Mann in die Missionen
 am Carony und ließ uns durch die Kapuziner in Upata
 blühende Zweige des Baumes verschaffen, den wir wünschten
 beschreiben zu können. Wir bekamen sehr schöne Exemplare,
 deren 18 Zoll lange Blätter einen sehr angenehmen
 aromatischen Geruch verbreiteten. Wir sahen bald, daß der
-<b>Cuspare</b> (dieß ist der indianische Name der Cascarilla oder
-der <i>Corteza del Angostura</i>) eine neue Gattung bildet; und
+**Cuspare** (dieß ist der indianische Name der Cascarilla oder
+der *Corteza del Angostura*) eine neue Gattung bildet; und
 bei Uebersendung von Orinocopflanzen an Willdenow ersuchte
 ich diesen, die Gattung nach Bonpland zu benennen. Der
-jetzt unter dem Namen <i>Bonplandia trifoliata</i> bekannte
+jetzt unter dem Namen *Bonplandia trifoliata* bekannte
 Baum wächst 5 bis 6 Meilen vom östlichen Ufer des Carony
 am Fuß der Hügel, welche die Missionen Copapui, Upata
 und Alta Gracia einschließen. Die Caraiben gebrauchen einen
@@ -7954,19 +7973,19 @@ Meerbusen Santa Fe entdeckt, und dort kann er für Neu-Andalusien
 ein Ausfuhrartikel werden.
 
 Die catalonischen Mönche bereiten ein Extrakt aus der
-<i>Cortex Angosturae</i>, das sie in die Klöster ihrer Provinz
+*Cortex Angosturae*, das sie in die Klöster ihrer Provinz
 versenden und das im nördlichen Europa bekannter zu seyn
 verdiente. Hoffentlich wird die gegen Fieber und Ruhr so
 wirksame Rinde der Bonplandia auch ferner angewendet, obgleich
 man unter dem Namen »falsche Angostura« eine andere
 Rinde eingeführt hat, die mit jener häufig verwechselt wird.
 Diese »falsche Angostura« oder »Angostura pseudo-ferruginosa«
-kommt, wie man behauptet, von der <i>Brucea antidysenterica</i>;
+kommt, wie man behauptet, von der *Brucea antidysenterica*;
 sie wirkt sehr stark auf die Nerven, bringt
 heftige Anfälle von Starrkrampf hervor und enthält nach
 Pelletiers und Caventous Versuchen ein eigenthümliches Alcali,
 das mit dem Morphium und dem Strychnin Aehnlichkeit hat.
-Der Baum, von dem die ächte <i>Cortex Angosturae</i> kommt,
+Der Baum, von dem die ächte *Cortex Angosturae* kommt,
 ist nicht sehr häufig, und es erscheint daher als wünschenswerth,
 daß man ihn anpflanzt. Die catalonischen Ordensleute
 sind ganz dazu geeignet, diesen Culturzweig in Aufnahme
@@ -7989,9 +8008,9 @@ Diese auf ziemlich ungesetzliche Weise geübte Freigebigkeit hatte
 wichtige Folgen. Der Statthalter wurde auf die Klage der
 catalonischen Mönche abgesetzt, obgleich er das Gebiet der
 Missionen gegen Süd bedeutend erweitert und über dem Zusammenfluß
-des Carony mit dem Paragua die <b>Villa</b> Barceloneta
+des Carony mit dem Paragua die **Villa** Barceloneta
 und bei der Vereinigung des Paragua mit dem
-Paraguamusi die <b>Ciudad</b> Guirior gegründet hatte. Seit
+Paraguamusi die **Ciudad** Guirior gegründet hatte. Seit
 jener Zeit bis auf die politischen Stürme, welche gegenwärtig
 in den spanischen Colonien toben, vermied die bürgerliche
 Behörde sorgfältig jede Einmischung in die Angelegenheiten
@@ -8012,10 +8031,10 @@ so bald darauf ausgeht, Erzgruben zu suchen. Deutschlands
 und Mexikos Beispiel beweist allerdings, daß Bergbau und
 eine blühende Landwirthschaft keineswegs unverträglich sind;
 aber nach Volkssagen kommt man über die Ufer des Carony
-zum See Dorado und zum Palast des <b>vergoldeten Mannes</b>,^[<i>El
-Dorado</i>, d. h. <i>el rey ó hombre dorodo.</i> S. Bd. III.
+zum See Dorado und zum Palast des **vergoldeten Mannes**,^[*El
+Dorado*, d. h. *el rey ó hombre dorodo.* S. Bd. III.
 Seite 398.] und da dieser See und dieser Palast ein 
-<b>Localmythus</b>
+**Localmythus**
 sind, so wäre es gefährlich Erinnerungen zu wecken, die
 sich allmählig zu verwischen beginnen. Man hat mich versichert,
 noch bis zum Jahr 1760 seyen die freien Caraiben
@@ -8034,16 +8053,16 @@ zeigte es sich, daß die Kiese keine Spur von Gold enthielten.
 Diese Versuche, so fruchtlos sie waren, riefen den
 alten Aberglauben^[S. Bd. I. 329. II. 245. III. 366.] wach,
 daß in Guyana »jedes glänzende
-Gestein <i>una madre del oro</i> sey.« Man begnügte sich nicht
+Gestein *una madre del oro* sey.« Man begnügte sich nicht
 damit, Glimmerschiefer zu schmelzen; bei Angostura zeigte man
 mir Schichten von Hornblendeschiefer ohne fremdartige Beimengung,
 die man unter dem wunderlichen Namen: schwarzes
-Golderz, <i>oro negro</i>, ausbeutete.
+Golderz, *oro negro*, ausbeutete.
 
 Zur Vervollständigung der Beschreibung des Orinoco
 theile ich an dieser Stelle die Hauptergebnisse meiner 
-Untersuchungen über den <b>Dorado</b>, über das <b>weiße Meer</b>
-oder <b>Laguna Parime</b> und die Quellen des Orinoco mit, wie
+Untersuchungen über den **Dorado**, über das **weiße Meer**
+oder **Laguna Parime** und die Quellen des Orinoco mit, wie
 sie auf den neuesten Karten gezeichnet sind. Die Vorstellung
 von einem überschwenglich reichen Goldlande war seit dem
 Ende des sechzehnten Jahrhunderts mit der andern verbunden,
@@ -8051,7 +8070,7 @@ daß ein großer Binnensee den Orinoco, Rio Branco und
 den Rio Essequebo zugleich mit Wasser speise. Ich glaube
 durch genauere Kenntniß der Oertlichleiten, durch langes,
 mühsames Studium der spanischen Schriftsteller, die vom
-<b>Dorado</b> handeln, besonders aber durch Vergleichung sehr
+**Dorado** handeln, besonders aber durch Vergleichung sehr
 vieler alten, chronologisch geordneten Karten den Quellen
 dieses Irrthums auf die Spur gekommen zu seyn. Allen
 Mährchen liegt etwas Wirkliches zu Grunde; das vom Dorado
@@ -8073,7 +8092,7 @@ und auf den Karten, die gegenwärtig erscheinen, die großen
 Seen und das seltsame Flußnetz auszumerzen, die wie auf
 gerathewohl zwischen dem 60. und 69. Längengrad eingezeichnet
 werden. In Europa glaubt kein Mensch mehr an die Schätze
-in Guyana und an das Reich des großen <b>Patiti</b>. Die
+in Guyana und an das Reich des großen **Patiti**. Die
 Stadt Manoa und ihre mit massiven Goldplatten bedeckten
 Paläste sind längst verschwunden; aber der geographische
 Apparat, mit dem die Sage vom Dorado aufgeputzt war, der
@@ -8100,7 +8119,7 @@ Cayenne betrifft, reine Copien der großen spanischen Karte
 des la Cruz Olmedilla. Eine Linie darauf, welche den Landstrich
 bezeichnet, den Don Jose Solano entdeckt und durch
 seine Truppen und Emissäre zur Ruhe gebracht haben wollte,
-hielt man für den <b>Weg</b>, den der Commissär zurückgelegt,
+hielt man für den **Weg**, den der Commissär zurückgelegt,
 während er nie über San Fernando de Atabapo, das 160
 Meilen vom angeblichen See Parime liegt, hinausgekommen
 ist. Man versäumte es, das Werk des Pater Caulin
@@ -8109,9 +8128,9 @@ Expedition, der nach den Angaben der Indianer sehr klar
 auseinandersetzt, »wie der Name des Flusses Parime das
 Mährchen vom Dorado und einem Binnenmeer veranlaßt hat«.
 Ganz unbenützt ließ man ferner eine Karte vom Orinoco,
-die <b>drei Jahre jünger</b> ist als die von la Cruz; und die
+die **drei Jahre jünger** ist als die von la Cruz; und die
 von Surville nach dem ganzen zuverlässigen wie hypothetischen
-Material in den Archiven des <i>Despacho universal de Indias</i>
+Material in den Archiven des *Despacho universal de Indias*
 gezeichnet wurde. Die Fortschritte der Geographie, soweit
 sie sich auf den Karten zu erkennen geben, sind weit
 langsamer, als man nach der Menge brauchbarer Resultate,
@@ -8165,13 +8184,13 @@ und den Amazonenstrom eingeschlagen, derselbe, auf dem in
 neuester Zeit Ansiedler aus Surinam mit den Bewohnern
 von Gran-Para verkehrt haben.^[S. Seite 194.]
 Dieser Weg schneidet die
-<i>terra incognita</i> der Parime in zwei ungleiche Stücke; 
+*terra incognita* der Parime in zwei ungleiche Stücke; 
 zugleich setzt er den Quellen des Orinoco Grenzen, so daß man
 dieselben nicht mehr nach Belieben gegen Ost schieben kann,
 weil sonst das Bett des obern Orinoco, der von Ost nach
 West läuft, über das Bett des Rio Branco liefe, der von
 Nord nach Süd fließt. Verfolgt man den Rio Branco oder
-den Streifen Bauland, der zur <i>Capitania general</i> von 
+den Streifen Bauland, der zur *Capitania general* von 
 Gran-Para gehört, so sieht man Seen, die von den Geographen
 zum Theil aus der Luft gegriffen, zum Theil vergrößert sind,
 zwei gesonderte Gruppen bilden. Die erste derselben begreift
@@ -8183,16 +8202,16 @@ Aus dieser Uebersicht ergibt sich, daß die Frage, ob es ostwärts
 vom Rio Branco einen See Parime gibt, mit der Frage nach
 den Quellen des Orinoco gar nichts zu thun hat.
 
-Außer dem eben bezeichneten Landstrich (dem <i>Dorado
-de la Parime</i>, durch den der Rio Branco läuft) gibt es
+Außer dem eben bezeichneten Landstrich (dem *Dorado
+de la Parime*, durch den der Rio Branco läuft) gibt es
 260 Meilen gegen West am Ostabhang der Cordilleren der
 Anden ein anderes Land, das in den Expeditionen zur
 Aufsuchung des Dorado ebenso berufen ist. Es ist dieß das
 Mesopotamien zwischen dem Caqueta, dem Rio Negro, dem
 Uaupes und dem Jurubesh, von dem ich oben ausführlich
 gesprochen,^[S. Bd. III. Seite 352 ff.]
-der <b>Dorado der Omaguas</b>, wo der See
-<b>Manoa</b> des Pater Acuña, die <i>laguna de oro</i> der
+der **Dorado der Omaguas**, wo der See
+**Manoa** des Pater Acuña, die *laguna de oro* der
 Guanes-Indianer und das Goldland liegen, aus dem Pater Fritz
 gegen das Ende des siebzehnten Jahrhunderts in seiner Mission
 am Amazonenstrom Goldbleche erhalten hat.
@@ -8203,7 +8222,7 @@ von Neu-Grenada gerichtet. Voll Verwunderung über den
 Bericht eines Indianers aus Tacunga von den Schätzen des
 Königs oder Zague von »Cundirumarca,« schickte Sebastian de
 Belalcazar im Jahr 1535 die Hauptleute Añasco und Ampudia
-aus, das <i>valle del Dorado</i> zu suchen, das zwölf Tagereisen
+aus, das *valle del Dorado* zu suchen, das zwölf Tagereisen
 von Guallabamba, also in den Gebirgen zwischen Pasto
 und Popayan liegen sollte. Die Nachrichten, welche Pedro de
 Añasco von den Eingeborenen eingezogen, in Verbindung mit
@@ -8215,7 +8234,7 @@ und Popayan »weite Ebenen liegen, reich an edlen
 Metallen, wo die Eingeborenen Rüstungen aus massivem Golde
 trügen«. Als man nun diese Schätze aufsuchte, entdeckte Gonzalo
 Pizarro (1539) zufällig den amerikanischen Zimmtbaum
-(<i>Laurus cinnamomoides</i>) und gelangte Francisco de Orellana
+(*Laurus cinnamomoides*) und gelangte Francisco de Orellana
 über den Napo hinunter in den Amazonenstrom. Von da
 an wurden zu gleicher Zeit von Venezuela, Neu-Grenada,
 Quito und Peru, ja von Brasilien und vom Rio de la Plata
@@ -8224,10 +8243,10 @@ Am längsten haben sich die Züge in das Land südlich vom
 Guaviare, Rio Fragua und Caqueta im Gedächtniß erhalten,
 und durch sie vor allen hat das Mährchen von den Schätzen
 der Manaos, der Omaguas und Guaypes, wie von der Existenz
-der <i>Lagunas de oro</i> und der Stadt des <b>vergoldeten
-Königs</b> (der <b>große Patiti</b>, der <b>große Moxo</b>,
-der <b>große
-Paru</b> oder <b>Enim</b>) Verbreitung gefunden. Da Orellana
+der *Lagunas de oro* und der Stadt des **vergoldeten
+Königs** (der **große Patiti**, der **große Moxo**,
+der **große
+Paru** oder **Enim**) Verbreitung gefunden. Da Orellana
 zwischen den Nebenflüssen des Jupura und des Rio Negro
 Götzenbilder von massivem Golde gefunden hatte, so glaubte
 man an ein Goldland zwischen dem Papamene und dem
@@ -8239,8 +8258,8 @@ rein aus geographischem Gesichtspunkt, so sieht man, daß das
 Bestreben der ersten Conquistadoren fortwährend dahin ging,
 zum Landstrich zwischen den Quellen des Rio Negro, des
 Uaupes (Guape) und des Jupura oder Caqueta zu gelangen.
-Diesen Landstrich haben wir oben, zum Unterschied vom <b>Dorado
-der Parime</b>, den <b>Dorado der Omaguas</b> genannt. Allerdings
+Diesen Landstrich haben wir oben, zum Unterschied vom **Dorado
+der Parime**, den **Dorado der Omaguas** genannt. Allerdings
 hieß alles Land zwischen dem Amazonenstrom und dem
 Orinoco im Allgemeinen »Provincias del Dorado;« aber
 auf diesem ungeheuern, mit Wäldern, Savanen und Gebirgen
@@ -8265,22 +8284,22 @@ erst gegen West, dann gegen Nord und endlich gegen Ost
 fließt, liegt seine Mündung fast im selben Meridian wie seine
 Quellen; geht man daher von Alt-Guayana gegen Süd, so
 kommt man über das ganze Land, in das die Geographen
-nach einander ein Binnenmeer (<i>Mar blanco</i>) und die 
-verschiedenen Seen versetzen, die mit der Sage vom <b>Dorado
-der Parime</b> verknüpft sind. Zuerst kommt man an den
+nach einander ein Binnenmeer (*Mar blanco*) und die 
+verschiedenen Seen versetzen, die mit der Sage vom **Dorado
+der Parime** verknüpft sind. Zuerst kommt man an den
 Rio Carony, zu dem zwei fast gleich starke Zweige zusammentreten,
 der eigentliche Carony und der Rio Paragua. Die
 Missionäre von Piritu nennen letzteren Fluß einen See
-(<i>laguna</i>). Er ist voll Klippen und kleiner Wasserfälle;
+(*laguna*). Er ist voll Klippen und kleiner Wasserfälle;
 »da er aber über ein völlig ebenes Land läuft, tritt er zugleich
-häufig sehr stark aus und man kann sein eigentliches Bett (<i>su
-verdadera caxa</i>) kaum erkennen«. Die Eingeborenen nennen
-ihn <b>Paragua</b> oder <b>Parava</b>, was auf caraibisch
-<b>Meer</b> oder <b>großer See</b> bedeutet. Diese örtlichen
+häufig sehr stark aus und man kann sein eigentliches Bett (*su
+verdadera caxa*) kaum erkennen«. Die Eingeborenen nennen
+ihn **Paragua** oder **Parava**, was auf caraibisch
+**Meer** oder **großer See** bedeutet. Diese örtlichen
 Verhältnisse und diese Benennung sind ohne Zweifel die
 Veranlassung geworden,
 daß man aus dem Rio Paragua, einem Nebenfluß des Carony,
-einen See gemacht und denselben <b>Cassipa</b> genannt hat, nach
+einen See gemacht und denselben **Cassipa** genannt hat, nach
 den Cassipagotos, die in der Gegend wohnten. Ralegh gab
 diesem Wasserbecken 13 Meilen Breite, und da alle Seen der
 Parime Goldsand haben müssen, so ermangelt er nicht zu versichern,
@@ -8296,7 +8315,7 @@ und 15 Meilen Breite. Die alten Geographen kümmern sich
 wenig darum, ob sie die Zuflüsse an beiden Ufern immer in
 derselben Weise einander gegenübersetzen, und so geben sie
 die Mündung des Carony und den See Cassipa, der durch den
-Carony mit dem Orinoco zusammenbringt, zuweilen <b>oberhalb</b>
+Carony mit dem Orinoco zusammenbringt, zuweilen **oberhalb**
 des Einflusses des Meta an. So schiebt Hondius den See
 bis zum 2.&nbsp;und 3.&nbsp;Breitengrad hinunter und gibt ihm die
 Gestalt eines Rechtecks, dessen größten Seiten Von Nord nach
@@ -8321,8 +8340,8 @@ Ich habe hiemit den Ursprung der Fabel vom See Cassipa
 erklärt, so wie den Einfluß, den sie auf die Vorstellung
 gehabt, als ob der Orinoco aus dem See Parime entspränge.
 Sehen wir jetzt, wie es sich mit dem letzteren Wasserbecken
-verhält, mit dem angeblichen <b>Binnenmeer</b>, das bei den
-Geographen des sechzehnten Jahrhunderts <b>Rupunuwini</b> heißt.
+verhält, mit dem angeblichen **Binnenmeer**, das bei den
+Geographen des sechzehnten Jahrhunderts **Rupunuwini** heißt.
 Unter dem 4.&nbsp;oder 4½&nbsp;Grad der Breite (leider fehlt es
 in dieser
 Richtung, südlich von Santo Thome de Angostura, auf 8&nbsp;Grade
@@ -8348,10 +8367,10 @@ Dieser Isthmus zwischen den Zweigen des Rio Essequebo
 und des Rio Branco (das heißt zwischen dem Rupunuwini
 einerseits, und dem Pirara, Mahu und Uraricuera oder Rio
 Parime andererseits) ist als der eigentliche classische Boden
-des <b>Dorado der Parime</b> zu betrachten. Am Fuße der
+des **Dorado der Parime** zu betrachten. Am Fuße der
 Berge von Pacaraimo treten die Flüsse häufig aus, und oberhalb
 Santa Rosa heißt das rechte Ufer des Urariapara, der
-sich in den Utaricuera ergießt, »<i>el valle de la inundacion</i>«.
+sich in den Utaricuera ergießt, »*el valle de la inundacion*«.
 Ferner findet man zwischen dem Rio Parime und dem Xurumu
 große Lachen; auf den in neuester Zeit in Brasilien
 gezeichneten Karten, die über diesen Landstrich sehr genau sind,
@@ -8369,33 +8388,33 @@ entdeckt hat, kommt diesem See ganz nahe, steht aber in
 keiner Verbindung mit demselben. Der Trageplatz zwischen
 dem Rupunuwini und dem Mahu liegt weiter gegen Nord,
 wo der Berg Ucucuamo sich erhebt, der bei den Eingeborenen
-noch jetzt der <b>Goldberg</b> heißt. Sie gaben Hortsmann den
+noch jetzt der **Goldberg** heißt. Sie gaben Hortsmann den
 Rath, um den Rio Mahu herum eine Silbergrube (ohne Zweifel
 großblätteriger Glimmer), Diamanten und Smaragde zu
 suchen; der Reisende fand aber nichts als Bergkrystall. Aus
 seinem Bericht scheint hervorzugehen, daß der ganze nach Ost
-streichende Zug der Gebirge am obern Orinoco (<i>Sierra Parime</i>)
+streichende Zug der Gebirge am obern Orinoco (*Sierra Parime*)
 aus Graniten besteht, in denen, wie am Pic Duida,^[S. Seite 73.]
 häufig Drusen und offene Gänge vorkommen. In dieser Gegend, die
 noch immer für sehr goldreich gilt, leben an der Westgrenze
 von holländisch Guyana die Macusis, Aturajos und Acuvajos;
 später fand Santos diese Völkerschaften zwischen dem Rupunuwini,
 dem Mahu und der Bergkette Pacaraimo angesiedelt.
-<b>Das glimmerreiche Gestein am Berg Ucucuamo,
+**Das glimmerreiche Gestein am Berg Ucucuamo,
 der Name des Rio Parime, das Austreten der Flüsse
 Urariapara, Parime und Xurumu, besonders aber
 der See Amucu (der nahe beim Rio Rupunuwini
 liegt und für die Hauptquelle des Rio Parime
 gilt) haben die Fabel vom weißen Meer und dem
-Dorado der Parime veranlaßt</b>. Alle diese Momente
+Dorado der Parime veranlaßt**. Alle diese Momente
 (und eben dadurch wirkten sie zu Einer Vorstellung zusammen)
 finden sich auf einer von Nord nach Süd 8 bis 9 Meilen
 breiten, von Ost nach West 40 Meilen langen Strecke neben
 einander. Diese Lage gab man auch bis zum Anfang des
-sechzehnten Jahrhunderts dem <b>weißen Meer</b>, nur daß man
-es in der Richtung eines Parallels verlängerte. Dieses <b>weiße
-Meer</b> ist nun aber nichts anderes als der Rio Parime, der
-auch <b>weißer Fluß, Rio Branco</b> oder <i>de aguas blancas</i>
+sechzehnten Jahrhunderts dem **weißen Meer**, nur daß man
+es in der Richtung eines Parallels verlängerte. Dieses **weiße
+Meer** ist nun aber nichts anderes als der Rio Parime, der
+auch **weißer Fluß, Rio Branco** oder *de aguas blancas*
 heißt und diesen ganzen Landstrich, über den er läuft, unter
 Wasser setzt. Auf den ältesten Karten heißt das weiße Meer
 Rupunuwini, und daraus geht hervor, daß die Sage eben
@@ -8407,15 +8426,15 @@ Parime, den er für gesalzen hielt und den er »ein zweites
 caspisches Meer« nennt. Erst bei der zweiten, gleichfalls auf 
 Raleghs Kosten unternommenen Reise (1596) gab Lawrence Keymis
 die Oertlichkeiten des Dorado so bestimmt an, daß, wie mir
-dünkt, an der Identität der <b>Parime de Manoa</b> mit dem
+dünkt, an der Identität der **Parime de Manoa** mit dem
 See Amucu und dem Isthmus zwischen dem Rupunuwini
 (der in den Essequebo läuft) und dem Rio Parime oder Rio
 Branco gar nicht zu zweifeln ist. »Die Indianer,« sagt
 Keymis, »fahren den Essequebo südwärts in zwanzig Tagen
 hinauf. Um die Stärke des Flusses anzudeuten, nennen sie
-ihn den <b>Bruder des Orinoco</b>. Nach zwanzigtägiger Fahrt
-schaffen sie ihre Canoes über einen Trageplatz <b>in einem 
-einzigen Tage</b> aus dem Flusse Dessekebe auf einen See, den die
+ihn den **Bruder des Orinoco**. Nach zwanzigtägiger Fahrt
+schaffen sie ihre Canoes über einen Trageplatz **in einem 
+einzigen Tage** aus dem Flusse Dessekebe auf einen See, den die
 Jaos Roponowini, die Caraiben Parime nennen. Dieser See
 ist groß wie ein Meer; es fahren unzählige Canoes darauf,
 und ich vermuthe (die Indianer hatten ihm also nichts davon
@@ -8430,35 +8449,35 @@ Umstand, daß die Caraiben den westlichen Zweig des Rio
 Branco ebenso nennen, hat vielleicht so viel dazu beigetragen,
 den See Amucu in der Einbildung zu vergrößern, als die 
 Ueberschwemmungen der verschiedenen Nebenflüsse des Uraricuera von
-der Mündung des Tacutu bis zum <i>valle de la inundacion</i>.
+der Mündung des Tacutu bis zum *valle de la inundacion*.
 
 Wir haben oben gesehen, daß die Spanier den Rio
 Paragua oder Parava, der in den Carony fällt, für einen
-See hielten, weil das Wort <i>Parava</i> <b>Meer, See, Fluß</b>
-bedeutet. Ebenso scheint Parime <b>großes Wasser</b> im 
-Allgemeinen zu bedeuten, denn die Wurzel <i>par</i> kommt in 
+See hielten, weil das Wort *Parava* **Meer, See, Fluß**
+bedeutet. Ebenso scheint Parime **großes Wasser** im 
+Allgemeinen zu bedeuten, denn die Wurzel *par* kommt in 
 caraibischen Benennungen von Flüssen, Lachen, Seen und Meeren
-Vor. Im Arabischen und im Persischen dienen ebenso <i>bahr</i>
-und <i>deria</i> gleichmäßig zur Bezeichnung des Meeres, der
+Vor. Im Arabischen und im Persischen dienen ebenso *bahr*
+und *deria* gleichmäßig zur Bezeichnung des Meeres, der
 Seen und der Flüsse, und dieser Brauch, der sich bei vielen
 Völkern in beiden Welten findet, hat auf den alten Karten
 Seen in Flüsse und Flüsse in Seen umgewandelt. Zur Bekräftigung
 des eben Gesagten führe ich einen sehr achtbaren
 Zeugen auf, Pater Caulin. »Als ich,« sagt dieser Missionär,
 der sich länger als ich am untern Orinoco aufgehalten hat,
-»die Indianer fragte, was denn <b>die Parime</b> sey, so erwiederten sie, es sey nichts als ein Fluß, der aus einer
+»die Indianer fragte, was denn **die Parime** sey, so erwiederten sie, es sey nichts als ein Fluß, der aus einer
 Bergkette komme, an deren anderem Abhang der Essequebo
 entspringe.« Caulin weiß nichts vom See Amucu, und erklärt
 den Glauben an ein Binnenmeer nur aus den Ueberschwemmungen
-der Ebenen, <i>a las inundaciones dilatadas
-per los bajos del pays</i>.^[Dieß ist auch Walkenaers und
+der Ebenen, *a las inundaciones dilatadas
+per los bajos del pays*.^[Dieß ist auch Walkenaers und
 Malte Bruns Ansicht.] Ihm zufolge rühren alle Mißgriffe
 der Geographen von dem leidigen Umstand her, daß
 alle Flüsse in Guyana an ihren Mündungen andere Namen
 haben als an ihren Quellen. »Ich zweifle nicht,« sagt er
 weiter, »daß einer der obern Zweige des Rio Branco derselbe
 Rio Parime ist, den die Spanier für einen See gehalten
-haben (<i>a quien suponian laguna</i>).« Diese Notizen
+haben (*a quien suponian laguna*).« Diese Notizen
 hatte der Geschichtschreiber der Grenzexpedition an Ort und
 Stelle gesammelt, und er hätte wohl nicht geglaubt, daß la
 Cruz und Surville richtige Begriffe und alte Vorstellungen
@@ -8467,11 +8486,11 @@ Blanco wieder zum Vorschein bringen würden. So kommt
 es, daß, obgleich ich seit meiner Rückkehr aus Amerika vielfach
 den Beweis geführt, daß ein Binnenmeer, aus dem der
 Orinoco entspränge, gar nicht existirt, in neuester Zeit unter
-meinem Namen eine Karte^[<i>Carte de l’Amérique, dressé sur les
+meinem Namen eine Karte^[*Carte de l’Amérique, dressé sur les
 observations de Mr. de
-Humboldt, par Fried</i>. Wien 1818.] erschienen ist,
-auf der die <i>Laguna
-de Parime</i> wiederum auftritt.
+Humboldt, par Fried*. Wien 1818.] erschienen ist,
+auf der die *Laguna
+de Parime* wiederum auftritt.
 
 Aus allem Bisherigen geht hervor: 1) daß die Laguna
 Rupunuwini oder Parime aus Raleghs Reise und auf den
@@ -8488,14 +8507,14 @@ des Mahu mit dem Xurumu ist. Von der Mündung
 des Mahu bis zu der des Tacutu beträgt die Entfernung
 kaum 0°40′; la Cruz macht 7&nbsp;Breitengrade daraus. Er nennt
 das obere Stück des Rio Branco (in das der Mahu fällt)
-Orinoco oder <b>Puruma</b>. Dieß ist ohne allen Zweifel der
-<b>Xurumu</b>, ein Nebenfluß des Tacutu, der den Einwohnern
+Orinoco oder **Puruma**. Dieß ist ohne allen Zweifel der
+**Xurumu**, ein Nebenfluß des Tacutu, der den Einwohnern
 des benachbarten Forts San Joaquim wohl bekannt ist. Alle
 Namen, die in der Sage vom Dorado vorkommen, finden
 sich unter den Nebenflüssen des Rio Branco. Geringfügige
 örtliche Verhältnisse und die Erinnerung an den Salzsee in
-Mexico, zumal aber an den See Manoa im <b>Dorado der
-Omaguas</b> wirkten zusammen zur Ausmalung eines Bildes,
+Mexico, zumal aber an den See Manoa im **Dorado der
+Omaguas** wirkten zusammen zur Ausmalung eines Bildes,
 das der Einbildungskraft Raleghs und seiner beiden 
 Unterbefehlshaber, Keymis und Masham, den Ursprung verdankt.
 Nach meiner Ansicht lassen sich die Ueberschwemmungen des
@@ -8507,20 +8526,20 @@ des Rio Paraguay haben in
 der südlichen Halbkugel lange dieselbe
 Rolle gespielt wie der See Parime
 in der nördlichen. Hondius und Sanson
-ließen aus der <i>Lugano de los
-Xarayes</i> den Rio de la Plata, den
+ließen aus der *Lugano de los
+Xarayes* den Rio de la Plata, den
 Rio Topajos (einen Nebenfluß des
 Amazonenstroms), den Rio Tocantinos
 und den Rio de San Francisco entspringen.]
 
-Wir haben im Bisherigen ein <b>weißes Meer</b> besprochen,
+Wir haben im Bisherigen ein **weißes Meer** besprochen,
 durch das man den Hauptstamm des Rio Branco laufen läßt,
 und ein zweites,^[Survilles See, der für den See Amucu steht.]
 das man ostwärts von diesem Flusse setzt,
 und das mit demselben mittelst des Caño Pirara zusammenhängt.
 Noch gibt es einen dritten See,^[Der See, den Surville
-<i>Laguna tenida hasta ahora por la Laguna
-Parime</i> nennt.] den man westwärts
+*Laguna tenida hasta ahora por la Laguna
+Parime* nennt.] den man westwärts
 vom Rio Branco verlegt, und über den ich erst kürzlich 
 interessante Angaben im handschriftlichen Tagebuch des Chirurgen
 Hortsmann gefunden habe. »Zwei Tagereisen unterhalb des
@@ -8545,25 +8564,25 @@ Esmeralda, zu suchen ist.
 
 Die meisten Geschichtschreiber, welche die ersten Jahrhunderte
 nach der Eroberung beschrieben haben, schienen der
-festen Ansicht, daß die Namen <b>Provincias</b> und <b>Pais
-del Dorado</b> ursprünglich jeden goldreichen Landstrich 
+festen Ansicht, daß die Namen **Provincias** und **Pais
+del Dorado** ursprünglich jeden goldreichen Landstrich 
 bedeuteten. Sie vergessen den etymologischen Sinn des Wortes
-<b>Dorado</b> (<b>der Vergoldete</b>) und bemerken nicht, daß diese
+**Dorado** (**der Vergoldete**) und bemerken nicht, daß diese
 Sage ein Localmythus ist, wie ja auch fast alle Mythen der
-Griechen, Hindus und Perser. Die Geschichte vom <b>vergoldeten
-Mann</b> ist ursprünglich in den Anden von Neu-Grenada
+Griechen, Hindus und Perser. Die Geschichte vom **vergoldeten
+Mann** ist ursprünglich in den Anden von Neu-Grenada
 zu Hause, besonders aus den Niederungen am Ostabhange
 derselben; nur allmählig, wie ich oben gezeigt, sieht
 man sie 300 Meilen gegen Ost-Nord-Ost von den Quellen
 des Caqueta an die des Rio Branco und des Essequebo herüberrücken.
 Man hat in verschiedenen Gegenden von Südamerika
 bis zum Jahr 1536 Gold gesucht, ohne daß das
-Wort <b>Dorado</b> ausgesprochen worden wäre, und ohne daß
+Wort **Dorado** ausgesprochen worden wäre, und ohne daß
 man an die Existenz eines andern Mittelpunktes der Cultur
 und der Schätze als das Reich der Inca von Cuzco geglaubt
 hätte. Länder, aus denen gegenwärtig auch nicht die kleinste
 Menge edlen Metalls in den Handel kommt, die Küste von
-Paria, Terra Firma (<i>Castilla del Oro</i>), die Berge von
+Paria, Terra Firma (*Castilla del Oro*), die Berge von
 St.&nbsp;Martha und die Landenge Darien waren damals so
 vielberufen, wie in neuerer Zeit der goldhaltige Boden in
 Senora, Choco und Brasilien.
@@ -8585,7 +8604,7 @@ den wir vom Orinoco zurückgebracht, und den La Condamine
 an der Mündung des Rio Topayos in Menge angetroffen.^[S. Bd. III. Seite 392 ff.]
 Die Indianer sagten Diego de Ordaz, »wenn er so und so
 viele Sonnen gegen West hinauffahre, komme er an einen
-großen Fels (<i>peña</i>) von grünem Gestein«; bevor er aber
+großen Fels (*peña*) von grünem Gestein«; bevor er aber
 diesen vermeintlichen Smaragdberg (Euphotitgestein?) erreichte,
 machte ein Schiffbruch allen weiteren Entdeckungen ein Ende.
 Mit genauer Noth retteten sich die Spanier in zwei kleinen
@@ -8593,8 +8612,8 @@ Fahrzeugen. Sie eilten, aus der Mündung des Amazonenstroms
 hinauszukommen, und die Strömungen, die in diesen
 Strichen stark nach Nordwest gehen, führten Ordaz an die
 Küste von Paria oder auf das Gebiet des Caziken von Yuripari
-(Uriapari, Viapari). Sedeño hatte die <i>Casa fuerte de
-Paria</i> gebaut, und da dieser Posten ganz nahe an der Mündung
+(Uriapari, Viapari). Sedeño hatte die *Casa fuerte de
+Paria* gebaut, und da dieser Posten ganz nahe an der Mündung
 des Orinoco lag, beschloß der mexikanische Conquistador,
 eine Expedition auf diesem großen Strom zu versuchen.
 Er hielt sieh zuerst in Carao (Caroa, Carora) auf, einem
@@ -8615,12 +8634,12 @@ aufzugeben.
 Auf diesem Zuge, der lange vor den des Orellana fällt
 und also der bedeutendste war, den die Spanier bis dahin
 auf einem Strome der neuen Welt unternommen, hörte man
-zum erstenmal den Namen <b>Orinoco</b> aussprechen. Ordaz,
+zum erstenmal den Namen **Orinoco** aussprechen. Ordaz,
 der Anführer der Expedition, versichert, von der Mündung
-bis zum Einfluß des Meta heiße der Strom <b>Uriaparia</b>,
-oberhalb dieses Einflusses aber <b>Orinucu</b>. Dieses Wort 
-(ähnlich gebildet wie die Worte <b>Tamanacu</b>, <b>Otomacu</b>,
-<b>Sinarucu</b>) gehört wirklich der tamanakischen Sprache an, und
+bis zum Einfluß des Meta heiße der Strom **Uriaparia**,
+oberhalb dieses Einflusses aber **Orinucu**. Dieses Wort 
+(ähnlich gebildet wie die Worte **Tamanacu**, **Otomacu**,
+**Sinarucu**) gehört wirklich der tamanakischen Sprache an, und
 da die Tamanacas süd-östlich von Encaramada wohnen, so ist
 es natürlich, daß die Conquistadoren den jetzigen Namen des
 Stromes erst in der Nähe des Rio Meta zu hören bekamen.
@@ -8630,7 +8649,7 @@ den Hochebenen der Anden von Neu-Grenada wohnten, »von
 einem gewaltigen, einäugigen Fürsten und von Thieren, kleiner
 als Hirsche, auf denen man aber reiten könne, wie die
 Spanier auf den Pferden.« Ordaz zweifelte nicht, daß diese
-Thiere Llamas oder <i>Ovejas del Peru</i> seyen. Soll man
+Thiere Llamas oder *Ovejas del Peru* seyen. Soll man
 annehmen, daß die Llamas, die man in den Anden vor dem
 Pflug und als Lastthiere, aber nicht zum Reiten brauchte,
 früher nördlich und östlich von Quito verbreitet gewesen? Ich
@@ -8668,7 +8687,7 @@ Meta sehr berühmt war, weil seine Quellen und seine Nebenflüsse
 den goldhaltigen Cordilleren von Neu-Grenada (Cundinamarca)
 nahe liegen, so versuchte er ihn hinaufzufahren. Er
 fand daselbst civilisirtere Völker als am Orinoco, die aber
-das Fleisch <b>stummer Hunde</b> aßen.^[S. Seite 189 ff.]
+das Fleisch **stummer Hunde** aßen.^[S. Seite 189 ff.]
 In einem Gefecht
 wurde Herera durch einen mit Curaresaft (Yierva) vergifteten
 Pfeile getödtet; sterbend ernannte er Alvaro de Ordaz zu
@@ -8706,7 +8725,7 @@ genannt, südöstlich vom Paramo de la Suma Paz. Ich war
 am Westabhang dieses Bergstocks, in Fusagasuga, und hörte,
 die Ebenen gegen Ost am Fuß der Berge seyen noch jetzt bei
 den Eingeborenen wegen ihres Reichthums berufen. Im volkreichen
-Dorfe Fragua fand Speier eine <i>Casa del Sol</i> (Sonnentempel)
+Dorfe Fragua fand Speier eine *Casa del Sol* (Sonnentempel)
 und ein Jungfrauenkloster, ähnlich denen in Peru
 und Neu-Grenada. Hatte sich hier der Cultus gegen Ost
 ausgebreitet, oder sind etwa die Ebenen bei San Juan die
@@ -8734,12 +8753,12 @@ Mittelpunkt der Cultur in Cundinamarca.
 Ich habe bis jetzt aus geographischem Gesichtspunkt die
 Reisen besprochen, welche auf dem Orinoco und gegen West
 und Süd an den Ostabhang der Anden unternommen wurden,
-bevor sich die Sage vom <b>Dorado</b> unter den Conquistadoren
+bevor sich die Sage vom **Dorado** unter den Conquistadoren
 verbreitet hatte. Diese Sage stammt, wie wir oben
 angeführt, aus dem Königreich Quito, wo Luis Daça im
 Jahr 1535 einen Indianer aus Neu-Grenada traf, der von
-seinem Fürsten (ohne Zweifel vom <b>Zippa</b> von Bogota oder
-vom <b>Zaque</b> von Tunja) abgesandt war, um von Atahualpa,
+seinem Fürsten (ohne Zweifel vom **Zippa** von Bogota oder
+vom **Zaque** von Tunja) abgesandt war, um von Atahualpa,
 dem Inca von Peru, Kriegshülfe zu erbitten. Dieser Abgesandte
 pries, wie gewöhnlich, die Schätze seiner Heimath;
 was aber den Spaniern, die mit Daça in der Stadt Tacunga
@@ -8752,14 +8771,14 @@ wo das geistliche und das weltliche Haupt des Reiches Cundinamarca
 oder Cundirumarca ihren Sitz hatten; da sich
 aber keinerlei geschichtliche Erinnerung an diesen See knüpft,
 so glaube ich vielmehr, daß mit dem, in welchen man den
-<b>vergoldeten großen Herrn</b> gehen ließ, der <b>heilige See
-Guatavita</b>, ostwärts von den Steinsalzgruben von Zipaquira,
+**vergoldeten großen Herrn** gehen ließ, der **heilige See
+Guatavita**, ostwärts von den Steinsalzgruben von Zipaquira,
 gemeint ist. Ich sah am Rande dieses Wasserbeckens
 die Reste einer in den Fels gehauenen Treppe, die bei den
 gottesdienstlichen Waschungen gebraucht wurde. Die Indianer
 erzählen, man habe Goldstaub und Goldgeschirr hineingeworfen,
-als Opfer für die Götzen des <i>adoratorio de
-Guatavita</i>. Man sieht noch die Spuren eines Einschnitts,
+als Opfer für die Götzen des *adoratorio de
+Guatavita*. Man sieht noch die Spuren eines Einschnitts,
 den die Spanier gemacht, um den See trocken zu legen. Da
 der Sonnentempel von Sogamozo den Nordküsten von Terra
 Firma ziemlich nahe liegt, so wurden die Vorstellungen vom
@@ -8773,12 +8792,12 @@ suchte Gonzalo Pizarro, als er den Landstrich entdeckte, wo
 die Zimmtbäume wachsen, zugleich »einen großen Fürsten,
 von dem hier zu Lande viel die Rede geht, der immer mit
 Goldstaub überzogen ist, so daß er vom Kopf zum Fuß aussieht
-wie <i>una figura. d’oro lavorata di mano d’un buonissimo
-orifice</i>. Der Goldstaub wird mittelst eines wohlriechenden 
-Harzes am Leibe befestigt; da aber diese Art <b>Anzug</b>
+wie *una figura. d’oro lavorata di mano d’un buonissimo
+orifice*. Der Goldstaub wird mittelst eines wohlriechenden 
+Harzes am Leibe befestigt; da aber diese Art **Anzug**
 ihm beim Schlafen unbequem wäre, so wascht sich der
 Fürst jeden Abend und läßt sich Morgens wieder vergolden,
-welches beweist, daß das Reich des <b>Dorado</b> ungemein viele
+welches beweist, daß das Reich des **Dorado** ungemein viele
 Goldgruben haben muß.« Es ist ganz wohl anzunehmen,
 daß unter den von Bochica eingeführten gottesdienstlichen
 Ceremonien eine war, die zu einer so allgemein verbreiteten
@@ -8791,12 +8810,12 @@ alten Einwohnern von Anahuac herrühren und in ihren
 gottesdienstlichen Büchern aufbehalten sind.
 
 Am Rio Caura und in andern wilden Landstrichen von
-Guyana, wo der Körper <b>bemalt</b> statt <b>tätowirt</b> wird,
+Guyana, wo der Körper **bemalt** statt **tätowirt** wird,
 reiben sich die Eingeborenen mit Schildkrötenfett ein und
 kleben sich metallisch glänzende, silberweiße und kupferrothe
 Glimmerblättchen auf die Haut. Von weitem sieht dieß aus,
 als trügen sie mit Borten besetzte Kleider. Der Sage vom
-<b>vergoldeten Mann</b> liegt vielleicht ein ähnlicher Brauch zu
+**vergoldeten Mann** liegt vielleicht ein ähnlicher Brauch zu
 Grunde, und da es in Neu-Grenada zwei souveräne Fürsten
 gab,^[Gerade wie im alten Reiche Meroe,
 in Tibet, und wie« der Dairi
@@ -8812,7 +8831,7 @@ am Amazonenstrom zu Ohren gekommen; aber das Buch des
 Fray Pedro Simon, dem Quesadas, des Eroberers von Cundirumarca,
 Aufzeichnungen zu Grunde liegen, beweist das
 Gegentheil, und bereits im Jahr 1536 suchte Gonzalo Diaz
-de Pineda den <b>vergoldeten Mann</b> jenseits der Niederungen
+de Pineda den **vergoldeten Mann** jenseits der Niederungen
 der Provinz Quixos. Der Gesandte aus Bogota, den
 Daça im Königreich Quito angetroffen, hatte von einem ostwärts
 gelegenen Lande gesprochen; that er etwa so, weil die
@@ -8848,7 +8867,7 @@ verbreitete. Sebastian de Belalcazar zog von Quito über
 Popayan nach Bogota (1536); Nicolaus Federmann kam von
 Venezuela, von Ost her über die Ebenen am Meta. Diese
 beiden Anführer trafen auf der Hochebene von Cundirumarca
-bereits den vielberufenen <b>Adelantado</b> Gonzalo Ximenes
+bereits den vielberufenen **Adelantado** Gonzalo Ximenes
 de Quesada, von dem ich einen Nachkommen bei Zipaquira
 barfuß das Vieh habe hüten sehen. Das zufällige
 Zusammentreffen der drei Conquistadoren, eines der merkwürdigsten
@@ -8889,7 +8908,7 @@ auf die Entwerfung der alten und neuen Karten unmittelbar
 Einfluß gehabt haben. Hernan Perez de Quesada suchte nach
 der Abreise seines Bruders, des Adelantado, nach Europa
 von neuem (1539), dießmal aber im Berglande nordöstlich
-von Bogota, den Sonnentempel (<i>Casa del sol</i>), von dem
+von Bogota, den Sonnentempel (*Casa del sol*), von dem
 Geronimo de Ortal (1536) am Meta hatte sprechen hören.
 Der von Bochica eingeführte Sonnendienst und der hohe Ruf
 des Heiligthums zu Iraca oder Sogamozo gaben Anlaß zu
@@ -8898,26 +8917,26 @@ aus massivem Golde; aber auf den Bergen wie in den Niederungen
 glaubte man immer weit davon zu seyn, weil die
 Wirklichkeit den chimärischen Träumen der Einbildungskraft
 so wenig entsprach. Francisco de Orellana fuhr, nachdem er
-mit Pizarro den Dorado in der <i>Provincia de los canelos</i>
+mit Pizarro den Dorado in der *Provincia de los canelos*
 und an den goldhaltigen Ufern des Napo vergebens gesucht,
 den großen Amazonenstrom hinunter (1540). Er fand dort
 zwischen den Mündungen des Javari und des Rio de la
 Trinidad (Yupura?) einen goldreichen Landstrich, genannt
 Machiparo (Muchifaro), in der Nähe des Aomaguas oder
 Omaguas. Diese Kunde trug dazu bei, daß der Dorado
-südostwärts verlegt wurde, denn <b>Omaguas</b> (Om-aguas,
-Aguas), <b>Dit-Aguas</b> und <b>Papamene</b> waren Benennungen
+südostwärts verlegt wurde, denn **Omaguas** (Om-aguas,
+Aguas), **Dit-Aguas** und **Papamene** waren Benennungen
 für dasselbe Land, für das, welches Georg von Speier auf
 seinem Zuge an den Caqueta entdeckt hatte. Mitten auf den
 Niederungen nordwärts vom Amazonenstrom wohnten die
-<b>Omaguas</b>, die <b>Manaos</b> oder Manoas und die <b>Guaypes</b>
+**Omaguas**, die **Manaos** oder Manoas und die **Guaypes**
 (Uaupes oder Guayupes), drei mächtige Völker, deren letzteres,
 dessen Wohnsitze westwärts am Guaupe oder Uaupe liegen,
 schon in den Reiseberichten Quesadas und Huttens erwähnt
 wird. Diese beiden in der Geschichte Amerikas gleich berühmten
 Conquistadoren kamen auf verschiedenen Wegen in die
-Llanos von San Juan, die damals <b>Valle de Nuestra
-Señora</b> hießen. Hernan Perez de Quesada ging (1541)
+Llanos von San Juan, die damals **Valle de Nuestra
+Señora** hießen. Hernan Perez de Quesada ging (1541)
 über die Cordilleren von Cundirumarca, wahrscheinlich zwischen
 den Paramos Chingasa und Suma Paz, während Felipe de
 Hutten, in Begleitung Pedros de Limpias (desselben, der
@@ -8925,7 +8944,7 @@ von den Hochebenen von Bogota die erste Kunde vom Dorado
 nach Venezuela gebracht hatte) von Nord nach Süd
 den Weg einschlug, auf dem Georg von Speier am Ostabhang
 der Gebirge hingezogen war. Hutten brach von Coro,
-dem Hauptsitz der <b>deutschen Faktorei</b> oder Gesellschaft der
+dem Hauptsitz der **deutschen Faktorei** oder Gesellschaft der
 Welser auf, als Heinrich Remboldt an der Spitze derselben
 stand. Nachdem er über die Ebenen am Casanare, Meta und
 Caguan gezogen (1541), kam er an den obern Guaviare
@@ -8952,7 +8971,7 @@ Ebenen am Meta davon hatte sprechen hören.
 
 Ich halte mich nur an das, was in das Bereich der
 Geographie fällt, und beschreibe weder nach Hutten jene unermeßlich
-große Stadt, <b>die er von weitem gesehen<b>, noch
+große Stadt, **die er von weitem gesehen**, noch
 das Gefecht mit den Omaguas, wobei 39 Spanier (ihrer 14
 sind in den Nachrichten aus jener Zeit namentlich aufgeführt)
 mit 15,000 Indianern zu thun hatten. Diese lügenhaften
@@ -8962,24 +8981,24 @@ kommt in Huttens Bericht nicht vor, aber die Manoas, von
 denen Pater Fritz noch im siebzehnten Jahrhundert in seiner
 Mission Yurimaguas Goldbleche erhielt, sind Nachbarn der
 Omaguas. Später wurde der Namen Manoa aus dem
-Lande der Amazonen auf eine eingebildete Stadt im <b>Dorado
-der Parime</b> übergetragen. Der bedeutende Ruf, in
+Lande der Amazonen auf eine eingebildete Stadt im **Dorado
+der Parime** übergetragen. Der bedeutende Ruf, in
 dem die Länder zwischen dem Caqueta (Papamene) und Guaupe
 (einem Nebenfluß des Rio Negro) standen, veranlaßte (1560)
 Pedro de Ursua zu der unheilvollen Expedition, welche mit
 der Empörung des Tyrannen Aguirre^[S. Bd. I. Seite 233]
 endigte. Als er den
 Caqueta hinabfuhr, um sofort in den Amazonenstrom zu gelangen,
-hörte Ursua von der Provinz <b>Caricuri</b> sprechen.
+hörte Ursua von der Provinz **Caricuri** sprechen.
 Diese Benennung weist deutlich auf das Goldland hin,
-denn, wie ich sehe, heißt Gold auf tamanakisch <b>Caricuri</b>,
-auf caraibisch <b>Carucuru</b>. Sollte der Ausdruck für <b>Gold</b> bei
-den Völkern am Orinoco ein Fremdwort seyn, wie <b>Zucker</b>
-und <b>Coton</b> in den europäischen Sprachen? Dieß wiese wohl
+denn, wie ich sehe, heißt Gold auf tamanakisch **Caricuri**,
+auf caraibisch **Carucuru**. Sollte der Ausdruck für **Gold** bei
+den Völkern am Orinoco ein Fremdwort seyn, wie **Zucker**
+und **Coton** in den europäischen Sprachen? Dieß wiese wohl
 darauf hin, daß diese Völker die edlen Metalle mit den fremden
 Erzeugnissen haben kennen lernen, die ihnen von den Cordilleren^[Im
-Peruvianischen oder dem Oquichua (<i>Lengua del Inga) heißt
-Gold <b>Cori</b>, woher <b>Chichicori</b>, Goldstaub, und <b>Corikoya</b>, Golderz]
+Peruvianischen oder dem Oquichua (*Lengua del Inga) heißt
+Gold **Cori**, woher **Chichicori**, Goldstaub, und **Corikoya**, Golderz]
 oder von den Ebenen am Ostabhang der Anden zugekommen.
 
 Wir kommen jetzt zum Zeitpunkt, wo der Mythus vom
@@ -8996,11 +9015,11 @@ und Orinoco hinab nach der Insel Trinidad. Wir wissen von
 dieser Reise fast nur, was Ralegh davon berichtet; sie scheint
 wenige Jahre vor die erste Gründung von Vieja Guayana
 im Jahr 1591 zu fallen. Einige Jahre darauf (1595) ließ
-Berrio durch seinen <i>Maese de Campo</i>, Domingo de Vera,
+Berrio durch seinen *Maese de Campo*, Domingo de Vera,
 eine Expedition von 2000 Mann ausrüsten, welche den
 Orinoco hinaufgehen und den Dorado erobern sollte, den man
-jetzt das <b>Land Manoa</b>, sogar <b>Laguna de la Gran
-Manoa</b> zu nennen anfing. Reiche Grundeigenthümer verkauften
+jetzt das **Land Manoa**, sogar **Laguna de la Gran
+Manoa** zu nennen anfing. Reiche Grundeigenthümer verkauften
 ihre Höfe, um den Kreuzzug mitzumachen, dem sich
 zwölf Observanten und zehn Weltgeistliche anschlossen. Die
 Mähren eines gewissen Martinez (Juan Martin de Albujar?),
@@ -9023,20 +9042,20 @@ Provinz Amapaja, wo er viele kleine gegossene goldene Götzenbilder gefunden, ä
 Coro verfertigt wurden. Er meinte, dieses Gold komme aus
 dem Granitboden des bergigten Landes zwischen Carichana,
 Uruana und dem Cuchivero. Und allerdings haben in neuerer Zeit
-die Eingeborenen in der <i>Quebadra del tigre</i> bei
+die Eingeborenen in der *Quebadra del tigre* bei
 der Mission Encaramada ein Goldgeschiebe gefunden.^[S. Bd. III. Seite
 61.] Ostwärts
 von der Provinz Amapaja erwähnt Berrio des Rio Carony
 (Caroly), den man aus einem großen See entspringen ließ,
 weil man einen der Nebenflüsse des Carony, den Rio Paragua
-(Fluß des <b>großen Wassers</b>), aus Unbekanntschaft mit
-den indianischen Sprachen, für ein <b>Binnenmeer</b> gehalten
+(Fluß des **großen Wassers**), aus Unbekanntschaft mit
+den indianischen Sprachen, für ein **Binnenmeer** gehalten
 hatte. Mehrere spanische Geschichtschreiber glaubten, dieser
-See, die Quelle des Carony, sey Berrios <b>Gran Manoa</b>;
+See, die Quelle des Carony, sey Berrios **Gran Manoa**;
 aber aus den Nachrichten, die Berrio Ralegh mitgetheilt, ist
-ersichtlich, daß man annahm, die <b>Laguna de Manoa</b> (del
-<b>Dorado</b> oder <b>de Parime</b>) liege südlich vom Rio Paragua,
-aus dem man die <b>Laguna Cassipa</b> gemacht hatte. »Diese
+ersichtlich, daß man annahm, die **Laguna de Manoa** (del
+**Dorado** oder **de Parime**) liege südlich vom Rio Paragua,
+aus dem man die **Laguna Cassipa** gemacht hatte. »Diese
 beiden Wasserbecken hatten goldhaltigen Sand; aber am Ufer
 des Cassipa lag Macureguaira (Margureguaira), die Hauptstadt
 des Caziken Aromaja und die vornehmste Stadt des ein-
@@ -9099,20 +9118,20 @@ Karte, welche Ralegh entworfen und deren Geheimhaltung
 er Lord Charles Howard empfahl, besitzen wir nicht mehr;
 aber der Geograph Hondius hat diese Lücke ausgefüllt; ja er
 gibt seiner Karte ein Verzeichniß von Längen- und Breitenangaben
-bei, wobei die <b>Laguna del Dorado</b> und die <b>kaiserliche
-Stadt Manoas</b> vorkommen. Während Ralegh
+bei, wobei die **Laguna del Dorado** und die **kaiserliche
+Stadt Manoas** vorkommen. Während Ralegh
 an der Punta del Gallo (auf der Insel Trinidad) sich aufhielt,
 ließ er durch seine Unterbefehlshaber die Mündungen
 des Orinoco, namentlich die von Capuri, Gran Amana (Manamo
 grande) und Macureo (Macareo)^[S. Seite 222ff.] untersuchen. Da
 seine Schiffe einen bedeutenden Tiefgang hatten, hielt es sehr
-schwer, in die <b>bocas chicas</b> einzulaufen, und er mußte sich
+schwer, in die **bocas chicas** einzulaufen, und er mußte sich
 flache Fahrzeuge bauen lassen. Er bemerkte die Feuer der
 Tivitivas (Tibitibies) vom Stamme der Guaraons auf den
-Mauritiapalmen, deren Frucht,^[S. Seite 226] <i>fructum squamorum,
-similem Palmae Pini</i>, er zuerst nach Europa gebracht hat.
+Mauritiapalmen, deren Frucht,^[S. Seite 226] *fructum squamorum,
+similem Palmae Pini*, er zuerst nach Europa gebracht hat.
 Es wundert mich, daß von der Niederlassung, die Berrio
-unter dem Namen Santo Thome (<i>la Vieja Guayana</i>) gegründet,
+unter dem Namen Santo Thome (*la Vieja Guayana*) gegründet,
 so gut wie gar nicht die Rede ist; und doch reicht
 dieselbe bis zum Jahr 1591 hinauf, und obgleich nach Fray
 Pedro Simon »Religion und Politik jeden Handelsverkehr
@@ -9120,8 +9139,8 @@ zwischen Christen (Spaniern) und Ketzern (Holländern und
 Engländern) verbieten,« wurde damals, am Ende des sechzehnten
 Jahrhunderts, wie gegenwärtig, ein lebhafter Schleichhandel
 über die Mündungen des Orinoco getrieben. Ralegh
-ging über den Fluß <b>Europa</b> (Guarapo) und »die Ebenen
-der <b>Saymas</b> (Chaymas),^[S. Bd. II. Seite 12.] die im selben
+ging über den Fluß **Europa** (Guarapo) und »die Ebenen
+der **Saymas** (Chaymas),^[S. Bd. II. Seite 12.] die im selben
 Niveau bis Cumana und Caracas fortstreichen;«
 in Morequito (vielleicht
 etwas nordwärts von Villa de Upata in den Missionen am
@@ -9130,7 +9149,7 @@ Cazike alle phantastischen Vorstellungen Berrios von einem
 Einfall fremder Völker (Orejones und Epuremei) in Guyana.
 Die Katarakten des Caroli (Carony), welcher Fluß damals
 für den kürzesten Weg zu den beiden am See Cassipa und
-am See Nupunuwini oder <b>Dorado</b> gelegenen Städten Macureguarai
+am See Nupunuwini oder **Dorado** gelegenen Städten Macureguarai
 und Manoa galt, steckten der Expedition ein Ziel.
 
 Ralegh hat den Orinoco nur auf einer Strecke von kaum
@@ -9155,8 +9174,8 @@ genaue Notizen zu geben; letzterer beklagt sich auch über seinen
 Gefangenen »als einen Menschen ohne Bildung, der Ost und
 West nicht zu unterscheiden wisse.« Ob Ralegh an Alles,
 was er vorbringt, an die Binnenmeere, so groß wie das
-caspische Meer, an die kaiserliche Stadt Manoa (<i>imperial and
-golden city</i>), an die prächtigen Paläste, welche der »Kaiser
+caspische Meer, an die kaiserliche Stadt Manoa (*imperial and
+golden city*), an die prächtigen Paläste, welche der »Kaiser
 Inga von Guyana« nach dem Vorbild seiner peruanischen
 Ahnen erbaut, — ob er an all das wirklich geglaubt oder
 sich nur so angestellt, das will ich hier nicht untersuchen. Der
@@ -9193,7 +9212,7 @@ mehr zu Stande, an der sich zahlreiche Colonisten betheiligten,
 wohl aber Unternehmungen Einzelner, zu denen nicht selten
 die Statthalter der Provinzen aufmunterten. Die Kunde vom
 Goldland der Manoas-Indianer am Jurubesh und von der
-<i>Laguna de oro</i> die durch die Reisen der Patres Acuña
+*Laguna de oro* die durch die Reisen der Patres Acuña
 (1688) und Fritz (1637) in Umlauf kam, trugen das Ihrige
 dazu bei, daß die Vorstellungen vom Dorado in den portugiesischen
 und spanischen Colonien im Norden und Süden des
@@ -9216,7 +9235,7 @@ der silberhaltigen Felsen mitten in der Laguna Parime
 erklärte. Es war dieß eine sehr poetische Schilderung des
 Glanzes des Glimmer- und Talkschiefers seines Landes. Ein
 anderer indianischer Häuptling, bei den Caraiben am Essequebo
-als <b>Capitän Jurado</b> bekannt, gab sich vergebliche Mühe,
+als **Capitän Jurado** bekannt, gab sich vergebliche Mühe,
 den Statthalter Centurion zu enttåuschen. Man machte fruchtlose
 Versuche auf dem Caura und dem Rio Paragua. Mehrere
 hundert Menschen kamen bei diesen tollen Unternehmungen
@@ -9233,23 +9252,23 @@ Die Seekarten, welche der Florentiner Reisende Amerigo
 Vespucci^[Gestorben im Jahr 1512, wie Munnoz aus Urkunden
 in den Archiven von Simancas erwiesen hat.]
 in den ersten Jahren des sechzehnten Jahrhunderts
-als <i>piloto mayor</i> der <i>Casa de Contratacion</i> zu Sevilla
+als *piloto mayor* der *Casa de Contratacion* zu Sevilla
 entworfen, und auf die er, vielleicht in schlauer Absicht, den
-Namen <i>Terra de Amerigo</i> gesetzt, sind nicht auf uns
+Namen *Terra de Amerigo* gesetzt, sind nicht auf uns
 gekommen. Die älteste geographische Urkunde des neuen Continents
 ist die einer römischen Ausgabe des Ptolemäus vom
 Jahr 1508 beigegebene Weltkarte des Johann Ruysch.^[Auf den
 Karten, die dem Ptolemäus von 1506 beigegeben sind, sieht
 man noch keine Spur von den Entdeckungen des Columbus.] Man
 erkennt darauf Yucatan und Honduras (den südlichsten Theil
-von Mexico), die als eine Insel unter dem Namen <b>Culicar</b>
+von Mexico), die als eine Insel unter dem Namen **Culicar**
 dargestellt sind. Eine Landenge von Panama ist nicht vorhanden,
 sondern eine Meerenge, durch die man geradeaus
 von Europa nach Indien fahren kann. Auf der großen südlichen
-Insel (Südamerika) steht der Name <i>Terra de Careas</i>,
+Insel (Südamerika) steht der Name *Terra de Careas*,
 die von zwei Flüssen, dem Rio Lareno und dem Rio Formoso
-begrenzt ist. Diese <b>Careas</b> sind ohne Zweifel die Einwohner
-von <b>Caria</b>, welchen Namen Cristoph Columbus
+begrenzt ist. Diese **Careas** sind ohne Zweifel die Einwohner
+von **Caria**, welchen Namen Cristoph Columbus
 bereits im Jahr 1498 vernommen hatte und mit dem lange
 Zeit ein großer Theil von Amerika bezeichnet wurde. Der
 Bischof Geraldini sagt in einem Briefe an Pabst Leo X. aus
@@ -9257,7 +9276,7 @@ dem Jahr 1516 deutlich: »Insula illa, quae Europa et Asia
 est major, quam indocti continentem Asiae appellant,
 et alii Americam vel Pariam nuncupant.« Auf der Weltkarte
 von 1508 finde ich noch keine Spur vom Orinoco. Dieser
-Strom erscheint zum erstenmal unter dem Namen <i>Rio dulce</i>
+Strom erscheint zum erstenmal unter dem Namen *Rio dulce*
 auf der berühmten Karte, die Diego Ribero, Kosmograph
 Kaiser Karls V. im Jahr 1529 entworfen, und die Sprengel
 im Jahr 1795 mit einem gelehrten Commentar herausgegeben
@@ -9270,7 +9289,7 @@ Zeit so häufig vorkommen, eine ungeheure Masse süßen Wassers
 zuschrieb. Vicente Yañez Pinçon, nachdem er die Mündung
 des Rio Maragnon entdeckt, war auch der Erste, der die
 Mündung des Orinoco sah (1500). Er nannte diesen Strom
-<i>Rio dulce</i>, welcher Name sich seit Ribero lange auf den
+*Rio dulce*, welcher Name sich seit Ribero lange auf den
 Karten erhalten hat und zuweilen irrthümlich dem Maroni
 und dem Essequebo beigelegt wurde.^[S. Seite 54.]
 
@@ -9281,8 +9300,8 @@ eine bestimmte Richtung gab und das Innere von spanisch
 Guyana als ein völlig bekanntes Land darstellte. Der Isthmus
 zwischen dem Rio Branco und dem Rio Rupunuwini (einem
 Nebenfluß des Essequebo) wird von ihm in den 200 Meilen
-langen, 40 Meilen breiten See <b>Rupunuwini</b>, <b>Carime</b> oder
-<b>Dorado</b>, zwischen dem 1°45′ südlicher und dem 2° nördlicher
+langen, 40 Meilen breiten See **Rupunuwini**, **Carime** oder
+**Dorado**, zwischen dem 1°45′ südlicher und dem 2° nördlicher
 Breite verwandelt. Dieses Binnenmeer, größer als das caspische
 Meer, wird bald mitten in ein gebirgigtes Land, ohne
 Verbindung mit irgend einem andem Fluß, hineingezeichnet,
@@ -9294,7 +9313,7 @@ verwechselt und blieb bis zum letzten Wiener Congreß
 der Gegenstand endloser Streitigkeiten zwischen den französischen
 und den portugiesischen Diplomaten. Der letztere ist eine
 chimärische Verlängerung des Tonnegrande, oder aber des
-Oyac (Wia?). Das Binnenmeer (<i>Laguna Parime</i>) wurde
+Oyac (Wia?). Das Binnenmeer (*Laguna Parime*) wurde
 anfangs so gestellt, daß sein westliches Ende in den Meridian
 des Zusammenflusses des Apure und des Orinoco fiel; allmählig
 aber schob man es nach Ost vor, so daß das westliche
@@ -9321,16 +9340,16 @@ dem man den californischen Rio Colorado entspringen ließ.^[Es
 ist dieß der mexicanische Dorado, wo man auf den Küsten
 Schiffe voll Waaren aus Catayo (China) gefunden haben wollte, und wo
 Fray Marcos (wie Hutten im Lande der Omaguas) die vergoldeten Dächer
-einer großen Stadt, einer der <i>Siete Ciudades</i>,
-<b>von weitem sah</b>. Die
+einer großen Stadt, einer der *Siete Ciudades*,
+**von weitem sah**. Die
 Einwohner haben große Hunde,
-<i>en los quales quando se mudan cargan
-su menage</i>. Spätere Entdeckungen lassen
+*en los quales quando se mudan cargan
+su menage*. Spätere Entdeckungen lassen
 übrigens keinen Zweifel, daß
 dieser Landstrich früher ein Mittelpunkt der Cultur war.]
 Vom Rio Magdalena lief ein Arm in den See Maracaybo,
-und der See Xarayes, in dessen Nähe man einen <b>südlichen
-Dorado</b> setzte, stand mit dem Amazonenstrom, mit dem Miari
+und der See Xarayes, in dessen Nähe man einen **südlichen
+Dorado** setzte, stand mit dem Amazonenstrom, mit dem Miari
 (Meary) und dem Rio San Francisco in Verbindung. Die
 meisten dieser hydrographischen Träume sind verschwunden;
 nur die Seen Cassipa und Dorado haben sich lange neben
@@ -9347,7 +9366,7 @@ Erfahrung brachte, daß der Orinoco seine Quellen keineswegs
 westwärts am Abhang der Anden von Pasto habe, sondern von
 Osten her von den Gebirgen der Parime herabkomme, nahm
 er in der zweiten Ausgabe seiner schönen Karte von Amerika
-(1760) die <b>Laguna Parime</b> wieder auf und ließ sie ganz
+(1760) die **Laguna Parime** wieder auf und ließ sie ganz
 willkürlich durch den Mazuruni und den Cuyuni mit drei
 Flüssen (dem Orinoco, dem Rio Branco und dem Essequebo)
 in Verbindung stehen. Er verlegte sie unter den 3—4. Grad
@@ -9365,7 +9384,7 @@ Bei la Cruz entspringt der Orinoco, unter dem Namen Parime
 und Puruma (Xuruma?) im gebirgigten Lande zwischen
 den Quellen des Ventuari und des Caura (unter dem 5.&nbsp;Grad
 der Breite im Meridian der Mission Esmeralda) aus einem
-kleinen See, der <b>Ipava</b> heißt. Dieser See läge auf meiner
+kleinen See, der **Ipava** heißt. Dieser See läge auf meiner
 Reisekarte nordöstlich von den Granitbergen von Cunevo,
 woraus zur Genüge hervorgeht, daß wohl ein Nebenfluß des
 Rio Branco oder des Orinoco daraus entspringen könnte,
@@ -9378,18 +9397,18 @@ man 30 Meilen lang und 20 Meilen breit macht. Aus
 diesem See entspringen unmittelbar drei Flüsse, der Rio
 Ucamu (Ocamo), der Rio Idapa (Siapa) und der Rio Branco.
 Der Orinoco oder Puruma ist als unterirdische Durchsickerung
-am Westabhang der <b>Sierra Mei</b>, welche den See oder das
-<b>weiße Meer</b> gegen Westen begrenzt, gezeichnet. Diese zweite
+am Westabhang der **Sierra Mei**, welche den See oder das
+**weiße Meer** gegen Westen begrenzt, gezeichnet. Diese zweite
 Quelle des Orinoco liegt unter dem zweiten Grad nördlicher
 Breite und 3½ Grad ostwärts vom Meridian von Esmeralda.
 Nachdem der neue Fluß 50 Meilen gegen West-Nord-West
 gelaufen, nimmt er zuerst den Ucamu auf, der aus dem
 See Parime kommt, sodann den Rio Maquiritari (Padamo),
 der zwischen dem See Ipava und einem andern Alpsee, von
-la Cruz <b>Laguna Cavija</b> genannt, entspringt. Da <b>See</b>
-maypurisch <b>Cavia</b> heißt, so bedeutet das Wort <b>Laguna
-Cavia</b>, wie Laguna Parime, nichts als Wasserbecken, <i>laguna
-de agua</i>. Diese seltsame Flußzeichnung ist nun das
+la Cruz **Laguna Cavija** genannt, entspringt. Da **See**
+maypurisch **Cavia** heißt, so bedeutet das Wort **Laguna
+Cavia**, wie Laguna Parime, nichts als Wasserbecken, *laguna
+de agua*. Diese seltsame Flußzeichnung ist nun das
 Vorbild fast für alle neueren Karten von Guyana geworden.
 Ein Mißverständniß, das aus der Unkenntniß des Spanischen
 entsprang, hat der Karte des la Cruz, auf der richtige Angaben
@@ -9397,7 +9416,7 @@ mit systematischen, den alten Karten entnommenen Vorstellungen
 vermengt sind, vollends großes Ansehen verschafft.
 Eine punktirte Linie umgibt den Landstrich, über den Solano
 einige Erkundigung hatte einziehen können; diese Linie hielt
-man nun für den <b>von Solano zurückgelegten Weg</b>,
+man nun für den **von Solano zurückgelegten Weg**,
 so daß dieser das südwestliche Ende des weißen Meeres gesehen
 haben müßte. Auf der Karte des la Cruz steht geschrieben:
 »Dieser Weg bezeichnet, was vom Statthalter von
@@ -9464,7 +9483,7 @@ Omaguaca und dem Macoma, unter 2½ Grad der Breite, aus
 dem kleinen See Cabiya.« Dieß ist der See, aus dem la Cruz
 den Maquiritari (Padamo) entspringen läßt und den er unter
 5½ Grad der Breite, nördlich vom See Ipava, setzt. Die
-Existenz von Caulins Rio <b>Macoma</b> scheint sich auf ein verworrenes
+Existenz von Caulins Rio **Macoma** scheint sich auf ein verworrenes
 Bild der Flüsse Padamo, Ocamo und Matacona
 zu gründen, von denen man vor meiner Reise glaubte, sie
 stehen mit einander in Verbindung. Vielleicht gab auch der
@@ -9477,14 +9496,14 @@ Sees Parime des la Cruz einen andern See ohne Namen,
 der nach ihm die Quelle des Ucamu (Ocamo) ist. In der
 Nähe dieses Alpsees entspringen aus derselben Quelle
 der Orinoco und der Idapa, ein Nebenfluß des Cassiquiare.
-Der See Amucu, die Quelle des Mahu, wird zum <b>Mar
-Dorado</b> oder zur <b>Laguna Parime</b> erweitert. Der Rio
+Der See Amucu, die Quelle des Mahu, wird zum **Mar
+Dorado** oder zur **Laguna Parime** erweitert. Der Rio
 Branca hängt nur noch durch zwei seiner schwächsten Nebenflüsse
 mit dem Wasserbecken zusammen, aus dem der Ucamu
 kommt. Aus dieser rein hypothetischen Anordnung ergibt sich,
 daß der Orinoco aus keinem See entspringt und daß die
 Quellen desselben vom See Parime und dem Rio Branco
-durchaus unabhängig find. Trotz der <b>sich gabelnden Quelle</b>
+durchaus unabhängig find. Trotz der **sich gabelnden Quelle**
 ist das hydrographische System der Surville’schen Karte nicht
 so abgeschmackt als das auf der Karte des la Cruz. Wenn
 die neueren Geographen sich so lange beharrlich an die spanischen
@@ -9517,7 +9536,7 @@ Ehe ich den Faden meiner Erzählung wieder aufnehme,
 habe ich noch einige allgemeine Bemerkungen über die
 goldhaltigen Gebirgsarten zwischen dem Amazonenstrom und
 dem Orinoco beizubringen. Wir haben dargethan, daß der
-Mythus vom <b>Dorado</b>, gleich den berühmtesten Mythen der
+Mythus vom **Dorado**, gleich den berühmtesten Mythen der
 Völker der alten Welt, nach einander auf verschiedene Oertlichkeiten
 bezogen worden ist. Wir haben denselben von Südwest
 nach Nordost, vom Ostabhang der Anden gegen die
@@ -9547,7 +9566,7 @@ wenn man den granitischen Ebenen am Ostabhang derselben
 so große Wichtigkeit zugeschrieben hat. Da man die
 Nebenflüsse des Amazonenstroms und des Orinoco, oder (wie
 Raleghs Unterbefehlshaber aus Schmeichelei für ihren Obern
-sagten) des <b>Rio Raleana</b> beständig verwechselte, so bezog
+sagten) des **Rio Raleana** beständig verwechselte, so bezog
 man auf diesen alle Sagen, die einem über den Dorado von
 Quixos, über die Omaguas und Manoas zu Ohren gekommen.
 Nach des Geographen Hondius Annahme lagen die durch ihre
@@ -9628,9 +9647,9 @@ von Maypures in Anspruch. Eilande aus Glimmerschiefer
 im See Amucu steigern, wie die Eingeborenen einem vorlügen,
 den Glanz der Nebelflecken am Südhimmel. »Jeder Berg,«
 sagt Ralegh, »jeder Stein in den Wäldern am Orinoco glänzt
-gleich edlen Metallen; ist das kein Gold, so ist es doch <i>madre
-del oro</i>.« Er versichert Stufen von weißem goldhaltigem
-Quarz (<i>harde withe spar</i>) mitgebracht zu haben, und zum
+gleich edlen Metallen; ist das kein Gold, so ist es doch *madre
+del oro*.« Er versichert Stufen von weißem goldhaltigem
+Quarz (*harde withe spar*) mitgebracht zu haben, und zum
 Beweis, wie reich diese Erze seyen, beruft er sich auf die von
 den Münzbeamten zu London angestellten Versuche. Ich habe
 keinen Grund zu vermuthen, daß die damaligen Scheidekünstler
@@ -9682,8 +9701,8 @@ Bracamoros und dem Guaviare behaupten noch immer ihren
 alten Ruf großen Metallreichthums. Weiter gegen Ost, zwischen
 den Quellen des Guainia (Rio Negro), des Uaupes, Iquiari
 und Jurubesh finden wir ein anderes unstreitig goldhaltiges
-Gebiet. Hieher setzen Acuña und Pater Fritz ihre <i>Laguna
-del oro</i>, und Manches, was ich in San Carlos aus dem
+Gebiet. Hieher setzen Acuña und Pater Fritz ihre *Laguna
+del oro*, und Manches, was ich in San Carlos aus dem
 Munde der portugiesischen Amerikaner vernommen, macht vollkommen
 erklärlich, was La Condamine von den Goldblechen
 erzählt, die bei den Eingeborenen gefunden worden. Gehen
@@ -9696,7 +9715,7 @@ Rio Trombetas (Oriximina), der Curupatuba und der Sitipape
 (Rio de Paru). Alle diese Flüsse, und dieser Umstand
 scheint mir bemerkenswerth, kommen von derselben Hochebene
 herab, auf deren nördlichem Abhang der See Amucu, der
-<b>Dorado</b> Raleghs und der Holländer, der Isthmus zwischen
+**Dorado** Raleghs und der Holländer, der Isthmus zwischen
 dem Rupunuri (Rupunuwini) und dem Rio Mahu liegen.
 Nichts streitet wider die Annahme, daß aufgeschwemmtes goldhaltiges
 Land weit von den Cordilleren der Anden nördlich
@@ -9737,8 +9756,8 @@ man wohl in Einem Bilde neben einander die Schilderung
 der civilisirten Völker am Meeresufer und der schwachen Ueberreste
 der Eingeborenen am Orinoco, die von keinem andern
 Gottesdienste wissen, außer der Verehrung der Naturkräfte,
-und, gleich den Germanen des Tacitus, <i>deorum nominibus
-appellant secretum illud, quod sola reverentia vident</i>.
+und, gleich den Germanen des Tacitus, *deorum nominibus
+appellant secretum illud, quod sola reverentia vident*.
 
 # Sechsundzwanzigstes Kapitel.
 
@@ -9797,7 +9816,7 @@ Strich der Llanos, über den wir von Angostura nach Nueva
 Barcelona kamen, bietet denselben öden Anblick wie der westliche,
 über den wir von den Thälern von Aragua nach San Fernando
 am Apure gegangen waren. In der trockenen Jahreszeit,
-welche hier <b>Sommer</b> heißt, obgleich dann die Sonne
+welche hier **Sommer** heißt, obgleich dann die Sonne
 in der südlichen Halbkugel ist, weht der Seewind in den
 Steppen von Cumana weit stärker als in denen von Caracas;
 denn diese weiten Ebenen bilden, gleich den angebauten Fluren
@@ -9831,20 +9850,20 @@ Gastfreundlichkeit aufnahm. Er war aus Lyon gebürtig, hatte
 das Vaterland in früher Jugend verlassen und schien sich um
 Alles, was jenseits des atlantischen Meeres, oder, wie man
 hier für Europa ziemlich geringschätzig sagt, »auf der andern
-Seite der großen Lache« (<i>del otro lado del charco</i>)
+Seite der großen Lache« (*del otro lado del charco*)
 vorgeht, sehr wenig zu kümmern. Wir sahen unsern Wirth beschäftigt,
-große Holzstücke mittelst eines Leims, der <b>Guayca</b>
+große Holzstücke mittelst eines Leims, der **Guayca**
 heißt, an einander zu fügen. Dieser Stoff, dessen sich auch
 die Tischler in Angostura bedienen, gleicht dem besten aus
 dem Thierreich gewonnenen Leim. Derselbe liegt ganz fertig
 zwischen Rinde und Splint einer Liane aus der Familie der
-Combretaceen.^[<i>Combretum
-guayca</i>] Wahrscheinlich kommt er in seinem chemischen
+Combretaceen.^[*Combretum
+guayca*] Wahrscheinlich kommt er in seinem chemischen
 Verhalten nahe überein mit dem Vogelleim, einem vegetabilischen
 Stoff, der aus den Beeren der Mistel und der innern
 Rinde der Stechpalme gewonnen wird. Man erstaunt, in
 welcher Masse dieser klebrigte Stoff ausfließt, wenn man die
-rankenden Zweige des <b>Vejuco de Guayca</b> abschneidet. So
+rankenden Zweige des **Vejuco de Guayca** abschneidet. So
 findet man denn unter den Tropen in reinem Zustand und
 in besondern Organen abgelagert, was man sich in der gemäßigten
 Zone nur auf künstlichem Wege verschaffen kann.^[S. Bd. III. Seite 331.]
@@ -9856,8 +9875,8 @@ von Calabozo. Ein paar Regengüsse hatten der Vegetation
 neues Leben gegeben. Kleine Grasarten und besonders jene
 krautartigen Sensitiven, von denen das halbwilde Vieh so
 fett wird, bildeten einen dichten Rasen. Weit auseinander
-standen hie und da Stämme der Fächerpalme (<i>Corypha
-tectorum</i>), der Rhopala (Chaparro) und Malpighia mit
+standen hie und da Stämme der Fächerpalme (*Corypha
+tectorum*), der Rhopala (Chaparro) und Malpighia mit
 lederartigen, glänzenden Blättern. Die feuchten Stellen erkennt
 man von weitem an den Büschen von Mauritia, welche
 der Sagobaum dieses Landstrichs ist. Auf den Küsten ist diese
@@ -9891,7 +9910,7 @@ Würmer^[Zu welcher Gattung gehören die Würmer (arabisch Loul), welche
 Capitän Lyon, der Reisebegleiter meines muthigen, unglücklichen Freundes
 Ritchie, in der Wüste Fezzan in Lachen gesunden, die von den Arabern
 gegessen werden und wie Caviar schmecken? Sollten es nicht Insekteneier
-seyn, ähnlich dem <b>Aguautle</b>, den ich in Mexico auf dem Markt habe
+seyn, ähnlich dem **Aguautle**, den ich in Mexico auf dem Markt habe
 verkaufen sehen und der an der Oberfläche des Sees Tezcuco gefischt
 wird?], sonst in den Llanos so selten, ziehen sich hieher
 und pflanzen sich fort. So verbreitet ein einzeln stehender,
@@ -9899,13 +9918,13 @@ häufig verkrüppelter Baum, den der Reisende in den Wäldern
 am Orinoco gar nicht beachtete, in der Wüste Leben um
 sich her.
 
-Wir langten am 13. Juli im Dorfe Cari^[<i>Nuestra Señora del Socorro
-del Cari</i>, gegründet im Jahr 1761.] an, der
+Wir langten am 13. Juli im Dorfe Cari^[*Nuestra Señora del Socorro
+del Cari*, gegründet im Jahr 1761.] an, der
 ersten der caraibischen Missionen, die unter den Mönchen von
 der Congregation der Observanten aus dem Collegium von
-Piritu^[Diese Missionäre nennen sich <i>Padres Missioneros Observantes
+Piritu^[Diese Missionäre nennen sich *Padres Missioneros Observantes
 del Colegio de la purissima Conception de propaganda fide en la Nueva
-Barcelona</i>.] stehen. Wir wohnten, wie gewöhnlich, im <b>Kloster</b>,
+Barcelona*.] stehen. Wir wohnten, wie gewöhnlich, im **Kloster**,
 das heißt beim Pfarrer. Wir hatten, außer den Pässen des
 Generalcapitäns der Provinz, Empfehlungen der Bischöfe und
 des Gardians der Missionen am Orinoco. Von den Küsten
@@ -9938,13 +9957,13 @@ Indianern unterscheidet. Ich habe nirgends anderswo einen
 ganzen so hochgewachsenen (5 Fuß 6 Zoll bis 5 Fuß 10 Zoll)
 und so colossal gebauten Volksstamm gesehen. Die Männer,
 und dieß kommt in Amerika ziemlich häufig vor, sind mehr
-bekleidet als die Weiber. Diese tragen nur den <b>Guayuco</b>
+bekleidet als die Weiber. Diese tragen nur den **Guayuco**
 oder Gürtel in Form eines Bandes, bei den Männern ist
 der ganze Untertheil des Körpers bis zu den Hüften in ein
 Stück dunkelblauen, fast schwarzen Tuches gehüllt. Diese Bekleidung
 ist so weit, daß die Caraiben, wenn gegen Abend
 die Temperatur abnimmt, sich eine Schulter damit bedecken.
-Da ihr Körper mit <b>Onoto</b> bemalt ist, so gleichen ihre großen,
+Da ihr Körper mit **Onoto** bemalt ist, so gleichen ihre großen,
 malerisch drapirten Gestalten von weitem, wenn sie sich
 in der Steppe vom Himmel abheben, antiken Broncestatuen.
 Bei den Männern ist das Haar sehr charakteristisch verschnitten,
@@ -9958,7 +9977,7 @@ behauptet hat, daher, daß es die Eingeborenen ihren Herren
 und Meistern, den Patres Franciskanern, gleich thun wollen.
 Die Stämme, die zwischen den Quellen des Carony und des
 Rio Branco in wilder Unabhängigkeit verharren, zeichnen
-sich durch eben diesen <i>cerquillo de frailes</i> aus, den
+sich durch eben diesen *cerquillo de frailes* aus, den
 schon bei der Entdeckung von Amerika die frühesten spanischen
 Geschichtschreiber den Völkern von caraibischem Stamme zuschrieben.
 Alle Glieder dieses Stammes, die wir bei unserer
@@ -10080,8 +10099,8 @@ Narcota) am Missouri, die stark »mongolisirt« sind
 und von denen man, nach ihren eigenen Sagen, annimmt,
 daß sie von den asiatischen Küsten herübergekommen? Auf
 den Niederungen von Südamerika trifft man, wie oben bemerkt,
-kaum ein paar künstliche Hügel (<i>cerros hechos a
-mano</i>) an, nirgends Befestigungen wie am Ohio. Auf einem
+kaum ein paar künstliche Hügel (*cerros hechos a
+mano*) an, nirgends Befestigungen wie am Ohio. Auf einem
 sehr großen Landstrich, am untern Orinoco wie am Cassiquiare
 und zwischen den Quellen des Essequebo und Rio
 Branco, findet man indessen Granitfelsen, die mit symbolischen
@@ -10134,7 +10153,7 @@ oder vielmehr in einem Madreporenkalk eingeschlossene
 Skelette.^[Diese Skelette wurden im Jahr 1805 von Cortes gefunden. Sie
 sind in einer Madreporen-Breccie
 eingeschlossen, welche die Neger sehr naiv
-<i>maçonne bon Dieu</i> nennen, und die,
+*maçonne bon Dieu* nennen, und die,
 neuer Formation wie der italienische
 Travertin, Topfscherben und andere
 Produkte der Menschenhand enthält.
@@ -10172,7 +10191,7 @@ bei welchen derselbe nur wenige Begriffe betrifft, wie
 z.&nbsp;B. die Worte Mutter und Kind. Es begreift sich, wie
 die Weiber bei ihrer abgeschlossenen Lebensweise sich Redensarten
 bilden, welche die Männer nicht annehmen mögen. Schon
-Cicero^[<i>Cicero de oratore. Lib. III. c. 12.</i> ] bemerkt,
+Cicero^[*Cicero de oratore. Lib. III. c. 12.* ] bemerkt,
 daß die alten Sprachformen sich vorzugsweise
 im Munde der Weiber erhalten, weil sie bei ihrer Stellung
 in der Gesellschaft nicht so sehr den Lebenswechseln (dem Wechsel
@@ -10193,9 +10212,9 @@ kamen neue Elemente herein, Worte, wesentlich verschieden
 von den caraibischen Worten,^[Ich gebe hier
 einige Beispiele von diesem Unterschied zwischen der
 Sprache der Männer (M) und der Weiber (W):
-<b>Insel</b> <i>oubao</i> (M), <i>acaera</i>
-(W); <b>Mensch</b> <i>ouekelli</i> (M), <i>eyeri</i> (W);
-<b>Mais</b> <i>ichen</i> (M), <i>atica</i> (W).] die
+**Insel** *oubao* (M), *acaera*
+(W); **Mensch** *ouekelli* (M), *eyeri* (W);
+**Mais** *ichen* (M), *atica* (W).] die
 sich im Frauengemach von
 Geschlecht zu Geschlecht fortpflanzten, doch so, daß der Bau,
 die Combinationen und die grammatischen Formen der Männersprache
@@ -10235,7 +10254,7 @@ Portorico bis zu den Mündungen des Amazonenstroms ausgebreitet
 waren. Daß ihre Wohnsitze auch gegen West, längs
 der Küstenkette von Santa Martha und Venezuela sich erstreckt,
 erscheint weniger gewiß. Indessen nennen Lopez de Gomara
-und die ältesten Geschichtschreiber <b>Caribana</b> nicht, wie seitdem
+und die ältesten Geschichtschreiber **Caribana** nicht, wie seitdem
 geschehen, das Land zwischen den Quellen des Orinoco
 und den Gebirgen von französisch Guyana,^[Karte des
 Hondius von 1599, die der lateinischen Ausgabe von
@@ -10255,13 +10274,13 @@ Vorgebirge, das den Meerbusen von Darien oder Uraba gegen
 Ost begrenzt, heiße noch jetzt Punta Caribana. Früher war so
 ziemlich die Ansicht herrschend, die Caraiben der antillischen
 Inseln stammen von den kriegerischen Völkern in Darien ab,
-und haben sogar den Namen von ihnen. »<i>Inde Uraban ab
+und haben sogar den Namen von ihnen. »*Inde Uraban ab
 orientali prehendit ora, quam appellant indigenae Caribana,
 unde Caribes insulares originem habere nomenque
-retinere dicuntur.</i>« So drückt sich Anghiera in den Oceanica
+retinere dicuntur.*« So drückt sich Anghiera in den Oceanica
 aus. Ein Neffe Amerigos Vespucci hatte ihm gesagt, von dort
 bis zu den Schneegebirgen von Santa Martha seyen alle Eingeborenen
-»<i>e genere Caribium sive Canibalium.</i>« Ich
+»*e genere Caribium sive Canibalium.*« Ich
 ziehe nicht in Abrede, daß ächte Caraiben am Meerbusen von
 Darien gehaust haben können, und daß sie durch die östlichen
 Strömungen dahin getrieben worden seyn mögen; es kann aber
@@ -10275,22 +10294,22 @@ Ostwärts von den Anden und überall, wohin die Cultur noch
 nicht gedrungen ist, geben vielmehr die Völker den Landstrichen,
 wo sie sich niedergelassen, die Namen. Wir haben
 schon mehrmals Gelegenheit gehabt zu bemerken, daß die
-Worte <b>Caribes</b> und <b>Canibales</b> bedeutsam zu seyn scheinen,
+Worte **Caribes** und **Canibales** bedeutsam zu seyn scheinen,
 daß es wohl Beinamen sind, die auf Muth und Kraft, selbst
 auf Geistesüberlegenheit anspielen^[Vespucci sagt:
-<i>Se eorum lingua Charaibi, hoc est magnae
-sapientiae viros vocantes.</i>] Es ist sehr bemerkenswerth,
+*Se eorum lingua Charaibi, hoc est magnae
+sapientiae viros vocantes.*] Es ist sehr bemerkenswerth,
 daß die Brasilianer, als die Portugiesen ins Land
-kamen, ihre Zauberer gleichfalls <b>Caraibes</b> nannten. Wir
+kamen, ihre Zauberer gleichfalls **Caraibes** nannten. Wir
 wissen, daß die Caraiben in der Parime das wanderlustigste
 Volk in Amerika waren; vielleicht spielten schlaue Köpfe in
-diesem umherziehenden Volk dieselbe Rolle wie die <b>Chaldäer</b>
+diesem umherziehenden Volk dieselbe Rolle wie die **Chaldäer**
 in der alten Welt. Völkernamen hängen sich leicht an gewisse
 Gewerbe, und als unter den Cäsaren so viele Formen
 des Aberglaubens aus dem Orient in Italien eindrangen,
 kamen die Chaldaer so wenig von den Ufern des Euphrat,
-als die Menschen, die man in Frankreich <i>Egyptiens</i> und
-<i>Bohémiens</i> nennt (die einen indischen Dialekt reden, Zigeuner),
+als die Menschen, die man in Frankreich *Egyptiens* und
+*Bohémiens* nennt (die einen indischen Dialekt reden, Zigeuner),
 vom Nil und von der Elbe.
 
 Wenn eine und dieselbe Nation auf dem Festland und auf
@@ -10305,7 +10324,7 @@ und im Distrikt Menangkabao auf der Insel Sumatra
 Autochthonen zu seyn scheinen.^[Wenn ich
 das Wort Autochthone brauche, so will ich damit keineswegs
 aussprechen, daß die Völker hier
-<b>geschaffen</b> worden, was gar nicht
+**geschaffen** worden, was gar nicht
 Sache der Geschichte ist, sondern nur
 so viel sagen, daß wir von keinem
 andern Volke wissen, das älter wäre als das autochthone.] Der
@@ -10344,7 +10363,7 @@ Nord nach Süd Bezug hat, Bristok, behauptet, ein Stamm
 der Confachiqui habe lange mit den Apalachiten im Kriege
 gelegen; diese haben jenem Stamm den fruchtbaren Distrikt
 Amana abgetteten und sofort ihre neuen Bundesgenossen
-Caribes (d.&nbsp;h. <b>tapfere Fremdlinge</b>) genannt; aber in
+Caribes (d.&nbsp;h. **tapfere Fremdlinge**) genannt; aber in
 Folge eines Zwistes über den Gottesdienst seyen die Confachiqui-Caribes
 aus Florida vertrieben worden. Sie gingen
 zuerst in ihren kleinen Canoes auf die Yucayas oder die
@@ -10373,10 +10392,10 @@ großen Theil des Festlandes ausgeübt, und das Andenken an
 ihre alte Größe gaben ihnen ein Gefühl von Würde und nationaler
 Ueberlegenheit, das in ihrem Benehmen und ihren
 Aeußerungen zu Tage kommt. »Nur wir sind ein Volk,«
-sagen sie sprüchwörtlich, »die andern Menschen (<i>oquili</i>) sind
+sagen sie sprüchwörtlich, »die andern Menschen (*oquili*) sind
 dazu da, uns zu dienen.« Die Caraiben sehen auf ihre alten
 Feinde so hoch herab, daß ich ein zehnjähriges Kind vor Wuth
-schäumen sah, weil man es einen <b>Cabre</b> oder <b>Cavere</b> nannte.
+schäumen sah, weil man es einen **Cabre** oder **Cavere** nannte.
 Und doch hatte es in seinem Leben keinen Menschen dieses
 unglücklichen Volkes^[S.Bd. III. Seite 261. 275. 278. IV. 218.]
 gesehen, von dem die Stadt Cabruta
@@ -10429,8 +10448,8 @@ Man hat aber in unsern osteologischen Sammlungen
 Kunstprodukte mit Naturbildungen verwechselt. Die »fast
 stirnlosen« sogenannten Caraibenschädel^[Ich führe
 als Beispiel nur eine vom berühmten Pater Camper gezeichnete
-Tafel an: <i>Viri adulti cranium ex Caraibensium insula Sancti
-Vicenti in Museo Clinii asservatum, 1785.</i>] von der Insel Sanct
+Tafel an: *Viri adulti cranium ex Caraibensium insula Sancti
+Vicenti in Museo Clinii asservatum, 1785.*] von der Insel Sanct
 Vincent sind zwischen Brettern gemodelte Köpfe von Zambos
 (schwarzen Caraiben), Abkömmlingen von Negern und wirklichen
 Caraiben. Der barbarische Brauch, die Stirne platt
@@ -10447,9 +10466,9 @@ befindet. Dieses amerikanische Wort von nicht ganz sicherer
 Bedeutung stammt wahrscheinlich aus der Sprache von Hain
 oder Portorico. Es ist schon zu Ende des fünfzehnten Jahrhunderts,
 als gleichbedentend mit Menschenfresser, in die
-europäischen Sprachen übergegangen. »<i>Edaces humanarum
+europäischen Sprachen übergegangen. »*Edaces humanarum
 carnium novi anthropophagi, quos diximus Caribes,
-alias Canibales appellari</i>«, sagt Anghiera in der dritten
+alias Canibales appellari*«, sagt Anghiera in der dritten
 Decade seiner Papst Leo X. gewidmeten Oceanica. Ich bezweifle
 keineswegs, daß die Inselcaraiben als eroberndes Volk
 die Ygneris oder alten Bewohner der Antillen, die schwach
@@ -10462,7 +10481,7 @@ Uebermuth des Siegers rächt man sich, indem man das Register
 seiner Gräuel vergrößert.
 
 Alle Missionäre am Carony, am untern Orinoco und
-in den <i>Llanos del Cari</i>, die wir zu befragen Gelegenheit
+in den *Llanos del Cari*, die wir zu befragen Gelegenheit
 gehabt, versichern, unter allen Völkern des neuen Continents
 seyen die Caraiben vielleicht am wenigsten Menschenfresser;
 und solches behaupten sie sogar von den unabhängigen Horden,
@@ -10471,13 +10490,13 @@ Rio Branco und des Essequebo umherziehen. Es begreift sich,
 daß die verzweifelte Erbitterung, mit der sich die unglücklichen
 Caraiben gegen die Spanier wehrten, nachdem im Jahr 1504
 ein königliches Ausschreiben sie für Sklaven erklärt hatte, sie
-vollends in den Ruf der Wildheit brachte, in dem sie stehen.^[<i>Dati
+vollends in den Ruf der Wildheit brachte, in dem sie stehen.^[*Dati
 erant in preaedam Caribes
 ex diplomate regio. Missus
 est Johannes Poncius, qui Caribum
 terras depopuletur et in servitutem
 obscoenos hominum voratores
-redigat.</i> Anghiera, Decas. I. Lib. 1. Dec. III. Lib. 6.]
+redigat.* Anghiera, Decas. I. Lib. 1. Dec. III. Lib. 6.]
 Der erste Gedanke, diesem Volke zu Leibe zu gehen und es
 seiner Freiheit und seiner natürlichen Rechte zu berauben,
 rührt von Christoph Columbus her, der die Ansichten des
@@ -10486,7 +10505,7 @@ so menschlich war, als man im achtzehnten aus Haß gegen
 seine Verkleinerer behauptete. Später wurde der Licenciat Rodrigo
 de Figueroa vom Hofe beauftragt (1520), auszumachen,
 welche Völkerschaften in Südamerika für caraibischen oder
-<b>canibalischen</b> Stammes gelten könnten, und welche <b>Guatiaos</b>
+**canibalischen** Stammes gelten könnten, und welche **Guatiaos**
 wären, das heißt friedliche, von lange her mit den
 Castilianern befreundete Indianer. Dieses ethnographische
 Actenstück, »el auto de Figueroa« genannt, ist eine der
@@ -10518,16 +10537,16 @@ Sinne aus, als sie Anfangs gethan. In einem
 Jahrhundert, in dem man nicht hoffen durfte, die öffentliche
 Freiheit auf bürgerliche Einrichtungen zu gründen, suchte man
 wenigstens die persönliche Freiheit zu vertheidigen. »Es ist,«
-sagt Gomara im Jahr 1551, »ein heiliges Gesetz (<i>lex
-sanctissima</i>), durch das unser Kaiser verboten hat, die Indianer
+sagt Gomara im Jahr 1551, »ein heiliges Gesetz (*lex
+sanctissima*), durch das unser Kaiser verboten hat, die Indianer
 zu Sklaven zu machen. Es ist gerecht, daß die Menschen,
 die alle frei zur Welt kommen, nicht einer des andern Sklaven
 werden.«
 
 Bei unserem Aufenthalt in den caraibischen Missionen
 überraschte es uns, mit welcher Gewandtheit junge, achtzehn-,
-zwanzigjährige Indianer, wenn sie zum Amte eines <b>Alguatil</b>
-oder <b>Fiscal</b> herangebildet sind, stundenlange Anreden
+zwanzigjährige Indianer, wenn sie zum Amte eines **Alguatil**
+oder **Fiscal** herangebildet sind, stundenlange Anreden
 an die Gemeinde halten. Die Betonung, die ernste Haltung,
 die Geberden, mit denen der Vortrag begleitet wird, Alles
 verräth ein begabtes, einer hohen Culturentwicklung fähiges
@@ -10553,7 +10572,7 @@ sich nach der Messe die ganze Gemeinde vor der Kirche. Die
 jungen Mädchen legen zu den Füßen des Missionärs Holzbündel,
 Mais, Bananenbüschel und andere Lebensmittel nieder,
 deren er in seinem Haushalt bedarf. Zugleich treten der
-<b>Governador</b>, der <b>Fiscal</b> und die Gemeindebeamten, lauter
+**Governador**, der **Fiscal** und die Gemeindebeamten, lauter
 Indianer, auf, ermahnen die Eingeborenen zum Fleiß,
 theilen die Arbeiten, welche die Woche über vorzunehmen sind,
 aus, geben den Trägen Verweise, und — es soll nicht
@@ -10571,7 +10590,7 @@ dem Grundsatz, auf dem das ganze seltsame Missionsregiment
 beruht. Die willkürlichste bürgerliche Gewalt ist mit den
 Rechten, welche dem Geistlichen der kleinen Gemeinde zustehen,
 völlig verschmolzen, und obgleich die Caraiben so gut wie keine
-<b>Canibalen</b> sind, und so sehr man wünschen mag, daß sie
+**Canibalen** sind, und so sehr man wünschen mag, daß sie
 mit Milde und Vorsicht behandelt werden, so sieht man doch
 ein, daß es zuweilen etwas kräftiger Mittel bedarf, um in
 einem so jungen Gemeinwesen die Ruhe aufrecht zu erhalten.
@@ -10587,18 +10606,18 @@ des Amazonenstromes zog. Die wandernden Caraiben waren
 die Bukharen des tropischen Amerika, und so hatte sie denn
 auch das tägliche Bedürfniß, die Gegenstände ihres kleinen
 Handels zu berechnen und einander Nachrichten mitzutheilen,
-dazu gebracht, die Handhabung der <b>Quippos</b>, oder, wie
-man in den Missionen sagt, der <i>cordoncillos con nudos</i>,
+dazu gebracht, die Handhabung der **Quippos**, oder, wie
+man in den Missionen sagt, der *cordoncillos con nudos*,
 zu verbessern und zu erweitern. Diese Quippos oder Schnüre
 kommen in Canada, in Mexiko (wo Boturini welche bei den
 Tlascalteken bekam), in Peru, auf den Niederungen von
 Guyana, in Centralasien, in China und in Indien vor. Als
 Rosenkränze wurden sie in den Händen der abendländischen
-Christen Werkzeuge der Andacht; als <b>Suampan</b> dienten sie
-zu den Griffen der <b>palpabeln</b> oder Handarithmetik der
+Christen Werkzeuge der Andacht; als **Suampan** dienten sie
+zu den Griffen der **palpabeln** oder Handarithmetik der
 Chinesen, Tartaren und Russen.^[Die Quippos oder Schnüre der
 Völker im obern Louisiana heißen
-<b>Wampum</b>. Anghiera (<i>Dec. III. Lib. 9.</i>)
+**Wampum**. Anghiera (*Dec. III. Lib. 9.*)
 erzählt einen sehr merkwürdigen
 Fall, aus dem hervorzugehen scheint,
 daß die umherziehenden Caraiben
@@ -10608,7 +10627,7 @@ nicht ganz unbekannt waren. Der
 interessanten Entdeckung von Bilderheften
 bei den Panos-Indianern am Ucayale
 habe ich anderswo gedacht
-(<i>Vues des cordilleres; T. I. pag. 72</i>).
+(*Vues des cordilleres; T. I. pag. 72*).
 Auch die Peruaner hatten neben
 den Quippos hieroglyphische Malereien,
 ähnlich den mexicanischen, nur roher.
@@ -10625,7 +10644,7 @@ keineswegs den Gebrauch
 einer Buchstabenschrift voraussetzt.] Die unabhängigen Caraiben,
 welche in dem noch so wenig bekannten Lande zwischen den
 Quellen des Orinoco und den Flüssen Essequebo, Carony und
-Parime (Rio Branco oder <i>Rio de aguas blancas</i>) hausen,
+Parime (Rio Branco oder *Rio de aguas blancas*) hausen,
 theilen sich in Stämme; ähnlich den Völkern am Missouri,
 in Chili und im alten Germanien bilden sie eine Art politischer
 Bundesgenossenschaft. Eine solche Verfassung sagt am
@@ -10657,7 +10676,7 @@ ist eine Gewähr für die Legitimität.
 Ich habe bei den königlichen Dynastien
 auf den Antillen alte Spuren dieser
 in Afrika und Ostindien sehr verbreiteten
-Erbfolge gefunden. »<i>In testamentis
+Erbfolge gefunden. »*In testamentis
 autem quam fatue sese habeant,
 intelligamus: ex sorore
 prima primogenitum, si insit,
@@ -10669,15 +10688,15 @@ certum est. Filios autem uxorum
 suarum pro non legitimis habent.
 Uxores ducunt quotquot placet.
 Ex uxoribus cariores cum regulo
-sepeliri patiuntur.</i> (Anghiera,
-<i>Decas III. Lib. 9.</i>)] Bei den
+sepeliri patiuntur.* (Anghiera,
+*Decas III. Lib. 9.*)] Bei den
 Caraiben müssen die jungen Häuptlinge, wie die Jünglinge,
 die heirathen wollen, fasten und sich den seltsamsten Büßungen
 unterziehen. Man purgirt sie mit der Frucht gewisser Euphorbien,
 man läßt sie in Kasten schwitzen und gibt ihnen
-von den <b>Marirris</b> oder <b>Piaches</b> bereitete Mittel ein, die
-in den Landstrichen jenseits der Alleghanis <b>Kriegstränke</b>,
-<b>Tränke zum Muthmachen</b> (<i>war-phisicks</i>) heißen. Die
+von den **Marirris** oder **Piaches** bereitete Mittel ein, die
+in den Landstrichen jenseits der Alleghanis **Kriegstränke**,
+**Tränke zum Muthmachen** (*war-phisicks*) heißen. Die
 caraibischen Marirris sind die berühmtesten von allen; sie
 sind Priester, Gaukler und Aerzte in Einer Person und ihre
 Lehre, ihre Kunstgriffe und ihre Arzneien vererben sich. Letztere
@@ -10687,7 +10706,7 @@ es scheint, von Uralters her bekannte Manipulationen des
 thierischen Magnetismus. Ich hatte Gelegenheit, mehrere
 Leute zu sprechen, welche die verbündeten Caraiben genau
 hatten beobachten können, ich konnte aber nicht erfahren, ob
-die <b>Marirris</b> eine Caste für sich bilden. In Nordamerika
+die **Marirris** eine Caste für sich bilden. In Nordamerika
 hat man gefunden, daß bei den Shawanoes, die in mehrere
 Stämme zerfallen, die Priester, die die Opfer vornehmen
 (wie bei den Hebräern), nur aus Einem Stamme, dem der
@@ -10695,9 +10714,9 @@ Mequachakes, seyn dürfen. Wie mir dünkt, muß Alles, was
 man noch in Amerika über die Spuren einer alten Priestercaste
 ausfindig macht, von bedeutendem Interesse seyn, wegen
 jener Priesterkönige in Peru, die sich Söhne der Sonne nannten,
-und jener <b>Sonnenkönige</b> bei den Natchez, bei denen
+und jener **Sonnenkönige** bei den Natchez, bei denen
 man unwillkürlich an die Heliaden der ersten östlichen Colonie
-von Rhodus denkt.^[Diodorus Siculus. <i>Lib. V.</i> §. 56.] Um Sitten
+von Rhodus denkt.^[Diodorus Siculus. *Lib. V.* §. 56.] Um Sitten
 und Gebräuche des caraibischen
 Volkes vollkommen kennen zu lernen, müßte man die
 Missionen in den Llanos, die am Carony und die Savanen
@@ -10706,20 +10725,20 @@ Je mehr man sie kennen lernt, versichern die Franciskaner,
 desto mehr müssen die Vorurtheile schwinden, die man gegen
 sie in Europa hat, wo sie für wilder, oder, um mich des
 naiven Ausdrucks eines Herrn von Montmartin zu bedienen,
-für weit weniger <b>liberal</b> gelten, als andere Völkerschaften
+für weit weniger **liberal** gelten, als andere Völkerschaften
 in Guyana.^[»Die Caraiben sind ziemlich hübsch gewachsen
 und fleischigt; sie sind
 aber nicht sehr liberal, denn sie
 essen gern Menschenfleisch, Eidechsen und
-Krokodile.« (<i>Description générale de
+Krokodile.« (*Description générale de
 l’Amérique par Pierre d’Avity,
-Seigneur de Montmartin, 1660</i>).] Die Sprache
+Seigneur de Montmartin, 1660*).] Die Sprache
 der Caraiben auf dem Festlande
 ist dieselbe von den Quellen des Rio Branco bis zu den
 Steppen von Cumana. Ich war so glücklich, in Besitz einer
 Handschrift zu gelangen, die einen Auszug des Paters Sebastian
-Garcia aus der »<i>Grammatica de la lengua Caribe
-del P. Fernando Ximenez</i>« enthielt. Diese werthvolle Handschrift
+Garcia aus der »*Grammatica de la lengua Caribe
+del P. Fernando Ximenez*« enthielt. Diese werthvolle Handschrift
 wurde bei Vaters^[Mithridates, Bd. III. Seite 685.] und 
 meines Bruders, Wilhelm von
 Humboldt, nach noch weit umfassenderem Plane angelegten
@@ -10737,17 +10756,17 @@ Alle unsere Vorsichtsmaßregeln, um die Skelette zu verbergen,
 waren vergeblich; nichts entgeht dem Scharfsinn und dem
 Geruch eines Caraiben, und es brauchte das ganze Ansehen
 des Missionärs, um unser Gepäck in Gang zu bringen. Ueber
-den Rio Cari mußten wir im Boote fahren, über den <i>Rio
-de agua clara</i> waten, fast könnte ich sagen schwimmen.
+den Rio Cari mußten wir im Boote fahren, über den *Rio
+de agua clara* waten, fast könnte ich sagen schwimmen.
 Wegen des Triebsands am Boden ist letzterer Uebergang bei
 Hochwasser sehr beschwerlich. Man wundert sich, daß in einem
 so ebenen Lande die Strömung so stark ist; die Steppenflüsse
 drängen aber auch, um mich eines ganz richtigen Ausdrucks
 des jüngeren Plinius zu bedienen, »nicht sowohl wegen des
 Bodenfalls, als wegen ihrer Fülle und wie durch ihr eigenes
-Gewicht vorwärts.«^[<i>Epistolae Lib. VIII. 8.
+Gewicht vorwärts.«^[*Epistolae Lib. VIII. 8.
 Clitumnus non loci declivitate, sed
-ipsa sui copia et quasi pondere impellitur.</i>] Wir hatten,
+ipsa sui copia et quasi pondere impellitur.*] Wir hatten,
 ehe wir in die kleine Stadt
 Pao kamen, zwei schlechte Nachtlager in Matagorda und los
 Niecietos. Ueberall dasselbe: kleine Rohrhütten mit Leder gedeckt,
@@ -10762,11 +10781,11 @@ Klima der Niederungen, wo statt der Wölfe die Jaguars
 auftreten, können sich diese kleinen wehrlosen und in ihren
 Bewegungen schwerfälligen Wiederkäuer nicht in Masse halten.
 
-Am 15. Juli langten wir in der <b>Fundacion</b> oder
+Am 15. Juli langten wir in der **Fundacion** oder
 Villa del Pao an, die im Jahr 1744 gegründet wurde und
 sehr vortheilhaft gelegen ist, um zwischen Nueva Barcelona
 und Angostura als Stapelplatz zu dienen. Ihr eigentlicher
-Name ist <i>Conception del Pao</i>; Alcedo, la Cruz Olmedilla
+Name ist *Conception del Pao*; Alcedo, la Cruz Olmedilla
 und viele andere Geographen gaben ihre Lage falsch an, weil
 sie den Ort entweder mit San Juan Baptista del Pao in
 den Llanos von Caracas, oder mit el Valle del Pao am
@@ -10784,7 +10803,7 @@ eine seltene Erscheinung in den Steppen. Wir sahen sogar
 Cocosbäume, die trotz der weiten Entfernung von der See
 ganz kräftig schienen. Ich lege einiges Gewicht auf letztere
 Wahrnehmung, da man die Glaubwürdigkeit von Reisenden,
-welche den Cocosbaum, eine <b>Küstenpalme</b>, in Tombuctu,
+welche den Cocosbaum, eine **Küstenpalme**, in Tombuctu,
 mitten in Afrika, angetroffen haben wollten, in Zweifel gezogen
 hat. Wir hatten öfters Gelegenheit, Cocosbäume mitten
 im Baulande am Magdalenenstrom, hundert Meilen von der
@@ -10799,7 +10818,7 @@ her, sondern vom feinen Sand, der in der Luft
 schwebt, nach allen Seiten Wärme strahlt und dem Reisenden
 ins Gesicht schlägt, wie an die Kugel des Thermometers. Indessen
 habe ich in Amerika den hunderttheiligen Thermometer
-mitten im <b>Sandwinde</b> niemals über 45°8 steigen sehen.
+mitten im **Sandwinde** niemals über 45°8 steigen sehen.
 Capitän Lyon, den ich nach seiner Rückkehr von Mourzouk
 zu sprechen das Vergnügen hatte, schien mir auch geneigt
 anzunehmen, daß die Temperatur von 52 Grad, der man
@@ -10908,19 +10927,19 @@ Verwaltung in einem Lande bestehen kann. Bis
 jetzt mußte man sich auf eine rein astronomische Aufnahme
 beschränken, und es ist dieß das sicherste und rascheste Verfahren
 bei einer Oberfläche von sehr großer Ausdehnung. Man
-suchte einige Punkte an den Küsten und im Innern <b>absolut</b>
+suchte einige Punkte an den Küsten und im Innern **absolut**
 zu bestimmen, das heißt nach Himmelserscheinungen
 oder Reihen von Monddistanzen. Man stellte die Lage der
 bedeutendsten Orte nach den drei Coordinaten der Breite, der
 Länge und der Höhe fest. Die dazwischenliegenden Punkte wurden
-mit den Hauptpunkten auf <b>chronometrischem</b> Wege
+mit den Hauptpunkten auf **chronometrischem** Wege
 verknüpft. Durch den sehr gleichförmigen Gang der Chronometer
 in Canoes und durch die sonderbaren Krümmungen des Orinoco
 wurde diese Anknüpfung erleichtert. Man brachte die
 Chronometer zum Ausgangspunkte zurück, oder man beobachtete
 zweimal (im Hinweg und im Herweg) an einem dazwischen
-liegenden Punkte, man knüpfte die Enden der <b>chronometrischen
-Linien</b>^[Mit diesem nicht gebräuchlichen Ausdruck
+liegenden Punkte, man knüpfte die Enden der **chronometrischen
+Linien**^[Mit diesem nicht gebräuchlichen Ausdruck
 bezeichne ich Linien, welche
 durch die Punkte laufen, die mittelst
 Uebertragung der Zeit bestimmt worden
@@ -10993,8 +11012,8 @@ hatte, zum Theil auszuführen.
 Am 26. Juli brachten wir die Nacht im indianischen
 Dorfe Santa Cruz de Cachipo zu. Diese Mission wurde im
 Jahr 1749 mit mehreren caraibischen Familien gegründet,
-welche an den überschwemmten, ungesunden Ufern der <i>Lagunetas
-de Anache</i>, gegenüber dem Einfluß des Rio Puruay
+welche an den überschwemmten, ungesunden Ufern der *Lagunetas
+de Anache*, gegenüber dem Einfluß des Rio Puruay
 in den Orinoco, lebten. Wir wohnten beim Missionär^[Fray Jose
 de las Piedras.]
 und ersahen aus den Kirchenbüchern, welch rasche Fortschritte
@@ -11100,7 +11119,7 @@ ist. Es steht nicht in der Macht des Menschen, die klimatischen
 Unterschiede zu ändern, die aus der auf kleinem Flächenraum
 rasch wechselnden Bodenhöhe hervorgehen, und welche
 die Quelle des Widerwillens sind, der zwischen den Bewohnern
-der der <b>terra caliente</b> und denen der <b>terra fria</b> besteht,
+der der **terra caliente** und denen der **terra fria** besteht,
 eines Widerwillens, der auf Gegensätzen im Charakter, in
 Sitten und Gebrauchen beruht. Diese moralischen und politischen
 Einflüsse machen sich besonders in Ländern geltend, wo
@@ -11120,7 +11139,7 @@ und Neu-Grenada unter dem Namen Columbia verschmolzen
 wurden, die bedeutende Gebirgsbevölkerung von
 Santa Fe, Popayan, Pasto und Quito, wo nicht ganz, doch
 über die Hälfte durch den Zuwachs von acht- bis neunmalhunderttausend
-Bewohnern der <b>terra caliente</b> aufgewogen
+Bewohnern der **terra caliente** aufgewogen
 wurde. Der Oberflächenzustand des Bodens ist nicht so unveränderlich
 als seine Reliefbildung, und so erscheint es als
 möglich, daß die scharfen Gegensätze zwischen den undurchdringlichen
@@ -11151,8 +11170,8 @@ laufen die Nebenflüsse des Orinoco, von denen die östlichsten
 (Cari, Pao, Acaru und Manapire) in der trockenen Jahreszeit
 sehr wasserarm find, nur der Quere nach. Alle diese
 Flüsse reichen nicht weit gegen Nord, so daß in der Mitte
-Steppen, weite, entsetzlich dürre Landstriche (<i>bancos</i> und
-<i>mesas</i>) bleiben. Am culturfähigsten sind die westlichen, von
+Steppen, weite, entsetzlich dürre Landstriche (*bancos* und
+*mesas*) bleiben. Am culturfähigsten sind die westlichen, von
 der Portuguesa, vom Masparro und Orivante und den nahe
 bei einander liegenden Nebenflüssen derselben bewässerten Striche.
 Der Boden besteht aus mit Thon gemengtem Sand über einer
@@ -11184,7 +11203,7 @@ Höfe, bei denen man Mais und Manioc baut, werden sich
 bedeutend vermehren, wenn es gelingt, mehr Bäume und Gebüsch
 fortzubringen.
 
-Die Dürre der <b>Mesas</b>^[Kleine Plateaus, Bänke, die etwas höher
+Die Dürre der **Mesas**^[Kleine Plateaus, Bänke, die etwas höher
 liegen als die übrige Steppe.] und die große Hitze, die darauf
 herrscht, rühren nicht allein von der Beschaffenheit ihrer Oberfläche
 und der örtlichen Reverberation des Bodens her; ihre
@@ -11269,8 +11288,8 @@ Dieser allmählige Wechsel, dieses Wachsen der Bevölkerung
 werden nicht nur den Wohlstand dieser Länder steigern,
 sie werden auch auf die sittlichen und politischen Zustände günstigen
 Einfluß äußern. Die Llanos machen über zwei Dritttheile
-des Stücks von Venezuela oder der alten <i>Capitania
-general</i> von Caracas aus, das nördlich vom Orinoco und
+des Stücks von Venezuela oder der alten *Capitania
+general* von Caracas aus, das nördlich vom Orinoco und
 Rio Apure liegt. Bei bürgerlichen Unruhen dienen nun aber
 die Llanos durch ihre Oede und den Ueberfluß an Nahrungsmitteln,
 die ihre zahllosen Herden liefern, der Partei, welche
@@ -11295,9 +11314,9 @@ sehen, daß das Hirtenleben mit seinen Sitten, welche
 Faulheit und Landstreicherei so sehr befördern, auf mehr als
 zwei Dritttheilen ihres Gebiets herrscht. Der Theil der 
 Küstenbevölkerung, der jährlich in die Llanos abfließt, um sich in
-den <i>hatos de ganado</i>^[Eine Art Hof,
-bestehend aus Schuppen, wo die <i>hateros</i> und <i>peones
-para et rodeo</i> wohnen, d.&nbsp;h.
+den *hatos de ganado*^[Eine Art Hof,
+bestehend aus Schuppen, wo die *hateros* und *peones
+para et rodeo* wohnen, d.&nbsp;h.
 die Leute, welche die halbwilden Pferde- und
 Viehheerden warten oder vielmehr beaussichtigen.]
 niederzulassen und die Heerden zu
@@ -11311,8 +11330,8 @@ ihren Einzug halten.
 
 Nach dreitägigem Marsch kam uns allmählig die Bergkette
 von Cumana zu Gesicht, die zwischen den Llanos, oder,
-wie man hier oft sagen hört, »dem großen Meer von Grün«^[»<i>Los Llanos
-son como <b>un mar de yerbas</b>.</i>«]
+wie man hier oft sagen hört, »dem großen Meer von Grün«^[»*Los Llanos
+son como **un mar de yerbas**.*«]
 und der Küste des Meeres der Antillen liegt. Ist der Bergantin
 über 800 Toisen hoch, so kann man ihn, auch nur
 eine gewöhnliche Refraction von ¹⁄₁₄ des Bogens angenommen,
@@ -11330,7 +11349,7 @@ Nord zu erweitern, und das Himmelsgewölbe schien dort nicht
 mehr in gleicher Entfernung auf dem grasbewachsenen Boden
 auszuruhen.
 
-Einem <b>Llanero</b> oder Steppenbewohner ist nur wohl,
+Einem **Llanero** oder Steppenbewohner ist nur wohl,
 wenn er, nach dem naiven Volksausdruck, »überall um sich
 sehen kann.« Was uns als ein bewachsenes, leicht gewelltes,
 kaum hie und da hügligtes Land erscheint, ist für ihn ein
@@ -11458,7 +11477,7 @@ ebenso an den Ufern des Amazonenstromes auf. Schon La
 Condamine hatte versichert, vom Pongo de Manseriche bis
 zum Engpasse der Pauxis sey auch nicht der kleinste Stein
 zu finden. Das Becken des Rio Negro und des Amazonenstromes
-ist aber auch nichts als ein <b>Llano</b>, eine Ebene wie
+ist aber auch nichts als ein **Llano**, eine Ebene wie
 die in Venezuela und Buenos Ayres, und der Unterschied
 besteht allein in der Art des Pflanzenwuchses. Die beiden
 Llanos am Nord- und am Südende von Südamerika sind
@@ -11504,7 +11523,7 @@ an, weniger angegriffen von der Hitze in den Llanos,
 an die wir längst gewöhnt waren, als von den Sandwinden,
 die auf die Länge schmerzhafte Schrunden in der Haut verursachen.
 Vor sieben Monaten hatten wir auf dem Wege
-von Cumana nach Caracas ein paar Stunden am <b>Morro</b>
+von Cumana nach Caracas ein paar Stunden am **Morro**
 von Barcelona angelegt, einem befestigten Felsen, der dem
 Dorfe Pozuelos zu nur durch eine Landzunge mit dem Festlande
 zusammenhängt. Im Hause eines reichen Handelsmanns
@@ -11540,30 +11559,30 @@ Nueva Barcelona die Rede. Die kleine Stadt, die im Jahr
 1790 kaum 10,000 Einwohner, im Jahr 1800 über 16,000
 hatte, wurde 1637 von einem catalonischen Conquistador,
 Juan Urpin, gegründet. Man versuchte damals, aber vergeblich,
-der ganzen Provinz den Namen <b>Neu-Catalonien</b>
+der ganzen Provinz den Namen **Neu-Catalonien**
 zu geben. Da auf unsern Karten häufig zwei Städte statt
 Einer, Barcelona und Cumanagoto, angegeben sind, oder
 man diese zwei Namen für gleichbedeutend hält, so erscheint
 es nicht nutzlos, die Quelle dieses Irrthums hier anzugeben.
-An der Mündung des Rio Neveri stand früher eine <b>indianische</b>,
+An der Mündung des Rio Neveri stand früher eine **indianische**,
 von Lucas Faxardo im Jahr 1588 gebaute Stadt,
-unter dem Namen <b>San Cristoval de los Cumanagotos</b>.
+unter dem Namen **San Cristoval de los Cumanagotos**.
 Dieselbe war nur von Eingeborenen bewohnt, die von den
 Salzwerken bei Apaicuare hieher gezogen waren. Im Jahr
 1637 gründete Urpin zwei Meilen herwärts vom innern
 Lande mit einigen Einwohnern von Cumanagoto und vielen
-Cataloniern die <b>spanische Stadt</b> Nueva Barcelona. Vierunddreißig
+Cataloniern die **spanische Stadt** Nueva Barcelona. Vierunddreißig
 Jahre lang lagen die Nachbargemeinden in beständigem
 Streit, bis im Jahr 1671 der Statthalter Angulo es
 dahin brachte, daß sie sich an einer dritten Baustelle vereinigten,
 wo nunmehr die Stadt Barcelona steht, die nach meinen
 Beobachtungen unter dem 10°6′52″ der Breite liegt. Die
 alte Stadt Cumanagoto ist im Lande vielberufen wegen eines
-wunderthätigen Bildes der h.&nbsp;Jungfrau,^[<i>La milagrosa
-imagen de Maria Santissima del Socorro</i>, auch
-<i>Virgen del Tutumo</i> genannt.] das, wie die Indianer
-erzählen, im hohlen Stamm eines <b>Tutumo</b>, oder
-alten Flaschenkürbisbaums (<i>Crescentia Cujete</i>) gefunden
+wunderthätigen Bildes der h.&nbsp;Jungfrau,^[*La milagrosa
+imagen de Maria Santissima del Socorro*, auch
+*Virgen del Tutumo* genannt.] das, wie die Indianer
+erzählen, im hohlen Stamm eines **Tutumo**, oder
+alten Flaschenkürbisbaums (*Crescentia Cujete*) gefunden
 worden ist. Dasselbe wurde in Procession nach Neu-Barcelona
 gebracht; aber so oft die Geistlichkeit mit den Bewohnern der
 neuen Stadt unzufrieden war, entfloh es bei Nacht und kehrte
@@ -11610,7 +11629,7 @@ Zwei Meilen südostwärts von Nueva Barcelona erhebt
 sich eine hohe Bergkette, die sich an den Cerro del Bergantin
 lehnt, den man von Cumana aus sieht.^[S. Bd. I. Seite 212. IV. 350.]
 Der Ort ist unter
-dem Namen <i>Aguas calientes</i> bekannt. Als ich mich gehörig
+dem Namen *Aguas calientes* bekannt. Als ich mich gehörig
 hergestellt fühlte, unternahmen wir an einem frischen, nebligten,
 Morgen einen Ausflug dahin. Das mit Schwefelwasserstoff
 geschwängerte Wasser kommt aus einem quarzigen
@@ -11635,7 +11654,7 @@ dem granitischen Gneiß kommen, 58°9 und 90°4 heiß sind.^[S. Bd. II. Seite 29
 Es ist als ob die Wärme, welche die Quellen im Erdinnern
 angenommen, abnähme, je weiter sie aus dem Urgebirge in
 die aufgelagerten secundären Formationen gelangen.
-Unser Ausflug zu den <i>Aguas calientes</i> am Bergantin
+Unser Ausflug zu den *Aguas calientes* am Bergantin
 endete mit einem leidigen Unfall. Unser Gastfreund hatte
 uns seine schönsten Reitpferde gegeben. Man hatte uns zugleich
 gewarnt, nicht durch den kleinen Fluß Narigual zu
@@ -11688,14 +11707,14 @@ Es ist merkwürdig, wie in den verschiedenen Erdstrichen
 der Mensch, um den Hang zur Trunkenheit zu befriedigen,
 nicht nur alle Familien monocotyledonischer und dicotyledonischer
 Gewächse herbeizieht, sondern sogar den giftigen Fliegenschwamm
-(<i>Amanita muscaria</i>), von dem die Koriäken denselben Saft
+(*Amanita muscaria*), von dem die Koriäken denselben Saft
 zu wiederholten malen fünf Tage hinter einander trinken,
 worauf sie aus ekelhafter Sparsamkeit gekommen sind.^[Langsdorf
 (Wetterauisches Journal. Th I. Seite 254) hat diese sehr
 merkwürdige physiologische Erscheinung
 zuerst bekannt gemacht. Ich beschreibe
 sie hier, doch lieber lateinisch. —
-<i>Coriaecorum gens, in ora Asiae septentrioni
+*Coriaecorum gens, in ora Asiae septentrioni
 opposita, potum sibi excogitavit
 ex succo inebriante Agarici
 muscarii, qui succus (aeque ut
@@ -11708,8 +11727,8 @@ identidem; continuoque mingens
 rursusqne hauriens eundem succum
 (dicas, ne ulla in parte mundi
 desit. ebrietas) pauculis agaricis
-producere in diem quintum temulentiam potest.</i>]
-Die Paketboote (<i>correos</i>), die von Corunna nach der
+producere in diem quintum temulentiam potest.*]
+Die Paketboote (*correos*), die von Corunna nach der
 Havana und nach Mexico laufen, waren seit drei Monaten
 ausgeblieben. Man vermuthete, sie seyen von den englischen
 Kreuzern aufgebracht worden. Da wir Eile hatten, nach
@@ -11747,7 +11766,7 @@ meine und des Eigners des Canoes Rechte zu verfechten suchte,
 hörte ich Lärm auf dem Verdeck. Einer kam und sagte dem
 Capitän etwas ins Ohr. Dieser schien bestürzt und ging
 hinaus. Zu unserem Glück kreuzte auch eine englische Corvette
-(die Sloop <b>Hawk</b>) in diesen Gewässern. Sie hatte durch
+(die Sloop **Hawk**) in diesen Gewässern. Sie hatte durch
 Signale den Capitän des Capers zu sich gerufen, und da
 dieser sich nicht beeilte Folge zu leisten, feuerte sie eine Kanone
 ab und schickte einen Midshipman zu uns an Bord. Dieser
@@ -11831,7 +11850,7 @@ Wir eilten, uns dem Statthalter Don Vicente Emparan
 vorzustellen, dessen Empfehlungen und beständige Vorsorge uns
 auf der langen, nunmehr vollendeten Reise so ungemein förderlich
 gewesen waren. Er verschaffte uns mitten in der Stadt
-ein Haus,^[<i>Casa de Don Pasqual Martinez</i>,
+ein Haus,^[*Casa de Don Pasqual Martinez*,
 nordwestlich vom großen Platz,
 an dem ich vom 28.&nbsp;Jan bis 17.&nbsp;November
 1799 beobachtet hatte. Alle
@@ -11844,7 +11863,7 @@ wenn einmal Einer die Genauigkeit
 meiner Beobachtungen prüfen will.] das für ein Land,
 das starken Erdbeben ausgesetzt
 ist, vielleicht zu hoch, aber für unsere Instrumente ungemein
-bequem war. Es hatte Terrassen (<i>azoteas</i>), auf denen man
+bequem war. Es hatte Terrassen (*azoteas*), auf denen man
 einer herrlichen Aussicht auf die See, auf die Landenge Araya
 und auf den Archipel der Caracas-, Picuita- und Borracha-Inseln
 genoß. Der Hafen von Cumana wurde täglich strenger
@@ -11866,9 +11885,9 @@ Strahlenbrechung, über Verdunstung und Luftelektricität.
 
 Die lebenden Thiere, die wir vom Orinoco mitgebracht,
 waren für die Einwohner von Cumana ein Gegenstand lebhafter
-Neugier. Der <b>Kapuziner</b> von Esmeralda (<i>Simia
-chiropotes</i>), der im Gesichtsausdruck so große Menschenähnlichkeit
-hat, Und der Schlafaffe (<i>Simia trivirgata</i>), der Typus
+Neugier. Der **Kapuziner** von Esmeralda (*Simia
+chiropotes*), der im Gesichtsausdruck so große Menschenähnlichkeit
+hat, Und der Schlafaffe (*Simia trivirgata*), der Typus
 einer neuen Gruppe, waren an dieser Küste noch nie gesehen
 worden. Wir dachten dieselben der Menagerie im Pariser
 Pflanzengarten zu; denn die Ankunft einer französischen Escadre,
@@ -11878,12 +11897,12 @@ General Jeannet und der Commissär Bresseau, Agent der
 vollziehenden Gewalt auf den Antillen, versprachen uns, die
 Sendung zu besorgen. Aber Affen und Vögel gingen auf
 Guadeloupe zu Grunde, und nur durch einen glücklichen Zufall
-gelangte der Balg des <i>Simia chiropotes</i>, der sonst in
+gelangte der Balg des *Simia chiropotes*, der sonst in
 Europa gar nicht existirt, vor einigen Jahren in den Pflanzengarten,
-nachdem schon früher der Couxio (<i>Simia satanas</i>)
+nachdem schon früher der Couxio (*Simia satanas*)
 and der Stentor oder Alouato aus den Steppen von Caracas
-(<i>Simia ursina</i>), die ich in meinem <i>Recueil de zoologie
-et d’anatomie comparées</i> abgebildet, daselbst angekommen
+(*Simia ursina*), die ich in meinem *Recueil de zoologie
+et d’anatomie comparées* abgebildet, daselbst angekommen
 waren. Die Anwesenheit so vieler französischer Soldaten und
 die Aeußerung politischer und religiöser Ansichten, die eben
 nicht ganz mit denen übereinstimmten, durch welche die Mutterländer
@@ -11905,8 +11924,8 @@ Gäste, und in einem Lande, dessen fortwährend steigender
 Wohlstand auf dem Schleichverkehr mit den Inseln
 beruhte und auf einer Art Handelsfreiheit, die man dem Ministerium
 abgerungen, erlebte ich es, daß die Hispano-Europäer
-sich nicht entblödeten, die alte Weisheit des Gesetzbuchs (<i>leyes
-de Indias</i>), dem zufolge die Hafen keinen fremden Fahrzeugen
+sich nicht entblödeten, die alte Weisheit des Gesetzbuchs (*leyes
+de Indias*), dem zufolge die Hafen keinen fremden Fahrzeugen
 geöffnet werden sollen außer in äußersten Nothfällen, bis zu
 den Wolken zu erheben. Ich hebe diese Gegensätze zwischen den
 unruhigen Wünschen der Colonisten und der argwöhnischen
@@ -11922,7 +11941,7 @@ Meerbusen von Cariaco, Cumana gegenüber, deren Perlen,
 deren Salzlager und unterseeische Quellen flüssigen, farblosen
 Steinöls ich schon oben beschrieben habe.^[S. Bd. I. Seite 252 ff.]
 Wir hatten gehört,
-die Indianer bringen von Zeit zu Zeit <b>natürlichen Alaun</b>,
+die Indianer bringen von Zeit zu Zeit **natürlichen Alaun**,
 der in den benachbarten Bergen vorkomme, in bedeutenden
 Massen in die Stadt. An den Proben, die man uns zeigte,
 sah man gleich, daß es weder Alaunstein war, ähnlich dem
@@ -11931,7 +11950,7 @@ seidenartigen Salze von schwefelsaurer Thon- und Bittererde,
 welche Gebirgsspalten und Höhlen auskleiden, sondern wirklich
 Massen natürlichen Alauns, mit muschligtem oder unvollkommen
 blättrigem Bruch. Man machte uns Hoffnung, daß
-wir die <b>Alaungrube</b> im Schiefergebirg bei Maniquarez
+wir die **Alaungrube** im Schiefergebirg bei Maniquarez
 finden könnten: Eine so neue geognostische Erscheinung mußte
 unsere ganze Aufmerksamkeit in Anspruch nehmen. Frater
 Juan Gonzalez und der Schatzmeister Don Manuel Navarete,
@@ -11974,7 +11993,7 @@ die Insel Margarita verband. Auf letzterer verbindet nur
 noch eine ganz niedrige, 3000 Toisen lange und nicht 200
 Toisen breite Landzunge gegen Nord die zwei unter dem Namen
 Vega de San Juan und Macanao bekannten Berggruppen.
-Die <i>Laguna grande</i> auf Margarita hat gegen Süd eine
+Die *Laguna grande* auf Margarita hat gegen Süd eine
 sehr enge Oeffnung und kleine Canoes kommen »arastradas,«
 das heißt über einen Trageplatz, über die Landzunge
 oder den Damm im Norden hinüber. Wenn sich auch heutzutage
@@ -11989,7 +12008,7 @@ wir die Versuche, die wir am Orinoco über den Unterschied
 zwischen der Temperatur der Luft und des verwitterten Gesteins
 gemacht hatten. Erstere betrug gegen 11 Uhr Vormittags,
 des Seewinds wegen, nur 27 Grad, letztere dagegen 49°6.
-Der Saft in den Fackeldisteln (<i>Cactus quadrangularis</i>)
+Der Saft in den Fackeldisteln (*Cactus quadrangularis*)
 zeigte 38-41°; soviel zeigte ein Thermometer, dessen Kugel
 ich in den fleischigten, saftigen Stamm der Cactus hineinsteckte.
 Diese innere Temperatur eines Gewächses ist das
@@ -12017,7 +12036,7 @@ auf Guadeloupe der Fall ist.
 Am 4. November um 1 Uhr Nachts gingen wir unter
 Segel, um die natürliche Alaungrube aufzusuchen. Ich hatte
 den Chronometer und mein großes Dollond’sches Fernrohr
-mit eingeschifft, um bei der <i>Laguna chica</i>, östlich vom
+mit eingeschifft, um bei der *Laguna chica*, östlich vom
 Dorfe Maniquarez, die Immension des ersten Jupiterstrabanten
 zu beobachten. Daraus wurde indessen nichts, da wir
 des widrigen Windes wegen nicht vor Tag hinkamen. Nur
@@ -12035,7 +12054,7 @@ Tiefen wie herauf destillirt wird, daß es aus den
 Urgebirgsbildungen kommt, unter denen der Herd aller Vulkanischen
 Erschütterungen liegt.
 
-Die <i>Laguna chica</i>, ist eine von steil abfallenden Bergen
+Die *Laguna chica*, ist eine von steil abfallenden Bergen
 umgebene Bucht, die mit dem Meerbusen von Cariaco nur
 durch einen engen, 25&nbsp;Faden tiefen Canal zusammenhängt.
 Es sieht aus, als wäre sie, wie auch der schöne Hafen von
@@ -12044,7 +12063,7 @@ Uferstrich scheint darauf hinzudeuten, daß die See sich hier
 vom Lande zurückzieht, wie an der gegenüberliegenden Küste
 von Cumana. Die Halbinsel Araya verengert sich zwischen
 den Vorgebirgen Mero und las Minas auf 1400 Toisen
-und ist bei der <i>Laguna chica</i> von einem Seestrich zum andern
+und ist bei der *Laguna chica* von einem Seestrich zum andern
 etwas über 4000 Toisen breit. Diese unbedeutende
 Strecke hatten wir zurückzulegen, um zum natürlichen Alaun
 und zum Vorgebirge, genannt Punta de Chuparuparu, zu
@@ -12054,7 +12073,7 @@ kein Weg gebahnt ist und man zwischen ziemlich tiefen Abgründen
 Schichten gehen muß. Der höchste Punkt liegt gegen 220
 Toisen hoch, aber die Berge zeigen, wie so häufig auf felsigten
 Landengen, die seltsamsten Bildungen. Die Tetas de Chacopata
-und de Cariaco, halbwegs zwischen der <i>Laguna chica</i>
+und de Cariaco, halbwegs zwischen der *Laguna chica*
 und der Stadt Cariaco, sind wahre Spitzberge, die von der
 Platform des Schlosses in Cumana aus ganz frei zu stehen
 scheinen. Dammerde findet sich in diesem Landstrich nur bis
@@ -12068,7 +12087,7 @@ der anscheinenden Trockenheit der Luft, Früchte von 60 bis
 denn aus meinen hygrometrischen Beobachtungen geht hervor,
 daß in Cumana und Araya die Luft fast zu neun Zehntheilen
 mit Wasserdunst gesättigt ist. Diese zugleich heiße und feuchte
-Luft speist die <b>vegetabilischen Quellen</b>, die kürbisartigen
+Luft speist die **vegetabilischen Quellen**, die kürbisartigen
 Gewächse, die Agaven und Melocactus, die halb im
 Sand vergraben sind. Als wir die Halbinsel im vorigen
 Jahr besuchten, herrschte da furchtbarer Wassermangel. Die
@@ -12097,7 +12116,7 @@ bei Angostura beobachtet, sogar an den meisten
 secundären Formationen, die wir untersucht. Auf sehr weite
 Strecken bilden die Schichten denselben Winkel mit dem
 Meridian des Orts; sie zeigen einrn Parallelismus (oder vielmehr
-<b>Loxodromismus</b>), der als eines der großen geognostischen
+**Loxodromismus**), der als eines der großen geognostischen
 Gesetze zu betrachten ist, die durch genaue Messung
 zu ermitteln sind. Gegen das Cap Chuparuparu zu sahen
 wir die Quarzgänge im Glimmerschiefer mächtiger werden.
@@ -12124,15 +12143,15 @@ der Macanao, ist fast ganz unbewohnt. Die Landenge, welche
 diese gewaltigen Glimmerschiefermassen verbindet, war kaum
 sichtbar; sie erschien durch die Luftspiegelung verzogen und
 man erkannte dieses Zwischenglied des Landes, durch das die
-<i>Laguna grande</i> läuft, nur an zwei kleinen zuckerhutförmigen
+*Laguna grande* läuft, nur an zwei kleinen zuckerhutförmigen
 Bergen, die unter dem Meridian der Punta de Piedras
 liegen. Weiter herwärts sahen wir auf den kleinen öden Archipel
 der vier Morros del Tunal, der Caribes und Lobos hinab.
 
 Nach langem vergeblichem Suchen fanden wir endlich,
 ehe wir zur Nordküste der Halbinsel Araya hinabgingen, in
-einer ungemein schwer zugänglichen Schlucht (<i>Aroyo del
-Robalo</i>) das Mineral, das man uns in Cumana gezeigt
+einer ungemein schwer zugänglichen Schlucht (*Aroyo del
+Robalo*) das Mineral, das man uns in Cumana gezeigt
 hatte. Der Glimmerschiefer ging rasch in kohlenhaltigen,
 glänzenden Thonschiefer über. Es war Ampelit; das Wasser
 (denn es gibt hier kleine Quellen, und kürzlich hat man selbst
@@ -12243,10 +12262,10 @@ kahlen Felsen umhergeirrt, ruhten unsere Blicke mit Lust auf
 den Malpighia- und Crotonbüschen, die wir auf dem Wege
 zur Küste hinab trafen. Diese baumartigen Croton waren
 sogar zwei neue, durch ihren Habitus sehr interessante, der
-Halbinsel Araya allein angehörige Arten.^[<i>Croton argyrophyllus</i>
-und <i>C. marginatus</i>] Wir kamen zu
-spät zur <i>Laguna chica</i> um noch eine andere Bucht weiter
-ostwärts, als <i>Laguna grande</i> oder <i>del olispo</i> vielberufen,
+Halbinsel Araya allein angehörige Arten.^[*Croton argyrophyllus*
+und *C. marginatus*] Wir kamen zu
+spät zur *Laguna chica* um noch eine andere Bucht weiter
+ostwärts, als *Laguna grande* oder *del olispo* vielberufen,
 besuchen zu können. Wir begnügten uns, dieselbe von den
 sie beherrschenden Bergen herab zu bewundern. Außer den
 Häfen von Ferrol und Acapulco gibt es vielleicht keinen
@@ -12301,7 +12320,7 @@ Allgemeine Bemerkungen über das Verhältniß des neuen zum alten
 Continent. — Ueberfahrt von den Küsten von Venezuela nach der Havana.
 
 Als ich nach meiner Rückkehr nach Deutschland den
-»<i>Essai politique sur la nouvelle Espagne</i>«
+»*Essai politique sur la nouvelle Espagne*«
 herausgab, veröffentlichte ich zugleich einen Theil des von mir
 über den Bodenreichthum von Südamerika gesammelten Materials.
 Diese vergleichende Schilderung der Bevölkerung, des
@@ -12552,7 +12571,7 @@ diese denkwürdige Zeit, in der ungezügelte Leidenschaften und
 der Hang zu starren Dogmen die Klippen der europäischen
 Staatskunst waren, auch die Eroberung von Mexico, Peru
 und Cundinamarca fällt, eine Eroberung, durch die, wie sich
-der Verfasser des <i>Esprit des lois</i> so schön ausdrückt, das
+der Verfasser des *Esprit des lois* so schön ausdrückt, das
 Mutterland eine unermeßliche Schuld auf sich genommen, die
 es der Menschheit abzutragen hat. Ungeheure Provinzen wurden
 durch castilianische Tapferkeit den Ansiedlern aufgethan und
@@ -12602,7 +12621,7 @@ und Gran Borracha ist eine tiefe Straße. Die Nacht brachte
 die Kühle, welche den tropischen Nächten eigen ist und einen
 angenehmen Eindruck macht, von dem man sich erst Rechenschaft
 geben kann, wenn man die nächtliche Temperatur von
-23 bis 24 Graden des hunderttheiligen Ther1nometers mit der
+23 bis 24 Graden des hunderttheiligen Thermometers mit der
 mittleren Tagestemperatur vergleicht, die in diesen Strichen,
 selbst auf den Küsten, meist 28 bis 29 Grad beträgt. Tags
 darauf, kurz nach der Beobachtung um Mittag, befanden wir
@@ -12683,9 +12702,9 @@ der aussieht, als wäre er beim allmähligen Sinken
 des Meeresspiegels aus dem Wasser gestiegen. Die Felsen
 erschienen hier, wie überall, wo sie sich einzeln steil aus der
 See erheben, weit höher, als sie wirklich sind; sie sind kaum
-80 bis 90&nbsp;Toisen hoch. Gegen Nordwest streicht die <i>Punta
-rasa</i> hinaus und verliert sich als Untiefe im Wasser. Sie
-kann den Schiffen gefährlich werden, wie auch der <b>Mogote</b>,
+80 bis 90&nbsp;Toisen hoch. Gegen Nordwest streicht die *Punta
+rasa* hinaus und verliert sich als Untiefe im Wasser. Sie
+kann den Schiffen gefährlich werden, wie auch der **Mogote**,
 der, zwei Seemeilen vom westlichen Cap, von Klippen umgeben
 ist. Wir betrachteten diese Felsen ganz in der Nähe
 und sahen die Gneißschichten nach Nordwest fallen und von
@@ -12693,8 +12712,8 @@ dicken Quarzlagern durchzogen. Von der Verwitterung dieser
 Lager rührt ohne Zweifel der Sand des umgebenden Strandes
 her. Ein paar Baumgruppen beschatten die Gründe; oben
 auf den Hügeln stehen Palmen mit fächerförmigem Laub. Es
-ist wahrscheinlich die <i>Palma de sombrero</i> der Llanos (<i>Corypha
-tectorum</i>). Es regnet wenig in diesen Strichen, indessen
+ist wahrscheinlich die *Palma de sombrero* der Llanos (*Corypha
+tectorum*). Es regnet wenig in diesen Strichen, indessen
 fände man auf der Insel Orchila wahrscheinlich doch einige
 Quellen, wenn man sie so eifrig suchte, wie im Glimmerschiefergestein
 auf Punta Araya. Wenn man bedenkt, wie
@@ -12709,7 +12728,7 @@ ihre Thätigkeit auf den engen Bezirk einer Insel zu beschränken,
 wenn das nahe Festland ihnen größere Vortheile bietet.
 
 Bei Sonnenuntergang kamen uns die zwei Spitzen der
-<i>Roca de afuera</i> zu Gesicht, die sich wie Thürme aus der
+*Roca de afuera* zu Gesicht, die sich wie Thürme aus der
 See erheben. Nach der Aufnahme mit dem Compaß liegt der
 östlichste dieser Felsen 0°19′ westwärts vom westlichen Cap
 von Orchila. Die Wolken blieben lange um diese Insel geballt,
@@ -12793,11 +12812,11 @@ verdient, ebenso schwer erklärlich macht.
 
 Am 3. December. Man war unruhig, weil sich ein
 Fahrzeug sehen ließ, das man für einen Caper hielt. Als
-es auf uns zukam, sah man, daß es die <b>Balandra del
-Frayle</b> (Goelette des Mönchs) war. Was eine so seltsame
+es auf uns zukam, sah man, daß es die **Balandra del
+Frayle** (Goelette des Mönchs) war. Was eine so seltsame
 Benennung sagen wollte, war mir unklar. Es war aber
 nur das Fahrzeug eines Missionärs vom Franciscanerorden
-(<i>Frayle Observante</i>), eines sehr reichen Pfarrers eines
+(*Frayle Observante*), eines sehr reichen Pfarrers eines
 indianischen Dorfs in den Llanos von Barcelona, der seit
 mehreren Jahren einen kleinen, ziemlich einträglichen Schmuggelhandel
 mit den dänischen Inseln trieb. In der Nacht
@@ -12907,7 +12926,7 @@ die darauf lagerten.
 
 Am 9. December. Je näher wir den Caymanseilanden^[Christoph
 Columbus hatte im Jahr 1503 den Caymanseilanden den
-Namen <i>Penascales de las tortugas</i>
+Namen *Penascales de las tortugas*
 gegeben, wegen der Seeschildkröten,
 die er in diesem Striche schwimmen sah.]
 kamen, desto stärker wurde wieder der Nordostwind. Trotz
@@ -12954,7 +12973,7 @@ einer Strömung aus Süd-Süd-Ost, deren Temperatur
 an der Wasserfläche 26°7 betrug, während ich außerhalb
 derselben Strömung nur 24°6 gefunden hatte. In der Besorgniß,
 ostwärts von der Havana zu kommen, wollte man
-anfangs die Schildkröteninseln (<i>Dry Tortugas</i>) am Südwestende
+anfangs die Schildkröteninseln (*Dry Tortugas*) am Südwestende
 der Halbinsel Florida aufsuchen; aber seit Cap San Antonio
 in Sicht gewesen, hatten wir zu Louis Berthouds Chronometer
 so großes Zutrauen gefaßt, daß solches überflüssig erschien.
@@ -12962,3 +12981,12 @@ Wir ankerten im Hafen der Havana am 19.&nbsp;December
 nach einer fünf und zwanzigtägigen Fahrt bei beständig
 schlechtem Wetter.
 
+
+# Anmerkungen zur Transkription
+
+Zwei Google-Digitalisate dienten als Vorlage, tesseract besorgte
+die OCR und pandoc die Konversion nach HTML, EPUB und TXT.
+
+Die Markdown-Source steht unter http://github.com/rwst/book-humboldt-reise
+zur Verfügung. Für Fehlermeldungen benutzen Sie bitte den dortigen
+Tracker.

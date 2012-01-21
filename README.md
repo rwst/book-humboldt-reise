@@ -2,7 +2,7 @@
 
 This repository contains the markdown source of
 the book Humboldt: Reise in die Aequinoctialregionen...
-(etext #99999 at Project Gutenberg), as long as markdown
+(etext #38638 at Project Gutenberg), as long as markdown
 is not accepted as file format there. It also serves
 as a tracker of issues regarding that etext, so, if
 you find a transcription error, you can either fix it
@@ -26,4 +26,4 @@ rwst
 
 http://johnmacfarlane.net/pandoc/README.html
 
-http://www.gutenberg.org/ebooks/99999
+http://www.gutenberg.org/ebooks/38638
